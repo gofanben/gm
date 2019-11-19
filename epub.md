@@ -1,4 +1,4 @@
-<div align="center"><IMG SRC="gm/img-2/ntdtvflower.jpg" width=800>
+<div align="center"><IMG SRC="gofanben/gm/img-2/ntdtvflower.jpg" width=800>
 <h3>新唐人视频 http://61.228.118.20</h3>
 	
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
