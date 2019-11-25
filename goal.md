@@ -31,25 +31,25 @@
 
 <TR>
 <TD><h2>全书下载：</h2>
-	<h3>	<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/epub/gbUltiGoalCmChina.epub?raw=true">epub简体版电子书</a>，<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/epub/twUltiGoalCmChina.epub?raw=true">epub正体版电子书<br><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-S-V2-171216.pdf?raw=true">PDF简体版</a>，<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-T-171207.pdf?raw=true">PDF正体版<br><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-S-V2-171216D.docx?raw=true">WORD简体版</a>，<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-T-V2-171216D.docx?raw=true">WORD正体版</a><br><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/Tekan_V24_P32_GB.pdf?raw=true">PDF高清杂志简体版</a>，<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/Tekan_V24_P32_TC.pdf?raw=true">PDF高清杂志正体版<br><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-S-V2-171216D-2018-0326update.zip?raw=true">简体字TXT文本</a>，<a href="https://github.com/goodabc/gm/blob/master/gm/ebook/pdf/JPN-T-V2-171216D-2018-0326update.zip?raw=true">正体字TXT文本</a></h3> </TD></TR>
+	<h3>	<a href="https://github.com/gofanben/gm/blob/master/ebook/epub/gbUltiGoalCmChina.epub?raw=true">epub简体版电子书</a>，<a href="https://github.com/gofanben/gm/blob/master/ebook/epub/twUltiGoalCmChina.epub?raw=true">epub正体版电子书<br><a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-S-V2-171216.pdf?raw=true">PDF简体版</a>，<a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-T-171207.pdf?raw=true">PDF正体版<br><a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-S-V2-171216D.docx?raw=true">WORD简体版</a>，<a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-T-V2-171216D.docx?raw=true">WORD正体版</a><br><a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/Tekan_V24_P32_GB.pdf?raw=true">PDF高清杂志简体版</a>，<a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/Tekan_V24_P32_TC.pdf?raw=true">PDF高清杂志正体版<br><a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-S-V2-171216D-2018-0326update.zip?raw=true">简体字TXT文本</a>，<a href="https://github.com/gofanben/gm/blob/master/ebook/pdf/JPN-T-V2-171216D-2018-0326update.zip?raw=true">正体字TXT文本</a></h3> </TD></TR>
 <TR>
 <TD><h2>音频下载：</h2>
-	<h3><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/epub/goalmp3Npr.epub?raw=true">音频版 mp3 epub简体版全书</a><br>
-</a><br><a href="https://github.com/goodabc/gm/blob/master/gm/mp3/goal8K.zip?raw=true">希望之声声音档(mp3)</a></h3></TD></TR>
+	<h3><a href="https://github.com/gofanben/gm/blob/master/ebook/epub/goalmp3Npr.epub?raw=true">音频版 mp3 epub简体版全书</a><br>
+</a><br><a href="https://github.com/gofanben/gm/blob/master/gm/mp3/goal8K.zip?raw=true">希望之声声音档(mp3)</a></h3></TD></TR>
 	
 <TR>	
-<TD><h2>视频下载：<br><a href="https://github.com/goodabc/gm/blob/master/gm/ebook/epub/goalmp4Npf.epub?raw=true" target="_blank">新唐人电视台视频播报版 epub 下载</a>
+<TD><h2>视频下载：<br><a href="https://github.com/gofanben/gm/blob/master/ebook/epub/goalmp4Npf.epub?raw=true" target="_blank">新唐人电视台视频播报版 epub 下载</a>
 <br>
 </a><br><a href="https://github.com/goodabc/gm/blob/master/zjmd.md">频播报版12集(实体镶崁) epub 下载</a></h3></TD></TR>
 <TR><TD>
-<h2>下载阅读器：<br><a href="https://github.com/3fmd/gm/blob/master/epub.md"><b>手机、电脑打开 epub 电子书方法介绍。更多的免费(视频、音频、图文) 好看的电子书。</b></a></h2></TD></TR>
+<h2>下载阅读器：<br><a href="https://github.com/gofanben/gm/blob/master/epub.md"><b>手机、电脑打开 epub 电子书方法介绍。更多的免费(视频、音频、图文) 好看的电子书。</b></a></h2></TD></TR>
 </div>
 </TABLE>
 
 <table align="center" >
 	<tr>
 		<td>
-		<a href="https://github.com/goodabc/gm/blob/master/fangqian.md"><div align=center><IMG SRC="../master/https://github.com/gofanben/gm/blob/master/goal-img/fq2.jpg" width="880"></a>	
+		<a href="https://github.com/mingop/f6f6dw/blob/master/fonts.md"><div align=center><IMG SRC="../master/https://github.com/gofanben/gm/blob/master/goal-img/fq2.jpg" width="880"></a>	
 		</td>	
 	</tr>	
 </table> 
