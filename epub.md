@@ -1,5 +1,5 @@
-<div align="center"><IMG SRC="gm/img-2/ntdtvflower.jpg" width=800>
-<h3>新唐人视频 http://61.228.118.20</h3>
+<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
+<h3>新唐人视频 http://111.241.95.85</h3>
 	
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
@@ -56,7 +56,7 @@
 <td align="center" colspan="2"><h1><b><a href="https://git.io/ykkk">【大难来时何处藏】</a></b></h1>
  </tr>
 <tr>
-        <td align="center" width="550"><a href="https://git.io/fyou-5"><img src="https://github.com/gofanben/gm/blob/master/https://github.com/gofanben/gm/blob/master/img/dnlshcc.jpg"></a>
+        <td align="center" width="550"><a href="https://git.io/fyou-5"><img src="https://github.com/gofanben/gm/blob/master/img/dnlshcc.jpg"></a>
         <td align="center" width="450"><img src="https://github.com/gofanben/gm/blob/master/img/dnlshcc-qr.png"></td>
 </tr>
  <tr>
@@ -69,7 +69,7 @@
 <td align="center" colspan="2"><h1><b><a href="http://git.io/zb">【三亿退党潮】</a></b></h1>
  </tr>
 <tr>
-        <td align="center" width="550"><a href="https://git.io/300Mst"><img src="https://github.com/gofanben/gm/blob/master/https://github.com/gofanben/gm/blob/master/img/300Mst.jpg"></a>
+        <td align="center" width="550"><a href="https://git.io/300Mst"><img src="https://github.com/gofanben/gm/blob/master/img/300Mst.jpg"></a>
         <td align="center" width="450"><img src="https://github.com/gofanben/gm/blob/master/img/300Mst-qr.png"></td>
 </tr>
  <tr>
