@@ -35,7 +35,7 @@
 <TR>
 <TD><h2>音频下载：</h2>
 	<h3><a href="https://github.com/gofanben/gm/blob/master/ebook/epub/goalmp3Npr.epub?raw=true">音频版 mp3 epub简体版全书</a><br>
-</a><br><a href="https://github.com/gofanben/gm/blob/master/gm/mp3/goal8K.zip?raw=true">希望之声声音档(mp3)</a></h3></TD></TR>
+</a><br><a href="https://github.com/gofanben/gm/blob/master/mp3/goal8K.zip?raw=true">希望之声声音档(mp3)</a></h3></TD></TR>
 	
 <TR>	
 <TD><h2>视频下载：<br><a href="https://github.com/gofanben/gm/blob/master/ebook/epub/goalmp4Npf.epub?raw=true" target="_blank">新唐人电视台视频播报版 epub 下载</a>
