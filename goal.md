@@ -1,6 +1,6 @@
-<div align="center"><!-- <IMG SRC="gm/img-2/logo-0721.jpg" width=640><br> -->
-<IMG SRC="gm/img-2/ntdtvflower.jpg" width=800>
-<h3>新唐人视频 http://36.227.93.70</h3>
+<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
+<h3>新唐人视频 http://111.241.95.85</h3>
+
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
   	
 <a href=https://git.io/01><h6 align="right">回首頁</h6></a>
