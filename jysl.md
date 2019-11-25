@@ -49,7 +49,7 @@
   
 <hr><a name=1>
 <h1 align="center"><b>公告：《九评》编辑部另一部新书即将发表</b></h1>
-<div align="center"><img src="GCC/img/141001070702181311-550x400.jpg" width=640></div>
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/goal-img/141001070702181311-550x400.jpg" width=640></div>
 
 【大纪元2018年05月18日讯】公告
 
@@ -64,7 +64,7 @@
 <hr><a name=2>
 <h1 align="center"><b>九评编辑部：魔鬼在统治着我们的世界 (1)</b></h1>
 <h2 align="center"><b>共产党的幽灵并没有随着东欧共产党的解体而消失</b></h3>
-<div align="center"><img src="GCC/img/276bf89d79eeda65983db79b11430c87-600x400.jpg" width=640></div>
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/goal-img/276bf89d79eeda65983db79b11430c87-600x400.jpg" width=640></div>
 <div align="center">《九评》编辑部：魔鬼在统治着我们的世界。（大纪元制图）</div><p>
 
 【大纪元2018年05月18日讯】<b>魔鬼在统治着我们的世界</b><p>
