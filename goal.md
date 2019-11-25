@@ -40,7 +40,7 @@
 <TR>	
 <TD><h2>视频下载：<br><a href="https://github.com/gofanben/gm/blob/master/ebook/epub/goalmp4Npf.epub?raw=true" target="_blank">新唐人电视台视频播报版 epub 下载</a>
 <br>
-</a><br><a href="https://github.com/goodabc/gm/blob/master/zjmd.md">频播报版12集(实体镶崁) epub 下载</a></h3></TD></TR>
+</a><br><a href="https://github.com/gofun72/telove/blob/master/goalCh.md">视频播报版12集(实体镶崁) epub 下载</a></h3></TD></TR>
 <TR><TD>
 <h2>下载阅读器：<br><a href="https://github.com/gofanben/gm/blob/master/epub.md"><b>手机、电脑打开 epub 电子书方法介绍。更多的免费(视频、音频、图文) 好看的电子书。</b></a></h2></TD></TR>
 </div>
