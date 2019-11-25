@@ -49,7 +49,7 @@
 <table align="center" >
 	<tr>
 		<td>
-		<a href="https://github.com/goodabc/gm/blob/master/fangqian.md"><div align=center><IMG SRC="../master/gm/goal-img/fq2.jpg" width="880"></a>	
+		<a href="https://github.com/goodabc/gm/blob/master/fangqian.md"><div align=center><IMG SRC="../master/https://github.com/gofanben/gm/blob/master/fq2.jpg" width="880"></a>	
 		</td>	
 	</tr>	
 </table> 
@@ -59,7 +59,7 @@
 
 <hr>
 <a name=1><span style=color:#0000FF><H2 align="center">《九评》编辑部：《共产主义的终极目的》序言</H2></span>
-<div align=center><div align=center><IMG SRC="gm/goal-img/1.jpg" width=640></div></div><p>
+<div align=center><div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/1.jpg" width=640></div></div><p>
 		<p>【大纪元2017年11月18日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》。大纪元从今天起将刊载全书内容。</p>
 <p>******<br />
 <strong>《共产主义的终极目的》序言</strong></p>
@@ -77,7 +77,7 @@
 2017年11月18日</p>
 http://www.epochtimes.com/gb/17/11/19/n9862666.htm<br>
 <a href=#>回目录<HR><a name=2><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (1)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 		<p>【大纪元2017年11月19日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第一章。</p>
 <p>******</p>
@@ -95,7 +95,7 @@ http://www.epochtimes.com/gb/17/11/19/n9862666.htm<br>
 <p>为什么共产党取得政权之后，仍然不断发动各种运动，乃至发动“史无前例”的文化大革命？为什么中国共产党要以中国人和中国文化为敌，必欲除之而后快？为什么在过去的一个世纪里，中国成为被共产邪灵控制最严密、迫害最残酷的民族？</p>
 <p>本书第一次揭示，共产主义并非一种思潮、学说，或者在人类寻找出路时一个失败了的尝试。它是魔鬼，亦称共产邪灵，由恨和宇宙底层空间各种败坏物质构成，其终极目的是毁灭人类。</p>
 <p>共产邪灵毁灭人类最阴邪的一招，就是破坏创世主为救度众生而造就的神传文化，或曰中华传统文化。</p>
-<div align=center><IMG SRC="gm/goal-img/1-2.jpg" width=640></div><br>	
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/1-2.jpg" width=640></div><br>	
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）
 <h2><strong>1. </strong><strong>中心之国</strong></h2>
 <p>四千多年前全球性的滔天洪水，使本次人类几乎处于完全毁灭状态。各民族关于这场大洪水的记忆中，几乎都只有极少数人幸存下来，作为人种重新繁衍。</p>
@@ -149,7 +149,7 @@ http://www.epochtimes.com/gb/17/11/19/n9862666.htm<br>
 <p>中华传统文化就是创世主为了最后救度众生，而在中国亲自奠定的文化。这就是中华传统文化的特殊安排和目的。#</p>
 http://www.epochtimes.com/gb/17/11/19/n9865857.htm<br>
 <a href=#>回目录<HR><a name=3><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (2)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 		<p>【大纪元2017年11月21日讯】在九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第二章之上部。</p>
 <h2>******<br />
@@ -169,7 +169,7 @@ http://www.epochtimes.com/gb/17/11/19/n9865857.htm<br>
 <p>人们也许认为共产主义就像其它各种各样的主义一样，是一种人间的什么思潮，或者说是一种失败了的尝试。非也！共产主义不是思潮，也不是尝试，它不是人自己搞出来的什么东西。共产主义是魔鬼教义，是邪灵强加给人的、专门以祸害人间，毁灭人类为目的而来的。</p>
 <p>如果说身在其中人们还看不出共产邪灵的诡计的话，如今我们回顾共产党的百年历史，就可以清楚地看出共产邪灵精心安排的毁灭人类的路线图。</p>
 <p>马克思及其追随者就是这个邪灵选择来实施其阴谋的人间代表，在地球上搞起了共产邪教。我们就从马克思的邪教信仰和邪灵的路线图说起。</p>
-<div align=center><IMG SRC="gm/goal-img/2-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）
 <h2><strong>1.</strong>  <strong>不为人知的马克思</strong>──<strong>信仰邪教</strong></h2>
 <p>中国人最熟悉的西方人中，马克思当然要算一个。不过我们对马克思本人到底了解多少呢？其实很少。</p>
@@ -218,7 +218,7 @@ http://www.epochtimes.com/gb/17/11/19/n9865857.htm<br>
 http://www.epochtimes.com/gb/17/11/21/n9876205.htm
 <br>	
 <a href=#>回目录<HR><a name=4><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (3)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 		<p>【大纪元2017年11月23日讯】在九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第二章之下部。</p>
 <h2>******<br />
@@ -251,7 +251,7 @@ http://www.epochtimes.com/gb/17/11/21/n9876205.htm
 <p>前三十年政治挂帅，破坏传统文化，打掉传统信仰，用政治的手法搞经济，出现了濒临崩溃的经济危机；后三十多年一切向钱看，用经济手法搞政治，用金钱物欲和情色迷乱来填补信仰真空，带来的是触目惊心的道德危机。其实，过去的经济危机里包藏着道德危机，只是等到今天物欲横流的时候才总爆发；今天的道德危机也包藏着经济危机。经济是人的行为，人是受道德支配的，所以经济归根到底受制于道德和信用。没有道德的经济必然走不了多远，危机的爆发也是迟早的事情。</p>
 <p>……</p>
 <p>我们可以一直对比下去，但是已经没有必要了。共产党的统治手法不断变换，其邪恶本质和终极目的没有变，而且永远不会变。</p>
-<div align=center><IMG SRC="gm/goal-img/3-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/3-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br>
 <h3><strong>2</strong><strong>）破坏文化 败坏道德 一以贯之</strong></h3>
 <p>纵观中共前后几十年，破坏文化、败坏道德始终是共产邪灵祸害中华的核心。文化与道德是唇齿相依的。传统文化的破坏，会带来社会道德的堕落；反过来，道德的堕落又会直接反映到文化中，导致文化的进一步变异。二者一旦形成了恶性循环，就会造成品行和道德标准双双整体下滑。曾经认为是不道德的事物，会被认为是“天经地义”的“新常态”了。</p>
@@ -292,7 +292,7 @@ http://www.epochtimes.com/gb/17/11/21/n9876205.htm
 <p>只有整个社会道德复苏，心灵净化，恢复传统，重建对神的信仰，人类才能逃过劫难。时不我待！人类到了猛醒的时候了。#</p>
 http://www.epochtimes.com/gb/17/11/22/n9879879.htm <br>	
 <a href=#>回目录<HR><a name=5><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (4)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 		<p>【大纪元2017年11月25日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第三章之上部。</p>
 <h2>******<br />
@@ -327,7 +327,7 @@ http://www.epochtimes.com/gb/17/11/22/n9879879.htm <br>
 <p>杀到这个地步，共产党就会从公开杀转成暗地里杀。</p>
 <p>“土改”“镇反”“三反”“五反”“文革”，那是公开杀，甚至号召群众围观，就是要杀给大家看。1989年“六四”是半公开地杀，事后矢口否认；等到了1999年迫害法轮功，就不公开杀了，后来披露出的大规模活摘器官，那都是捂得严严实实地躲着杀。</p>
 <p>共产党的历史，就是一部杀人的历史。没有“杀”来开路，要把“无神论”灌输到中华大地，要把华夏民族变成“无法无天”的民族，要把中国的神传文化打掉，是根本做不到的。</p>
-<div align=center><IMG SRC="gm/goal-img/4-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/4-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br>	
 <h2>1. 苏俄预演</h2>
 <p>为了毁灭人类，共产邪灵首先要毁灭中华文化。“邪灵”挑选了中国的近邻，也是地理和人口上的大国苏联进行预演。苏联离中国很近，可以成为经济、军事和地缘政治上支持中共的方便力量；也因为苏联疆域辽阔、人口众多，才能逃过刚刚建立时欧洲各国的围剿以及后来二战时德国的进攻，共产主义才得以在那里苟延残喘。</p>
@@ -394,7 +394,7 @@ http://www.epochtimes.com/gb/17/11/22/n9879879.htm <br>
 <p>与此同时，共产邪灵让人们实施暴力、杀戮世人时，告诉人们杀人是应该的，人应有的善良之心必须放弃，而建立了“对敌人要像严冬一样冷酷无情”的党文化理念。此类例子，不胜枚举。中共每一件恶行都在有意地为建立它们用以毁坏传统文化、败坏人们道德的党文化添砖加瓦。在党文化的毒害下，很多人变成了共产邪灵的打手、杀人工具。＃</p>
 http://www.epochtimes.com/gb/17/11/25/n9891246.htm <br>	
 <a href=#>回目录<HR><a name=6><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (5)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 		<p>【大纪元2017年11月26日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第三章之下部。</p>
 <h2>******<br />
@@ -415,7 +415,7 @@ http://www.epochtimes.com/gb/17/11/25/n9891246.htm <br>
 <p>宇宙、地球、人类整个环境是循环的。人在生命轮回中，当道德高尚时，没有多少业力，轮回转生后对自然环境也没有多少坏的影响。但当人们业力积攒越来越多时，也终会将业力带到生存环境中，影响周围的一切，沙漠化就是恶果之一。</p>
 <p>中共建政以来，人们道德迅速下滑，业力剧增，无度地挥霍、浪费自然资源，毁坏自然环境，中国大好河山疮痍满目，沙漠面积急剧增大。50年代至70年代，中国每年有1560平方公里的土地被沙漠吞噬，70年代至80年代，扩大为2100平方公里，90年代，达到2460平方公里，到21世纪已超过3000平方公里。内蒙古历史上曾经有五大草原让世人称道，如今有三个已经基本消失。乌兰察布草原、科尔沁草原和鄂尔多斯草原，三大草原的大面积退化沙化，只用了20年。河北怀来县人称“天漠”的飞来沙漠现在离北京仅70公里，北京或许就将是下一个消失在沙漠中的楼兰古城。</p>
 <p>中共任意乱砍滥伐，堵河填海，与天斗、与地斗，已然破坏了神为人生存所创造的环境。各种灾害越来越多，江河泛滥、雾霾毒人、沙尘滚滚；干旱断水、工业污染、地脉水脉被断、极端气候频繁出现，屡创纪录；更有诸多可怕奇怪的疾病夺走世人生命，真可谓触目惊心。</p>
-<div align=center><IMG SRC="gm/goal-img/5-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/5-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br>	
 <h2>5. 毁灭文化</h2>
 <p>从暴力杀戮精英阶层、暴力摧毁人类赖以生存的精神、物质环境，到暴力毁灭人之所以为人之传统文化，都是共产邪灵有计划、有步骤地毁灭人类的安排。</p>
@@ -460,7 +460,7 @@ http://www.epochtimes.com/gb/17/11/25/n9891246.htm <br>
 <p>中共邪恶罔顾神的慈悲，一意孤行，已然走到了邪恶至极的最后一步。善恶终将有报，邪不胜正是宇宙间永恒的真理。对世人来说，保持纯真、善良本性，坚守神为人类定下的道德规范、思想品行，从新走回传统之路才是世人能走过生死大劫的保障。#</p>
 http://www.epochtimes.com/gb/17/11/25/n9893174.htm <br>	
 <a href=#>回目录<HR><a name=7><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (6)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 		<p>【大纪元2017年11月28日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第四章之上部。</p>
 <p>******<br />
@@ -482,7 +482,7 @@ http://www.epochtimes.com/gb/17/11/25/n9893174.htm <br>
 <p>中国社会的姓资姓社，对世人而言似乎相当重要，对共产邪灵来说其实无关宏旨。本书一再强调，共产主义不是一种学说、一种社会制度、一个失败了的尝试，它是一个邪灵，其目的是通过毁灭文化、败坏道德来毁灭全人类。只有把握了“共产主义的终极目的是毁灭人类”这一主线，才能透过纷繁复杂的表象，看清邪灵毁灭人类的路线图、计划书、流程表，甚至操作手册。</p>
 <p>杀人转入地下，毁人一刻不停。共产党有时让人死，有时让人活；有时让人匮乏饥馑，有时让人肥得流油；忽而让人禁欲，忽而让人狂欢；一会儿破坏文化，一会儿“恢复传统”；一会儿姓社，一会儿姓资。究其实质，毁灭真正的传统文化，败坏人的道德，让人反神、变成非人——这才是共产党万变中的不变。</p>
 <p>共产邪灵由“恨”构成，为了毁灭人，它带领被其欺骗了的人反神、反传统、反文化、骂祖宗。</p>
-<div align=center><IMG SRC="gm/goal-img/6-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/6-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 <p>共产党除了“一路杀”，还有一个“骗”。这个“杀”和“骗”对应着共产党常说的“一手硬”、“一手软”。归根结底，“杀”和“骗”都来自于共产主义的二元核心──“仇视神佛的无神论和斗争哲学”。“杀”和“骗”相辅相成，“杀”中有“骗”，“骗”中有“杀”。</p>
 <p>说起“骗”，共产党实施的是从微观到宏观的一揽子“骗”。从人心灵深处的理想，到是非善恶标准，再到表面做人的底线，处处都是骗。骗钱、骗色、假烟、假酒、毒米、毒奶都是小儿科，这些都是共产党败坏道德之后的必然结果。共产党为什么能骗得了人？人们只是为了就业、提干、发财、包二奶就被骗了？当然这样的人大有人在，特别是堕落到钱色本身就成为了信条的今天。但是，当初不是也有一些有钱人家的子弟“抛家舍业”去参加共党闹革命吗？</p>
@@ -544,7 +544,7 @@ http://www.epochtimes.com/gb/17/11/25/n9893174.htm <br>
 <p>如果人们在镇压地主、右派、“反革命”或者是今天迫害法轮功的政治运动中，可以越过道德底线而违心表态，“揭批”毫不了解的陌生人，甚至可以“揭批”亲人、朋友；如果今天的人们可以用“不参与政治”作借口而“心安理得”地漠视对同胞的摧残、虐杀，那么出于同样的自我保护心理，人们也可以“理所当然”地围观歹徒行凶而无动于衷；人们也可以在商战中尔虞我诈，走门路、拉关系，以至于为了“先富起来”而“宰熟”、制造、贩卖各种伪劣商品，乃至毒酒、毒米、毒奶粉……#</p>
 http://www.epochtimes.com/gb/17/11/27/n9899359.htm <br>	
 <a href=#>回目录<HR><a name=8><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (7)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 		<p>【大纪元2017年11月28日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》，以下为第四章之下部。</p>
 <h2>******<br />
@@ -565,7 +565,7 @@ http://www.epochtimes.com/gb/17/11/27/n9899359.htm <br>
 <p>中国几千年传承下来的文化，在中共夺权后不久就遭遇了灭顶之灾。山不转水转，中共今天也在喊恢复传统文化了。究其原因，不外乎以下几点。</p>
 <p>一是马克思主义意识形态破产，在国际上没有拿得出手的价值观。美国总统访问中国，爱挑一个中国著名大学去做演讲，跟中国的年轻人分享美国的普世价值观。反观中共领导人，他们一进入美国就成了地下党员，从来不敢去美国大学给莘莘学子宣扬“共产主义”、“宗教是鸦片”、“无神论”等所谓“先进文化”。二是出于维护政权的需要。喝着阶级斗争狼奶长大的几代人对党本身又构成了威胁，所以中共希望从传统文化中断章取义地寻找“和为贵”之类的来化解危机。三是传统文化在中国人的骨子里是有沉淀的，的确有来自民间的文化寻根需求。</p>
 <p>正是在这些因素作用下，中共不得不到被它必欲置之死地而后快的传统文化中去寻找存活的养分。不论中共的动机如何，中国传统文化的巨大正面力量由此可见一斑。</p>
-<div align=center><IMG SRC="gm/goal-img/7-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/7-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br>	
 <h3>1）没有对破坏过程来个 “逆操作”，奢谈“恢复”</h3>
 <p>要谈恢复传统，就要首先按照当年破坏的过程来一个彻底的逆操作，对当初的各种荒唐行为进行反思、清算、抛弃之后，才可谈及真正的恢复。把套在学者们头上的马克思主义“无神论”紧箍咒砸碎之后，方能站在恢复传统的起跑线上。中国传统文化是神缔造的，是半神文化，是普世的价值。抱着“无神论”如何能与建立在对神的信仰基础上的传统文化接轨呢？</p>
@@ -628,7 +628,7 @@ http://www.epochtimes.com/gb/17/11/27/n9899359.htm <br>
 <p>中华民族是一个得天独厚的民族，中华文化是一个神赋使命的文化。邃古之初，当神创造神州大地的时候，就已经埋下了未来危机中的转机，绝境中的希望。末世大劫之前，能否读懂天机、听懂神言，关乎每个人的命运和未来。#</p>
 http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>	
 <a href=#>回目录<HR><a name=9><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (8)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>	
 		<p>【大纪元2017年11月30日讯】在九评共产党》发表13周年之际，九评》编辑部发表新书《共产主义的终极目的》，以下为第五章之上部。</p>
 <h2>******<br />
@@ -662,7 +662,7 @@ http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>
 <p>文革后，中国人在反思历史中，也认识到中共党魁被捧上了神坛。这是非常表面的认识——党为什么能把党魁捧上“神坛”？这个现象的实质是：共产邪灵篡夺了中华文化中、中国人心中原本属于神的位置。</p>
 <p>世上遭受无数痛苦的民族，无一不是因为过早地背离了自己的神。没有神的护佑，苦难如影相随，前途一片黑暗。</p>
 <p>一个人被邪灵附体，痛苦至极；一个国家被邪灵附体，国家的主宰在邪灵手中，民族的大脑被邪灵掌控，这个民族必定万劫不复。就连邪党的党魁们也逃不脱和其他人一样悲惨的结局。因此认清邪灵、抛弃邪灵是人类的共同使命。</p>
-<div align=center><IMG SRC="gm/goal-img/8-2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/8-2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br>	
 <h3>2）毁灭通天的中华文化</h3>
 <p>中华文化从其发端就蕴含通天的真机，为将来得救的世人能够明了神的开示做了周全安排。“伏羲氏仰观象于天，俯观法于地……”《帝王世纪》如是记载伏羲氏创制书契（上古文字鼻祖）和八卦。五千年历朝历代，神带领中华民族不断充实了中华文化的丰富内涵，博大精深，充分体现了神的眷顾和护佑。</p>
@@ -736,7 +736,7 @@ http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>
 <p>（责任编辑：王馨宇）</p>
 <p>本文网址: https://www.ntdtv.com/gb/2017/12/02/a1353250.html</p>
 <a href=#>回目录<HR><a name=10><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (9)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 					<p>【新唐人北京时间2017年12月02日讯】在《<a href="https://www.ntdtv.com/gb/九评.htm">九评</a><a href="https://www.ntdtv.com/gb/共产党.htm">共产党</a>》发表13周年之际，《九评》编辑部发表新书《<a href="https://www.ntdtv.com/gb/共产主义的终极目的.htm">共产主义的终极目的</a>》，以下为第五章之下部。</p>
 <p>******<br />
@@ -831,7 +831,7 @@ http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>
 <p>本文网址: https://www.ntdtv.com/gb/2017/12/02/a1353392.html</p>
 <a href=#>回目录<HR>
 <a name=11><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (10)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 					<p>【新唐人北京时间2017年12月04日讯】在《<a href="https://www.ntdtv.com/gb/九评.htm">九评</a><a href="https://www.ntdtv.com/gb/共产党.htm">共产党</a>》发表13周年之际，《<a href="https://www.ntdtv.com/gb/九评.htm">九评</a>》编辑部发表新书《<a href="https://www.ntdtv.com/gb/共产主义的终极目的.htm">共产主义的终极目的</a>》，以下为第六章之上部。</p>
 <p>******<br />
@@ -958,7 +958,7 @@ http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>
 <p>本文网址: https://www.ntdtv.com/gb/2017/12/04/a1353561.html</p>
 <a href=#>回目录<HR>
 <a name=12><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (11)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 					<p>【新唐人北京时间2017年12月05日讯】在《<a href="https://www.ntdtv.com/gb/九评.htm">九评</a><a href="https://www.ntdtv.com/gb/共产党.htm">共产党</a>》发表13周年之际，《九评》编辑部发表新书《<a href="https://www.ntdtv.com/gb/共产主义的终极目的.htm">共产主义的终极目的</a>》，以下为第六章之下部。</p>
 <p>******<br />
@@ -1036,7 +1036,7 @@ http://www.epochtimes.com/gb/17/11/28/n9901176.htm <br>
 <p>本文网址: https://www.ntdtv.com/gb/2017/12/05/a1353733.html</p>
 <a href=#>回目录<HR>
 <a name=13><span style=color:#0000FF><H2 align="center">《九评》编辑部：共产主义的终极目的 (12)</H2></span>
-<div align=center><IMG SRC="gm/goal-img/2.jpg" width=640></div><br>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/2.jpg" width=640></div><br>
 《九评》编辑部新书——《共产主义的终极目的》。（大纪元制图）<br><br>
 					<p>新唐人北京时间2017年12月07日讯】 <b>《<a href="https://www.ntdtv.com/gb/共产主义的终极目的.htm">共产主义的终极目的</a>-中国篇》结语 </b></p>
 <p>五千年大戏已经接近收场，人类已经走到了最后的关头。共产邪灵此时魔乱人间，造成了人类史上空前的浩劫。除了直接致上亿人于死地之外，更加可怕的是，共产主义意识形态扩散全球，共产主义因素弥漫世界，造成人心魔变，直接排神、反神，这将使世人丧失被神救度的最后机缘。</p>
