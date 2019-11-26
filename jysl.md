@@ -1,5 +1,6 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
 <h3>新唐人视频 http://111.241.95.85</h3>
+
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 	
 <a name=top>
@@ -7,7 +8,7 @@
 
 <a href="https://git.io/01"><h6 align="right">回首頁</h6></a>
 
-<a href="https://github.com/goodabc/GCC/blob/master/GCC/ebook/epub/Mgrw.epub?raw=true"><h3 align=center>本文epub电子书下载</a></h3>
+<a href="https://github.com/gofanben/gm/blob/master/epub/Mgrw.epub?raw=true"><h3 align=center>本文epub电子书下载</a></h3>
 
 <h2 align=center>下载阅读器：<br><a href="https://github.com/3fmd/gm/blob/master/epub.md"><b>手机、电脑打开 epub 电子书方法介绍。更多的免费(视频、音频、图文) 好看的电子书。</b></a></h2>
 
@@ -43,9 +44,9 @@
 <a href=#24>第十六章  环保主义背后的共产主义推手（上）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch16_1_64k.mp3?raw=true">(mp3)</a><br>
 <a href=#25>第十六章  环保主义背后的共产主义推手（下）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch16_2_64k.mp3?raw=true">(mp3)</a><br>
 <a href=#26>第十七章  全球化背后的共产主义黑手、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch17_64k.mp3?raw=true">(mp3)</a><br>
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-2.md">第十八章 魔鬼安排下中共的全球野心（上）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch18_1_64k.mp3?raw=true">(mp3)</a><br>
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-2.md">第十八章 魔鬼安排下中共的全球野心（下）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch18_2_64k.mp3?raw=true">(mp3)</a><br>
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-2.md">结束语</a><br>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-2.md">第十八章 魔鬼安排下中共的全球野心（上）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch18_1_64k.mp3?raw=true">(mp3)</a><br>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-2.md">第十八章 魔鬼安排下中共的全球野心（下）、<a href="https://github.com/gofanben/gm/blob/master/mp3/MGZTZWMDSJ_ch18_2_64k.mp3?raw=true">(mp3)</a><br>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-2.md">结束语</a><br>
   
 <hr><a name=1>
 <h1 align="center"><b>公告：《九评》编辑部另一部新书即将发表</b></h1>
@@ -583,7 +584,7 @@
 
 在冷战期间，共产国家遍布四大洲，自由世界和共产阵营激烈对峙。整个世界却好比一个太极图，一半是冷的共产主义，一半是热的共产主义：自由世界的国家表面上不是共产国家，却在实践著共产主义或者社会主义（即共产主义的初级阶段）。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a>
 
 原文出处：http://www.epochtimes.com/gb/18/5/22/n10414890.htm#_Toc514681880
 
@@ -754,7 +755,7 @@
 
 从苏俄建立第一个共产政权至今，短短一百年间，共产邪灵在共产政权国度里竟杀戮了比两次世界大战死亡人数总和还多的人。共产主义的历史就是一部杀人史，每一页都染著世人的血迹，都记载着共产邪灵百年来一路暴力嗜杀的恶行。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a>
 
 原文出处：http://www.epochtimes.com/gb/18/5/22/n10417707.htm
 
@@ -919,7 +920,7 @@
 
 虽然在西方及其它地区一些国家中，共产邪灵并没有采取东方杀戮的暴力手段，但它们以各种变异的手段，潜移默化的渗透已然达到了它们毁坏人类道德、毁坏神传给人的文化、推行共产主义、社会主义理念制度等所设的目标。共产邪灵事实上已经侵吞、占领了全世界。共产邪灵达到其最后毁灭全人类这一终极目的也只是一步之遥。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/23/n10421536.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1074,7 +1075,7 @@
 
 全世界人都希望和平，和平主义的思想和实践滥觞于几千年以前的古代，20世纪以来也有一些富于远见和爱心的人物为了消除国家间的误解和敌意而奔走操劳。由于历史原因，在美国等西方国家存在种族歧视的现象，民众为消除种族歧视所做的教育、宣传甚至抗争都是可以理解的。共产邪灵利用社会上存在的思想动向和矛盾摩擦，挑拨离间，煽动仇恨、制造暴力，欺骗和裹挟了很多最初并无恶意的民众。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/25/n10426013.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1205,7 +1206,7 @@
 
 魔鬼能够得逞，其根本原因是人远离了对神的信仰，放松了道德的约束。只有回归对神的信仰，净化心灵，升华道德，才能摆脱魔鬼的控制。如果整个社会都能够回归传统，魔鬼将再也没有容身之地。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/26/n10429603.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1381,7 +1382,7 @@
 
 共产邪灵处心积虑地系统安排了在有着深厚的东方传统文化的国度里，依靠暴力手段强行毁灭传统文化，剿灭正教，杀戮世人肉身的同时更败坏世人的道德，割断人与神的联系而彻底毁掉世人；在西方及世界其它地区则实施欺骗、渗透伎俩魔变正教，迷乱世人及教众，让世人放弃正信远离神，而最后毁掉世人。无论其手法、形式有何不同，都是为了同一个终极目的──毁灭整个人类。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/28/n10432159.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1539,7 +1540,7 @@
 
 波伏娃认为婚姻让女人受制于丈夫，“同妓女一样令人恶心”。她同萨特保持终身情人关系而拒绝结婚，与此同时她也和其他男人保持“偶然的爱情”，同样的，萨特也拥有几位其他女人的“偶然的爱情”。她的婚姻观是当代激进女权主义者的主流态度。事实上，这种复杂混乱的性关系正是乌托邦共产主义先行者傅立叶19世纪所设想的公妻制。（未完待续）#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/29/n10435448.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1716,7 +1717,7 @@
 
 共产邪灵引诱人类相信罪恶不在人的堕落，而在社会；让人从反叛传统中寻找出路，离神更远。邪灵鼓吹的女权、同性恋、性解放等等，用的是“自由”、“解放”等美丽辞藻，最终导致的结果是女性的尊严被贬损，男性的责任被丢弃，家庭的神圣被践踏，两性的道德被变异，孩子的未来被摧毁，最后狞笑的却是魔鬼。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/30/n10440961.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -1914,7 +1915,7 @@
 
 他们打着言论自由的旗号在西方社会不断挑动各种冲突斗争。要想理解他们的真实宗旨，只要看一看1956年国会报告披露的美国共产党给其成员发出的指示就一目了然：“前线的组织必须持续羞辱、抹黑、贬低批评我们的人。如果反对者太麻烦，给他们贴上法西斯或者纳粹或者反犹太标签……不断把反对者和臭名昭著的标签联系起来。经过不断的足够重复，这种联系就成为大众心目中的‘事实’。”[22]#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/5/31/n10444576.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -2103,7 +2104,7 @@
 
 政治的权柄，需要回归到以传统价值为基石的正道。人类得到神的佑护，才能不被魔鬼操纵，才能避免走上被奴役与被毁灭之路，才会有真正的出路。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/1/n10448270.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -2346,7 +2347,7 @@
 
 共产邪灵在这个世界肆虐，人们在不同的国家都可以看到其带来的现实的与潜在的危险。它给西方发达国家带来的问题正在显现，在发展中国家已经造成惨痛的现实。人们必须切记：不管魔鬼是否在经济上带给人一时的舒适与满足，它的本性不会改变──它一定要把人引向道德的堕落和生命的深渊。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/5/n10457370.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -2575,7 +2576,7 @@
 
 共产邪灵为毁灭人类作了全方位的周密安排，经济领域只是其中的一部分。人类要想摆脱共产邪灵的控制，就要认识其阴谋，看清其谎言诱骗，不再对其抱任何幻想，同时回归传统道德，重德向善。倘能如此，人类将迎来持久的繁荣幸福、真正的太平盛世，世界文明也将焕发出全新的生机。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/9/n10469975.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -2848,7 +2849,7 @@
 
 如果我们不能守住这个底线，不能以神的诫命为最终善恶的标准，我们就只能在共产邪灵的侵蚀下丧失司法独立和道德底线，并最终听任被共产邪灵所控制的代理人利用法律打击善良和纵容邪恶，不知不觉中执行邪灵毁灭人类的最终图谋。尽快摆脱邪灵的控制，刻不容缓。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/15/n10485969.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -3017,7 +3018,7 @@
 
 提升道德，找回信仰与传统，人类才能重新走上艺术复兴之路，重现真正的艺术的美、神圣与辉煌。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/20/n10499093.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -3268,7 +3269,7 @@
 
 传统教育中培养的是对自我的约束、独立思考和责任心、对他人宽容的美德。魔鬼就是要让下一代不断放纵自己，成为魔鬼统治世界时可以利用和操纵的工具。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/6/30/n10526970.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -3563,7 +3564,7 @@
 
 道德高尚的人，可以自我管理，这是美国国父们希望的社会形态。道德高尚的人，会得到神的赐福，凭著勤劳和智慧获得物质上的充裕和心灵的满足。更重要的是，道德高尚的人才能让社会代代繁衍、生生不息。这是那些觉者和圣人——人类最伟大的教育家，对今天的人回归传统教育的启示。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/7/15/n10564808.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -3793,7 +3794,7 @@
 
 对读者和观众来说，在媒体道德下滑的时候，明辨是非，理性认知媒体的各种信息，从传统出发判断问题，从普世价值的角度衡量社会现象，促成媒体回归历史使命，变得极其重要，这也是人们能够远离共产邪灵、走回传统、走向美好未来的关键。
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a>
 
 原文出处：http://www.epochtimes.com/gb/18/7/24/n10586579.htm
 
@@ -4001,7 +4002,7 @@
 
 神一直在关注着人、呵护着人。人能不能走回来，全看人自己的选择。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/7/28/n10597706.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -4219,7 +4220,7 @@
 
 恐怖主义带来了暴力、仇恨、残杀、恐惧、废墟和悲剧，其受害者是全人类。恐怖主义与共产主义密不可分。共产主义本身就是最大的恐怖主义，同时又扶持了其它形式的恐怖主义，因此，与人们通常认为的恐怖主义相比，共产主义才是对人类的根本威胁。不把恐怖主义的毒根拔掉，世无宁日。认清共产邪灵是人世间恐怖力量的根源，站在神的一边，走回神为人留下的传统的正路，邪灵才无法利用人类达到毁灭人类的终极目的。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/8/4/n10614727.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -4408,7 +4409,7 @@ IPCC第二次气候变化评估报告（1995年）发表前夕，世界著名物
 
 皮尔克教授指出，库里的经历表明，“拥有终身教授职位也不能保证学术自由。”[59]无怪乎美国工程院院士、杰出的前NASA大气科学家乔安‧辛普森（Joanne Simpson）直到退休后才宣布自己对“共识”教条的怀疑态度：“由于我不再隶属于任何组织，也没有接受任何资金，我现在可以非常坦率地说话……”她表示，“作为科学家我保持怀疑态度。”[60] 
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/9/4/n10688613.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -4595,7 +4596,7 @@ IPCC的一位主管科学家曾说：“如果我们希望将来有一个良好�
 
 解决环境问题不能靠强制性的政治运动，或者仅依靠现代技术，而取决于对宇宙、自然、人与自然关系的深刻理解和高尚的道德水平。人类恢复传统，提升道德，走回神指的路，自然会得到来自神的智慧和恩典。青山绿水，鸟语花香，将回到神的子民的身边；昭昭天日，朗朗乾坤，将伴随人类直到永远。#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/9/6/n10695307.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
@@ -4853,7 +4854,7 @@ IPCC的一位主管科学家曾说：“如果我们希望将来有一个良好�
 
 神是慈悲的。神不希望落下任何可以救度之人。人类只有走回传统，不论在国内事务还是在国际交往当中都重新引入普世价值和传统文化，才能在神的呵护下，摆脱共产邪灵，走向光明的未来！#
 
-<a href="https://github.com/goodabc/GCC/blob/master/jysl-1.md">备注</a><p>
+<a href="https://github.com/gofanben/gm/blob/master/jysl-1.md">备注</a><p>
 原文出处：http://www.epochtimes.com/gb/18/10/16/n10788205.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
