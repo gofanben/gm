@@ -1,5 +1,5 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
-<h3>新唐人视频 http://36.227.96.77</h3>
+<h3>新唐人视频 http://114.37.25.205</h3>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
   	
