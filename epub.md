@@ -1,5 +1,5 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
-<div align=center><h2>請收藏本網址，連上即時IP   https://git.io/epubc </h2></div>	
+<div align=center><h2>請收藏本網址，連上即時IP<>   https://git.io/epubc </h2></div>	
 
 <h3>新唐人视频 http://36.227.97.62</h3>
 	
