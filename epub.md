@@ -155,7 +155,7 @@
 <td align="center" colspan="2"><h1><b><a href="https://git.io/wnn">【小之每日真相】</a></b></h1>
  </tr>
 <tr>
-        <td align="center" width="550"><a href="https://git.io/xz-2"><img src="https://github.com/gofanben/gm/blob/master/img/2018-The_daily_truth.jpg"></a>
+        <td align="center" width="550"><a href="https://git.io/wnn"><img src="https://github.com/gofanben/gm/blob/master/img/2018-The_daily_truth.jpg"></a>
         <td align="center" width="450"><img src="https://github.com/gofanben/gm/blob/master/img/2018-The_daily_truth-qr.png"></td>
 </tr>
  <tr>
