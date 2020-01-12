@@ -1,5 +1,6 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
-<h3>新唐人视频 http://220.141.128.109</h3>
+<div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/ggoal </h2></div>
+<h3>新唐人视频 http://111.241.90.121</h3>
 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
