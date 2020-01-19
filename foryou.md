@@ -1,6 +1,9 @@
 <div align="center">
 <IMG SRC="img/mmmnb.jpg" width=880>
-<h3>新唐人视频 http://61.228.118.20/h3>
+  <div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/ggoal </h2></div>	
+
+<h3>免翻视频 http://220.141.125.164</h3>
+
   
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
