@@ -1,6 +1,6 @@
 <div align="center">
 <IMG SRC="img/mmmnb.jpg" width=880>
-  <div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/ggoal </h2></div>	
+  <div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/kstui </h2></div>	
 
 <h3>免翻视频 http://220.141.125.164</h3>
 
