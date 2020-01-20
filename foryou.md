@@ -11,7 +11,7 @@
 <IMG SRC="img/b_illust_24_0M.png" width=880></div>
   </p>
 <div align="center">
-<a href="https://git.io/mssos"><IMG SRC="img/bbdr45.jpg" width=880></a></div>
+<a href="https://git.io/jiuren"><IMG SRC="img/bbdr45.jpg" width=880></a></div>
 </p>
 <div align="center">
   <a href="https://git.io/zbdodo"><IMG SRC="img/kkoyu65.jpg" width=880></a></div>
