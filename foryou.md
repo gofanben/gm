@@ -32,18 +32,18 @@
   <td width=880><h4><a href="https://git.io/zxtk1">澄清谎言与疑问</a></h4></td></tr>
 
 <tr>
-  <td width=880><h4><a href="http://git.io/ffq">免费突破封锁翻墙软件</a></h4></td></tr>
+  <td width=880><h4><a href="https://git.io/opopop">免费突破封锁翻墙软件</a></h4></td></tr>
 
 <tr>
-  <td width=880><h4><a href="http://git.io/3f">手机上好看的电子书（ePub版）</a></h4></td></tr>
-
-<tr>
-  <td width=880><h4>
-<a href="https://github.com/bcdz/true01/blob/master/mp4/unbelieve.mp4?raw=true">香港游行，陆客受访感到震撼、震惊、不可思议... (视频mp4)</a></h4></td></tr>
+  <td width=880><h4><a href="https://git.io/epubc">手机上好看的电子书（ePub版）</a></h4></td></tr>
 
 <tr>
   <td width=880><h4>
-<a href="https://github.com/bcdz/true01/issues">点 Issues → New issue 可留言三退或用翻墙软件自己办理三退</a></h4></td></tr>
+<a href="https://github.com/gofanben/gm/blob/master/mp4/unbelieve.mp4?raw=true">香港游行，陆客受访感到震撼、震惊、不可思议... (视频mp4)</a></h4></td></tr>
+
+<tr>
+  <td width=880><h4>
+<a href="https://git.io/ggoal">请收藏本网址，连上即时IP ，点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h4></td></tr>
 </table>
 
 
