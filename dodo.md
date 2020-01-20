@@ -1,7 +1,7 @@
 
 <div align="center">
 <IMG SRC="img/mmnbg56.jpg" width=880>
-<div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/jxdodo </h2></div>	
+<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/jxdodo </h2></div>	
 
 <h3>免翻视频 http://220.141.125.164</h3>
  
