@@ -1,7 +1,12 @@
 
 <div align="center">
 <IMG SRC="img/mmnbg56.jpg" width=880>
-<h3>新唐人视频 http://36.227.93.70<h3></div>
+<div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/jxdodo </h2></div>	
+
+<h3>免翻视频 http://220.141.125.164</h3>
+ 
+ 
+ 
 <h3 align="center">如何“三退”，请点击退党网站  https://git.io/tv123</h3> </p>
  
 <div align="center">
