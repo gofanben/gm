@@ -43,7 +43,7 @@
 
 <tr>
   <td width=880><h4>
-<a href="https://git.io/ggoal">请收藏本网址，连上 免翻视频 即时IP ，点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h4></td></tr>
+<a href="https://git.io/ggoal">点 请收藏本网址 https://git.io/kstui ，连上 免翻视频 即时IP ，点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h4></td></tr>
 </table>
 
 
