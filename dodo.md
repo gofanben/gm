@@ -8,7 +8,7 @@
  
  
 <h3 align="center">如何“三退”?</h3> 
-<h3><a href="https://git.io/ggoal">请點→收藏本网址，连上→免翻视频 即时IP →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h3>
+<h3><a href="https://git.io/jxdodo">请點→收藏本网址 https://git.io/jxdodo ，连上→免翻视频 即时IP →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h3>
 </p>
  
 <div align="center">
