@@ -51,7 +51,7 @@
 <table align="center" >
 	<tr>
 		<td>
-		<a href="https://github.com/mingop/f6f6dw/blob/master/fonts.md"><div align=center><IMG SRC="../master/gm/goal-img/fq2.jpg" width="880"></a>	
+		<a href="https://github.com/mingop/f6f6dw/blob/master/fonts.md"><div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/goal-img/fq2.jpg?raw=true" width="880"></a>	
 		</td>	
 	</tr>	
 </table> 
