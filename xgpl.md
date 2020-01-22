@@ -1,5 +1,5 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/gccmd </h2></div>	
+<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/goal-4 </h2></div>	
 
 <h3>免翻视频 http://36.228.9.144</h3>
 
