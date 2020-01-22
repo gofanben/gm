@@ -25,11 +25,11 @@
 <a href="https://git.io/jiuren"><IMG SRC="img/bbdr45.jpg" width=880></a></div>
 </p>
 <div align="center">
-  <a href="https://git.io/zbdodo"><IMG SRC="img/kkoyu65.jpg" width=880></a></div>
+  <a href="https://git.io/jxdodo"><IMG SRC="img/kkoyu65.jpg" width=880></a></div>
 </p>
 
 <div align="center">
-  <a href="https://github.com/bcdz/true01/blob/master/aaasfa.md"><IMG SRC="img/hhhtt5.jpg" width=880></a></div>
+  <a href="https://git.io/pamja"><IMG SRC="img/hhhtt5.jpg" width=880></a></div>
 </p>
 
 <div align="center">
