@@ -25,7 +25,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/goal">【《共产主义的终极目的-中国篇》】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/gccmd">【《共产主义的终极目的-中国篇》】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://github.com/gofanben/gm/blob/master/epub/gbUltiGoalCmChina.epub?raw=true"><img src="https://github.com/gofanben/gm/blob/master/img/gbUltiGoalCmChina.jpg"></a>
@@ -41,7 +41,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/9m">【九评共产党】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/9pgcd">【九评共产党】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/jpgcd"><img src="https://github.com/gofanben/gm/blob/master/img/jpgcd.jpg"></a>
@@ -55,7 +55,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/ykkk">【大难来时何处藏】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/jiuren">【大难来时何处藏】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fyou-5"><img src="https://github.com/gofanben/gm/blob/master/img/dnlshcc.jpg"></a>
@@ -68,7 +68,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="http://git.io/zb">【三亿退党潮】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/jxdodo">【三亿退党潮】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/300Mst"><img src="https://github.com/gofanben/gm/blob/master/img/300Mst.jpg"></a>
@@ -82,7 +82,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="http://git.io/zb">【为什么要三退】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/kstui">【为什么要三退】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/why"><img src="https://github.com/gofanben/gm/blob/master/img/whytd.jpg"></a>
@@ -98,7 +98,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="http://git.io/zb">【您把毒誓发给了谁】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/kstui">【您把毒誓发给了谁】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fyou-1"><img src="https://github.com/gofanben/gm/blob/master/img/whyTD-y0523-1.jpg"></a>
@@ -113,7 +113,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://github.com/sodore/dsds/blob/master/rewuo.md">【为什么劝你退党、退团、退队】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/kstui">【为什么劝你退党、退团、退队】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fyou"><img src="https://github.com/gofanben/gm/blob/master/img/foryou.jpg"></a>
@@ -126,7 +126,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://github.com/goodabc/GCC/blob/master/goal.md">【慎思明辨 选择未来】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/trtptp">【慎思明辨 选择未来】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fyou-4"><img src="https://github.com/gofanben/gm/blob/master/img/shensiminjian.jpg"></a>
@@ -139,7 +139,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://github.com/sodore/dsds/blob/master/rewuo.md">【三退是福】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/jxdodo">【三退是福】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fyou-3"><img src="https://github.com/gofanben/gm/blob/master/img/santuishifu-y0524.jpg"></a>
@@ -166,7 +166,7 @@
 	 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/hj">【中共活摘器官】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/ssbbaaa">【中共活摘器官】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://github.com/gofanben/gm/blob/master/epub/huozhai_y.epub?raw=true"><img src="https://github.com/gofanben/gm/blob/master/img/huozhai_y.jpg"></a>
@@ -180,7 +180,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/hj">【这个星球上前所未有的邪恶】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/ssbbaaa">【这个星球上前所未有的邪恶】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/hj-1"><img src="https://github.com/gofanben/gm/blob/master/img/hj.jpg"></a>
@@ -193,7 +193,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/hj">【渝妇被活摘器官时逃生 背后隐藏中共最惊人秘密】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/ssbbaaa">【渝妇被活摘器官时逃生 背后隐藏中共最惊人秘密】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/hj-2"><img src="https://github.com/gofanben/gm/blob/master/img/hj-2.jpg"></a>
@@ -206,7 +206,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/hao">【法轮大法洪传世界】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/dfyaya">【法轮大法洪传世界】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/hao-1"><img src="https://github.com/gofanben/gm/blob/master/img/fldfhao.jpg"></a>
@@ -219,7 +219,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/99425">【“四‧二五”中南海万人上访真相】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://github.com/awwkk/usdom/blob/master/uuxxtt.md">【“四‧二五”中南海万人上访真相】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://github.com/gofanben/gm/blob/master/epub/425-20180524.epub?raw=true"><img src="https://github.com/gofanben/gm/blob/master/img/425.jpg"></a>
@@ -232,7 +232,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/zf">【16年前的长春3.05插播壮举】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/zfsan">【16年前的长春3.05插播壮举】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/305"><img src="https://github.com/gofanben/gm/blob/master/img/305.jpg"></a>
@@ -249,7 +249,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://github.com/sodore/dsds/blob/master/yaya.md">【大法徒的故事】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/kkdada">【大法徒的故事】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/hao-2"><img src="https://github.com/gofanben/gm/blob/master/img/dafa-saint-y0607.jpg"></a>
@@ -262,7 +262,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/3f">【明慧简讯_新闻时事】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/epubc">【明慧简讯_新闻时事】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://github.com/gofanben/gm/blob/master/epub/mhjs-3.epub?raw=true"><img src="https://github.com/gofanben/gm/blob/master/img/mhjs.jpg"></a>
@@ -308,7 +308,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/ccrs">【【希望之声广播】 传奇人生】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/birdf">【【希望之声广播】 传奇人生】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://github.com/gofanben/gm/blob/master/epub/ccrs-20180515.epub?raw=true"><img src="https://github.com/gofanben/gm/blob/master/img/ccrs.jpg"></a>
@@ -321,7 +321,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/yer">【一位律师的肺腑直言】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/ls02">【一位律师的肺腑直言】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/lss"><img src="https://github.com/gofanben/gm/blob/master/img/lawyer.jpg"></a>
@@ -334,7 +334,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/yer">【让法官傻眼的辩护词】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/789456">【让法官傻眼的辩护词】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/bhc"><img src="https://github.com/gofanben/gm/blob/master/img/bhc.jpg"></a>
@@ -347,7 +347,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/ysys">【突破封锁看世界】翻墙软件手册</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/opopop">【突破封锁看世界】翻墙软件手册</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/fqq"><img src="https://github.com/gofanben/gm/blob/master/img/fangqian2.jpg"></a>
@@ -360,7 +360,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/jtdwh1">【《解体党文化》】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/duk">【《解体党文化》】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/jtdwh1"><img src="https://github.com/gofanben/gm/blob/master/img/jtdwh.jpg"></a>
@@ -374,7 +374,7 @@
 
 <table>
   <tr>
-<td align="center" colspan="2"><h1><b><a href="https://git.io/689">【明慧周报大陆版（第六八九期）】</a></b></h1>
+<td align="center" colspan="2"><h1><b><a href="https://git.io/epubc">【明慧周报大陆版（第六八九期）】</a></b></h1>
  </tr>
 <tr>
         <td align="center" width="550"><a href="https://git.io/689"><img src="https://github.com/gofanben/gm/blob/master/img/MHZB.jpg"></a>
