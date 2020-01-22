@@ -37,7 +37,7 @@
 
 <table>
   <tr>
-  <td width=880><h4><a href="https://git.io/01">了解更多真相</a></h4></td></tr>
+  <td width=880><h4><a href="https://git.io/souye">了解更多真相</a></h4></td></tr>
 
  <tr>
   <td width=880><h4><a href="https://git.io/zxtk1">澄清谎言与疑问</a></h4></td></tr>
