@@ -1,6 +1,6 @@
 <h1 align="center"><b><a href="https://github.com/gofanben/gm/blob/master/mp4/zfzxPalV32.mp4?raw=true">“天安门自焚”真相</a></b></h1>
  
- <a href=https://git.io/01><h6 align="right">回首頁</h6></a>
+ <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 
 <table>
 <tr>
