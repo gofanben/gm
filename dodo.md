@@ -6,9 +6,17 @@
 <h3>免翻视频 http://36.228.9.144</h3>
  
  
+<table>
+<tr>
+ <td>
+ <a href="https://git.io/opopop"> 如何 “ 三退保命 ”，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 },找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</a></td>
+</tr>
  
-<h3 align="center">如何“三退”?</h3> 
-<h3><a href="https://git.io/jxdodo">请點→收藏本网址 https://git.io/jxdodo ，连上→免翻视频 即时IP →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h3>
+<tr>
+ <td>
+ <a href="https://git.io/pamja"> 如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 即时IP</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></td>
+</tr> 
+ </table>
 </p>
  
 <div align="center">
