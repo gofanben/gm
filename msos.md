@@ -65,10 +65,10 @@
   <table>
   <tr>
     <td width=440>
-  <a href="https://git.io/9p9p" >◆ 看《九评》https://git.io/9p9p  </a>
+  <a href="https://git.io/9p9pos" >◆ 看《九评》https://git.io/9p9pos  </a>
   </td>
    <td width=440>
-  <a href="https://git.io/op" >◆ 索取翻墙软件 https://git.io/op </a></p>
+  <a href="https://git.io/opopop" >◆ 索取翻墙软件 https://git.io/opopop </a></p>
     </td>
        
   </tr>
@@ -186,10 +186,10 @@
 </table>
  </p>   
 <div align="center">
-  <a href="https://github.com/bcdz/true01/blob/master/dodo.md" ><IMG SRC="img/6c2e4.png" width=880></a></div>
+  <a href="https://git.io/jxdodo" ><IMG SRC="img/6c2e4.png" width=880></a></div>
  </p>  
 <div align="center">
-  <a href="https://github.com/bcdz/true01/blob/master/aaasfa.md"><IMG SRC="img/true.jpg" width=880></a></div>
+  <a href="https://git.io/pamja"><IMG SRC="img/true.jpg" width=880></a></div>
 </p>
 
 
