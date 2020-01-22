@@ -2,6 +2,7 @@
  
  <a href=https://git.io/01><h6 align="right">回首頁</h6></a>
 
+<table>
 <tr>
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://36.228.9.144 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
@@ -11,6 +12,7 @@
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
+  </table> 
 
 + <a href='https://github.com/gofanben/gm/blob/master/mp4/ccs05.mp4?raw=true'>视频：《上苍为何落泪》纪念长春305插播壮举</a>
 + <a href='https://github.com/gofanben/gm/blob/master/mp4/CQSD-1s.mp4?raw=true'>【传奇时代】永恒的电波（上)</a>
