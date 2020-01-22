@@ -67,7 +67,7 @@
 		</td>	
 	</tr>	
 </table> 
-<!--<h2><a href="https://github.com/goodabc/gm/blob/master/jysl.md">九评编辑部：魔鬼在统治着我们的世界</a></h2>  -->
+<h2><a href="https://github.com/gofanben/gm/blob/master/jysl.md">九评编辑部：魔鬼在统治着我们的世界</a></h2>
 <h2><a href="https://github.com/gofanben/gm/blob/master/xgpl.md">推荐文章</a></h2>
 
 
