@@ -4,6 +4,18 @@
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/czsgz </h2></div>	
 
 <h3>免翻视频 http://36.228.9.144</h3>
+
+<table>
+<tr>
+ <td>
+ <a href="https://git.io/opopop"> 如何 “ 三退保命 ”，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 },找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</a></td>
+</tr>
+ 
+<tr>
+ <td>
+ <a href="https://git.io/pamja"> 如何 “ 三退保命 ”，<a href="https://git.io/pamja">请點→收藏本网址 https://git.io/jxdodo ，连上→<b>免翻视频 即时IP</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></a></td>
+</tr> 
+ </table>
  
  <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h1></div>
 
