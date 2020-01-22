@@ -18,7 +18,7 @@
  
 <tr>
  <td>
- <a href="https://git.io/pamja"> 如何 “ 三退保命 ”，<a href="https://git.io/pamja">请點→收藏本网址 https://git.io/jxdodo ，连上→<b>免翻视频 即时IP</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></a></td>
+ <a href="https://git.io/pamja"> 如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 即时IP</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></td>
 </tr> 
  </table>
 
