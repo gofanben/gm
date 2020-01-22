@@ -219,7 +219,7 @@
 <table>
  <tr><td width=880>
   <h3 align="center"><a href="http://">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3>
-** 分享网址（请收藏）：https://git.io/722 请复制后，用谷歌浏览器访问<大纪元退党网站>。   </p>
+ </p>
 * 用海外邮箱发表声明 tuidang@epochtimes.com </p>
 * 用破网软件登录 http://tuidang.epochtimes.com </p>
 * 退党电话：001-416-361-9895    001-888-892-8757    </p>
