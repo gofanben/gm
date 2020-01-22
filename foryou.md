@@ -4,7 +4,18 @@
 
 <h3>免翻视频 http://36.228.9.144</h3>
 
-  
+<table>
+<tr>
+ <td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
+</tr>
+ 
+<tr>
+ <td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://36.228.9.144 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+</tr> 
+ </table> 
+ 
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
   <div align="center">
@@ -41,9 +52,6 @@
   <td width=880><h4>
 <a href="https://github.com/gofanben/gm/blob/master/mp4/unbelieve.mp4?raw=true">香港游行，陆客受访感到震撼、震惊、不可思议... (视频mp4)</a></h4></td></tr>
 
-<tr>
-  <td width=880><h4>
-<a href="https://git.io/ggoal">点 请收藏本网址 https://git.io/kstui ，连上 免翻视频 即时IP ，点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</a></h4></td></tr>
 </table>
 
 
