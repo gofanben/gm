@@ -17,7 +17,8 @@
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
  </table>
-</p>
+
+
 <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 
 <div align="center">
