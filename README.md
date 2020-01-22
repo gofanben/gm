@@ -1,5 +1,8 @@
 <div align="center"><IMG SRC="img-2/ntdtvflower.jpg" width=800>
-<h3>新唐人视频 http://36.228.9.144</h3></div>
+
+<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/souye </h2></div>	
+
+<h3>免翻视频 http://36.228.9.144</h3>
  
  <table>
 <tr>
