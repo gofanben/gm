@@ -22,11 +22,11 @@
 
 <table>
 <tr>
-<td><img src="https://github.com/gofanben/gm/blob/master/whfy-img/GettyImages-1195312273-600x400.jpg" width="800"  border="0" alt=""></a></td>
+<td><img src="https://github.com/gofanben/gm/blob/master/whfy-img/GettyImages-1195312273-600x400.jpg" width="640"  border="0" alt=""></a></td>
  </tr>
  
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true">武汉肺炎——新型冠状病毒爆发.html(双击右键,另存文件)</a></center></td>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center>武汉肺炎——新型冠状病毒爆发.html  (双击右键,另存文件)</a></center></td>
 </tr> 	
 </table>	
 
