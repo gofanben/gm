@@ -24,8 +24,9 @@
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
-<table>
- 
+<table>武汉肺炎——新型冠状病毒爆发
+<tr><td width=900><h3><b><a href="https://git.io/whfy-1">➤ 武汉肺炎——新型冠状病毒爆发</a></b></h3></tr>
+</td> 
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/ls02">➤ 热门時事、评论</a></b></h3></tr>
