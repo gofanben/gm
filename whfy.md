@@ -41,13 +41,16 @@
 <tr>
 <td><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1147481.html?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2nf1147481.jpg" width="440"  border="0" alt=""></a></td>
 
+<tr>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true">全球要闻.html(双击右键,另存文件)</a></center></td>
+</table>
+
+<table>
+<tr>
 <td><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2020-01-25_150201.jpg" width="440"  border="0" alt=""></a></td>
  </tr>
 
 <tr>
-<td><center><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1147481.html?raw=true">大法徒的故事.html(点击右键,另存新档)</a></center></td>
-
- <td><center><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)</a></center></td>
-
+ <td><center><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)(双击右键,另存文件)</a></center></td>
 </tr>
 </table>
