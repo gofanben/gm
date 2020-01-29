@@ -22,7 +22,7 @@
 
 <table>
 <tr>
-<td><img src="https://github.com/gofanben/gm/blob/master/whfy-img/GettyImages-1195312273-600x400.jpg" width="440"  border="0" alt=""></a></td>
+<td><img src="https://github.com/gofanben/gm/blob/master/whfy-img/GettyImages-1195312273-600x400.jpg" width="800"  border="0" alt=""></a></td>
  </tr>
  
 <tr>
