@@ -1,6 +1,6 @@
 <h1 align="center"><b><a href="https://github.com/gofanben/gm/blob/master/mp4/zfzxPalV32.mp4?raw=true">“天安门自焚”真相</a></b></h1>
  
- <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>	
+
 
 <div align=center><h1>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/zfsan </h1>
 
@@ -18,6 +18,8 @@
 </tr>
   </table> 
 
+ <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>	
+ 
 + <a href='https://github.com/gofanben/gm/blob/master/mp4/ccs05.mp4?raw=true'>视频：《上苍为何落泪》纪念长春305插播壮举</a>
 + <a href='https://github.com/gofanben/gm/blob/master/mp4/CQSD-1s.mp4?raw=true'>【传奇时代】永恒的电波（上)</a>
 + <a href='https://github.com/gofanben/gm/blob/master/mp4/CQSD-2s.mp4?raw=true'>【传奇时代】永恒的电波（下)</a>
