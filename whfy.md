@@ -5,8 +5,6 @@
 	
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
-<h1><b>大纪元每日新闻</a></b></h1></div>
-
 <table>
 <tr>
  <td>
