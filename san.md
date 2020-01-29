@@ -2,10 +2,14 @@
  
  <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
 
+<div align=center><h1>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/zfsan </h1></div>	
+
+<h2>免翻视频 http://36.228.14.30</h2>
+
 <table>
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上→免翻视频 IPhttp://220.141.123.251 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上→免翻视频 IP http://36.228.14.30 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
