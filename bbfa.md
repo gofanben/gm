@@ -17,7 +17,7 @@
 </tr>
   </table> 
 
-<a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
+<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
 
  <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h1></div>
 
