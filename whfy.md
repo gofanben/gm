@@ -51,6 +51,6 @@
  </tr>
 
 <tr>
- <td><center><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)(双击右键,另存文件)</a></center></td>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)(双击右键,另存文件)</a></center></td>
 </tr>
 </table>
