@@ -40,7 +40,7 @@
 </tr> 
  
 <tr>
-<td><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1147481.html?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2nf1147481.jpg" width="440"  border="0" alt=""></a></td>
+<td><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1147481.html?raw=true"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/GettyImages-1195290556-600x400.jpg" width="800"  border="0" alt=""></a></td>
 
 <tr>
 <td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true">全球要闻.html(双击右键,另存文件)(手机-下载连结)</a></center></td>
@@ -48,7 +48,7 @@
 
 <table>
 <tr>
-<td><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2020-01-25_150201.jpg" width="440"  border="0" alt=""></a></td>
+<td><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2020-01-25_150201.jpg" width="800"  border="0" alt=""></a></td>
  </tr>
 
 <tr>
