@@ -32,7 +32,7 @@
 
 <table>
 <tr>
-<td ><a href="https://github.com/awwkk/usdom/blob/master/dong/nf4514-1.html?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/1nf4514-1.jpg" width="440"  border="0" alt=""></a></td>
+<td ><a href="https://github.com/awwkk/usdom/blob/master/dong/nf4514-1.html?raw=true" width=800><img src="https://github.com/awwkk/usdom/blob/master/img/1nf4514-1.jpg" width="440"  border="0" alt=""></a></td>
 </tr>
 	
 <tr>
