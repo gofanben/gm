@@ -19,6 +19,7 @@
  
 <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
 
+<div align=center>
 <table>
 <tr>
 <td><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1358885.html?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/nf1358885-4.jpg" width="440"  border="0" alt=""></a></td>
@@ -54,3 +55,4 @@
  <td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)(双击右键,另存文件)</a></center></td>
 </tr>
 </table>
+</div>
