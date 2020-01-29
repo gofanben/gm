@@ -3,7 +3,7 @@
 <IMG SRC="img/mmnbg56.jpg" width=880>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/jxdodo </h2></div>	
 
-<h3>免翻视频 http://220.141.123.251</h3>
+<h3>免翻视频 http://36.228.14.30</h3>
  
  
 <table>
