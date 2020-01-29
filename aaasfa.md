@@ -2,7 +2,7 @@
 <IMG SRC="img-2/ae054.jpg" width=880>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/pamja </h2></div>	
 
-<h3>免翻视频 http://220.141.123.251</h3>
+<h3>免翻视频 http://36.228.14.30</h3>
  
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
