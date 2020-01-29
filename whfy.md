@@ -36,14 +36,14 @@
 </tr>
 	
 <tr>
- <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true">每日新闻-大头条集锦.html(双击右键,另存文件)</a></center></td>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true">每日新闻-大头条集锦.html(双击右键,另存文件)(手机-下载连结)</a></center></td>
 </tr> 
  
 <tr>
 <td><a href="https://github.com/awwkk/usdom/blob/master/dong/nf1147481.html?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2nf1147481.jpg" width="440"  border="0" alt=""></a></td>
 
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true">全球要闻.html(双击右键,另存文件)</a></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true">全球要闻.html(双击右键,另存文件)(手机-下载连结)</a></center></td>
 </table>
 
 <table>
@@ -52,7 +52,7 @@
  </tr>
 
 <tr>
- <td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(点击右键,另存新档)(双击右键,另存文件)</a></center></td>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true">武汉肺炎真相.mp4(双击右键,另存文件)(手机-下载连结)</a></center></td>
 </tr>
 </table>
 </div>
