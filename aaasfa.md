@@ -22,7 +22,7 @@
 </tr>
   </table> 
 
-<a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
+<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
 
 <a name=list><b>目錄</b></p>
 <table>
