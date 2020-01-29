@@ -1,10 +1,10 @@
 <h1 align="center"><b><a href="https://github.com/gofanben/gm/blob/master/mp4/zfzxPalV32.mp4?raw=true">“天安门自焚”真相</a></b></h1>
  
- <a href=https://git.io/souye><h6 align="right">回首頁</h6></a>
+ <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a>
 
-<div align=center><h1>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/zfsan </h1></div>	
+<div align=center><h1>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/zfsan </h1>
 
-<h2>免翻视频 http://36.228.14.30</h2>
+<h2>免翻视频 http://36.228.14.30</h2></div>	
 
 <table>
 <tr>
