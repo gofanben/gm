@@ -34,7 +34,9 @@ https://git.io/swspip</h1></div>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
 </table>
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
+
+<div align=center><h1><a href="https://git.io/whfy-1">大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h1></a></div>
 
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
 <a href =#b>九字真言小故事：不怕瘟疫的人 (置頂)</a><br>
