@@ -24,8 +24,8 @@ https://git.io/swspip</h1></div>
 <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
 
 
-<a href =#b>2.九字真言小故事：不怕瘟疫的人<br> 置頂
-<a href =#a>1.疫情到来如何自救<br> 置頂
+<a href =#b>2.九字真言小故事：不怕瘟疫的人 (置頂)<br>
+<a href =#a>1.疫情到来如何自救 (置頂)<br>
   
 <hr><a name=a>
 <h1 align="center"><b>疫情到来如何自救</b></h1>  
