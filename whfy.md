@@ -17,7 +17,9 @@
 </tr>
   </table> 
  
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
+
+<div align=center><h1><a href="https://github.com/gofanben/gm/blob/master/zijiu.md">武汉人、湖北人、中国人如何自救？</h1></a></div>
 
 <div align=center><h1><b>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</a></b></h1></div></div>
 
