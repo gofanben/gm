@@ -175,7 +175,7 @@ http://www.minghui.org/mh/articles/2020/1/24/再一次的隐瞒和欺骗-399891.
 <h1 align="center"><b>抵抗瘟疫 这篇网文给你新思路！</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/GettyImages-1195315539-600x400.jpg" width=600></div>
-
+<div align="center">武汉封城，出现物资匮乏、抢购。（Getty Images）</div><p>
 【大纪元2020年01月27日讯】神秘肺炎来势汹汹，据英国帝国理工学院公共卫生专家尼尔·弗格森教授分析，全球感染者或已达10万人，大部分在武汉。
 
 自1月23日封城后，武汉市民的命运牵动国内外华人，善良的人们向武汉民众送出了许多祝福和抗瘟疫建议，纷纷谴责中共当局草菅人命。
