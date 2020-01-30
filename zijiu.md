@@ -1,7 +1,7 @@
 <a name=top>
   
 <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=800></a>
-<h1>点击视频 http://114.43.38.167</h1>
+  <h1>点击视频 http://114.43.38.167</h1></div>
  
 <h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
@@ -25,7 +25,7 @@ https://git.io/swspip</h1>
 
 
 <a href =#2>2.中共官员变换护照身份 逃避人权法案制裁<br>
-<a href =#1>1.上海两会 访民到举报点投递材料 多人被抓<br>
+<a href =#1>1.疫情到来如何自救<br>
   
 <hr><a name=1>
 <h1 align="center"><b>疫情到来如何自救</b></h1>  
