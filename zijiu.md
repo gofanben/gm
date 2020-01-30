@@ -43,7 +43,7 @@ https://git.io/swspip</h1></div>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
-<a href =#b>九字真言小故事：不怕瘟疫的人 (置頂)</a><br>
+<a href =#b>不怕瘟疫的人 (置頂)</a><br>
 
 <a href =#11>11.大难“三退”保平安 “九字”吉言是金方</a><br>
 <a href =#10>10.治疗瘟疫的良方</a><br>
