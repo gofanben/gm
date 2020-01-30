@@ -25,19 +25,19 @@
 
 <table>
 <tr>
-<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</h2></b></a></center></td>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </tr> 	
 </table>	
 
 <table>
 <tr>
- <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</h2></b></a></center></td>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </tr>
 </table>
 
 <table>
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</h2></b></a></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </table>
 
 <table>
@@ -46,7 +46,7 @@
  </tr>
 
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true"><div align=center><h2><b>武汉肺炎真相.mp4 (双击右键,另存文件) (手机-下载连结)</h2></b></a></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true"><div align=center><h2><b>武汉肺炎真相.mp4 (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </tr>
 </table>
 
