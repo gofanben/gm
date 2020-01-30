@@ -36,7 +36,11 @@ https://git.io/swspip</h1></div>
 </table>
 <div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
 
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
+
 <div align=center><h1><a href="https://git.io/whfy-1">大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h1></a></div>
+
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
 <a href =#b>九字真言小故事：不怕瘟疫的人 (置頂)</a><br>
