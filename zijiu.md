@@ -35,8 +35,8 @@ https://git.io/swspip</h1></div>
 
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
 <a href =#b>九字真言小故事：不怕瘟疫的人 (置頂</a><br>
-<a href =#2>疫情如火　中共草菅人命</a> 
-<a href =#1>再一次的隐瞒和欺骗</a><br>
+<a href =#2>疫情如火　中共草菅人命</a><br> 
+<a href =#1>再一次的隐瞒和欺骗</a><br><br>
 <hr><a name=a>
 <h1 align="center"><b>疫情到来如何自救</b></h1>  
 
