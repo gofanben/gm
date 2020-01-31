@@ -36,6 +36,9 @@ https://git.io/swspip</h1>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://git.io/opopop  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
 </table>
+
+<div align="center"><a href="http://114.43.38.167"><IMG SRC="please_fq.jpg.jpg" width=800></a></div>
+ 
 <div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
