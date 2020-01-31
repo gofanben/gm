@@ -1054,7 +1054,7 @@ http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患�
 
 <h1 align="center"><b>相声表演者死里逃生的神奇故事</b></h1>
 
-<div align="center"><img src="https://github.com/gofanben/gm/blob/master/200129liangsm01s.jpg" width=600></div>
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/200129liangsm01s.jpg" width=600></div>
 <div align="center>"电影《归途》富商扮演者梁圣明。</div><p>
 
 【人民报消息】电影《归途》根据真人真事改编，讲述一位如日中天的中国大陆电影明星，在生命最后几十天通过修炼法轮功绝处逢生的故事。影片在加拿大、美国、韩国、台湾等地公映，好评如潮。
