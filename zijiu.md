@@ -1,6 +1,6 @@
- <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
-
 <a name=top>
+
+<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
  
 <h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
@@ -917,7 +917,7 @@ Josh McDowell《铁证待判》
 
 <h1 align="center"><b>广播稿：疫情凶猛，自保有妙招</b></h1>
 
-<div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/020.01.29-CClvn67g0mI.m4a?raw=true"><h2>广播稿：疫情凶猛，自保有妙招 下载</h2></a></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/020.01.29-CClvn67g0mI.m4a?raw=true">广播稿：疫情凶猛，自保有妙招 下载</a></h2></div>
 
 【明慧网二零二零年一月二十九日】朋友您好！首先，真诚希望您和家人新的一年健康、平安！
 
