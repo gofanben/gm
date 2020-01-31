@@ -1,3 +1,5 @@
+<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/djy-wh-1.jpg" width=800></div>
+
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-2.jpg" width=800>
 <div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/whfy-1 </h2></div>	
 
