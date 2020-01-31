@@ -29,7 +29,9 @@
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
-<div align=center><h1><b>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</a></b></h1></div></div>
+<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/djy-wh-1.jpg" width=800></div>
+	
+<!--<div align=center><h1><b>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</a></b></h1></div></div>  -->
 
 <table>
 <tr>
