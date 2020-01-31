@@ -17,7 +17,7 @@
 </tr>
   </table> 
  
- <div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/please_fq_2.jpg" width=800></a></div>
+ <div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/please_fq-1.jpg" width=800></a></div>
 	
 <div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
 
