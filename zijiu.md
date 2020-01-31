@@ -43,7 +43,7 @@ https://git.io/swspip</h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
-<a href =#e>广播：疫情凶猛，自保有妙招</a><br>
+<a href =#e>广播：疫情凶猛，自保有妙招(置顶)</a><br>
 <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)</a><br>
 <a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置頂)</a><br>
 <a href =#b>不怕瘟疫的人 (置頂)</a><br>
@@ -913,7 +913,7 @@ Josh McDowell《铁证待判》
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=1>
+<hr><a name=e>
 
 <h1 align="center"><b>广播稿：疫情凶猛，自保有妙招</b></h1>
 
