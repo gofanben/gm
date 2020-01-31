@@ -1,5 +1,5 @@
 <a name=top>
-
+<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-2.jpg" width=800></a></div>
  
 <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
  
