@@ -54,7 +54,7 @@ https://git.io/swspip</h1>
 <a href =#b>不怕瘟疫的人 (置頂)</a><br>
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
 
-<a href =#14>14.武汉肺炎真相</a><br>
+<a href =#14>14.九字真言小故事：白血病患者的痊愈</a><br>
 <a href =#13>13.【文史】瘟疫肆虐 为何有人能避开它？</a><br>
 <a href =#12>12.瘟疫使者不敢到谁家散播瘟疫</a><br>
 <a href =#11>11.大难“三退”保平安 “九字”吉言是金方</a><br>
@@ -1023,7 +1023,7 @@ http://www.minghui.org/mh/articles/2020/1/21/真相语音电话-武汉肺炎真�
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<hr><a name=1>
+<hr><a name=14>
 
 <h1 align="center"><b>九字真言小故事：白血病患者的痊愈</b></h1>
 
