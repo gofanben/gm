@@ -891,7 +891,7 @@ Josh McDowell《铁证待判》
 
 下载网址 ➤ https://www.lanzous.com/i8xpqda
 
-<h2><b>炼 功 音 乐</b></h2>
+<div align="center"><h2><b>炼 功 音 乐</b></h2></div>
 
 第一套功法	9分14秒（13MB）下载 ➤ https://github.com/gofanben/gm/blob/master/mp3/exercise1_9min14s.mp3?raw=true
 
