@@ -996,7 +996,7 @@ http://www.minghui.org/mh/articles/2020/1/29/广播稿-疫情凶猛，自保有�
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-hr><a name=f>
+<hr><a name=f>
 
 <h1 align="center"><b>武汉肺炎真相</b></h1>
 
