@@ -1,7 +1,6 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/djy-wh-1-2.jpg" width=800></div>
 
-<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-3.jpg" width=800>
-<div align=center><h2>请收藏本网址，连上即时IP<br>   https://git.io/whfy-1 </h2></div>	
+<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-3.jpg" width=800></a></div>	
 
 <h3>免翻视频 http://36.228.14.30</h3>
 	
