@@ -42,6 +42,7 @@ https://git.io/swspip</h1></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
+<a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)</a><br>
 <a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置頂)</a><br>
 <a href =#b>不怕瘟疫的人 (置頂)</a><br>
 <a href =#a>疫情到来如何自救 (置頂)</a><br>
@@ -873,5 +874,23 @@ Josh McDowell《铁证待判》
 《德育古鉴》之“孝顺类十一”
 
 文章来源 : https://www.epochtimes.com/gb/18/7/21/n10580480.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=d>
+
+<h1 align="center"><b>疫情凶猛 炼五套功法 除恶疫</b></h1>
+
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/bai_du_12345.jpg" width=880></div>
+<div align="center">《五套功法视频》大陆疫情凶猛，待在家里的时间很长，如果人人都能够炼五套功法，那就太好了，百度云盘二维码，只要是大陆的ip都可以下载。</div><p>
+
+下载网址 ➤ https://pan.baidu.com/s/1Ku3p3BCP48w14PHiD0ig7g
+
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/qr_1580431765043.jpg" width=250></div>
+<div align="center">藍奏雲網盤</div><p>
+
+下载网址 ➤ https://www.lanzous.com/i8xpqda
+
+
 
 <a href=#top><h6 align="right">回上方</h6></a>
