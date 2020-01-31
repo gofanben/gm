@@ -4,8 +4,6 @@
 
 <h3>免翻视频 最新IP http://36.228.14.30</h3></div>
 	
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
-
 <table>
 <tr>
  <td>
@@ -20,6 +18,10 @@
  
  <div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/please_fq-1.jpg" width=800></a></div>
 	
+<div align="center"><h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
+
 <div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
