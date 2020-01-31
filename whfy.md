@@ -1,8 +1,8 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/djy-wh-1-2.jpg" width=800></div>
 
-<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-3.jpg" width=800></a></div>	
+<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-3.jpg" width=800></a>	
 
-<h3>免翻视频 http://36.228.14.30</h3>
+<h3>免翻视频 最新IP http://36.228.14.30</h3></div>
 	
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
