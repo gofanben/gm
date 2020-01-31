@@ -893,10 +893,15 @@ Josh McDowell《铁证待判》
 
 <div align="center"><h2><b>炼 功 音 乐</b></h2></div>
 
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/bai_du_12345_music.jpg" width=250></div>
+<div align="center">百度网盘　第一～五套功法炼功音乐</div><p>
+
+百度网盘 第一～五套功法炼功音乐 下载网址 ➤ https://pan.baidu.com/s/11_bKJ77JGgTFZvGb--reGg
+
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/qr-12345-music.jpg" width=250></div>
 <div align="center">蓝奏云网盘　第一～五套功法炼功音乐</div><p>
 
-第一～五套功法炼功音乐　下载网址 ➤ https://www.lanzous.com/b00naglfg
+蓝奏云网盘 第一～五套功法炼功音乐　下载网址 ➤ https://www.lanzous.com/b00naglfg
 
 第一套功法	9分14秒（13MB）下载 ➤ https://github.com/gofanben/gm/blob/master/mp3/exercise1_9min14s.mp3?raw=true
 
