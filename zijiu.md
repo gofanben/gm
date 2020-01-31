@@ -884,12 +884,12 @@ Josh McDowell《铁证待判》
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/bai_du_12345.jpg" width=880></div>
 <div align="center">《五套功法教功视频》大陆疫情凶猛，待在家里的时间很长，如果人人都能够炼五套功法，那就太好了，百度云盘二维码，只要是大陆的ip都可以下载。</div><p>
 
-下载网址 ➤ https://pan.baidu.com/s/1Ku3p3BCP48w14PHiD0ig7g
+百度网盘 《五套功法教功视频》 下载网址 ➤ https://pan.baidu.com/s/1Ku3p3BCP48w14PHiD0ig7g
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/qr_1580431765043.jpg" width=250></div>
 <div align="center">蓝奏云网盘 《五套功法教功视频》</div><p>
 
-下载网址 ➤ https://www.lanzous.com/i8xpqda
+蓝奏云网盘 《五套功法教功视频》下载网址 ➤ https://www.lanzous.com/i8xpqda
 
 <div align="center"><h2><b>炼 功 音 乐</b></h2></div>
 
