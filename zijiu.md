@@ -1,5 +1,5 @@
 <a name=top>
-<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+
  
 <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
  
@@ -37,7 +37,7 @@ https://git.io/swspip</h1>
 </tr>
 </table>
 
-<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq.jpg" width=800></a></div>
+<div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq.jpg" width=800></a></div>
  
 <div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
 
@@ -47,6 +47,8 @@ https://git.io/swspip</h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
+<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>
+ 
 <a href =#e>广播：疫情凶猛，自保有妙招(置顶)</a><br>
 <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)</a><br>
 <a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置頂)</a><br>
