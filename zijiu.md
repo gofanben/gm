@@ -936,7 +936,7 @@ Josh McDowell《铁证待判》
 
 <h1 align="center"><b>广播稿：疫情凶猛，自保有妙招</b></h1>
 
-<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/020.01.29-CClvn67g0mI.m4a?raw=true">下载 ➤ m4a 广播聲音擋：疫情凶猛，自保有妙招</a></h2></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/20200131WuHan-mp3.mp3?raw=true">下载 ➤ mp3 广播聲音擋：疫情凶猛，自保有妙招</a></h2></div>
 
 【明慧网二零二零年一月二十九日】朋友您好！首先，真诚希望您和家人新的一年健康、平安！
 
