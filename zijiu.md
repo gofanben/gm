@@ -47,7 +47,7 @@ https://git.io/swspip</h1>
 
 <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>
 
-<a href =#g>广播：平安度过劫难的护身符</a><br>
+<a href =#g>广播：平安度过劫难的护身符(置顶)</a><br>
 <a href =#f>广播：武汉肺炎真相(置顶)</a><br>
 <a href =#e>广播：疫情凶猛，自保有妙招(置顶)</a><br>
 <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)</a><br>
