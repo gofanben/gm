@@ -1547,4 +1547,6 @@ http://big5.minghui.org/mh/articles/2020/2/2/《大明劫》中的大疫之劫-4
 
 谢谢您的收听！
 
+网址转载： http://www.minghui.org/mh/articles/2020/2/2/真相语音电话-平安度过劫难的护身符-400626.html
+
 <a href=#top><h6 align="right">回上方</h6></a>
