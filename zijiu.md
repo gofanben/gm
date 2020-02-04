@@ -2213,7 +2213,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 逾越节在以色列是一个最重大的节日，跟我们中国人过年一样。那么以色列人为什么如此重视逾越节，这个节日有着什么样的渊源呢？
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/1580225023274.webp" width=600></div>
-<div align="center"神是慈悲的(图片：pixabay)</div><p>
+<div align="center">神是慈悲的(图片：pixabay)</div><p>
 
 在《圣经·旧约·出谷记》中记述了公元前十三世纪前后，摩西为了把沦为奴隶的以色列人拯救出埃及、回归故土。在历史故事中提到了“埃及十灾”。今天要跟大家讲的是最后的一灾——大瘟疫。
 
