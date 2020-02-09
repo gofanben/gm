@@ -463,24 +463,34 @@
 有人可能说“自己心中退党就算退了，不必声明”；还有人认为“自己多年没交党费了，就算自动退党了”；或者认为“年龄大了，已经自动退团，退队了”。但这都不能抹掉加入党、团、队时举着右手宣誓而被打上的印记，无法“解除毒誓”。而天灭中共时，没有解除这个毒誓的人，就将成为中共的陪葬。 </p> 
 只有采取公开的方式退出，有行为的表示，才能解除这个“毒誓”。神看人心，只要真心声明“三退”，用真名、化名、小名皆可。 </p> 
  
-<table>
+<<table>
  <tr><td width=880>
-  <h3 align="center"><a href="http://">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3></p>
-* 请点击退党网站三退” https://git.io/tv123 </p>
-* 用海外邮箱发表声明 tuidang@epochtimes.com </p>
-* 用破网软件登录 http://tuidang.epochtimes.com </p>
-* 退党电话：001-416-361-9895    001-888-892-8757    </p>
-* 退党传真：001-510-372-0176    001-702-248-0599 </p>
-* 可先将声明张贴在适当的公共场所，以后再上网。 </p>
-◆提示：由于恐惧，中共对退党热线做了手脚，电话接通后录音告之：这是个空号，请不要打这个电话。请别上当、不要挂电话，很快能接通，请相互转告。 </p>
-◆ <a href="https://git.io/op"> 如何上网办 “ 三退 ”，请点击翻牆网站  https://git.io/op  下载 { 翻牆软件 },找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</a></td>
+  <h3 align="center"><a href="http://">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3>
  </p>
+* (1)用海外邮箱发表声明 tuidang@epochtimes.com </p>
+* (2)用破网软件登录 http://tuidang.epochtimes.com </p>
+* (3)美国热线电话:  <br> 
+ 001-702-873-1734 <br>     
+ 001-866-697-6570 <br>
+ 001-858-609-9088<br>      
+ 001-858-609-9099<br> 
+ 001-888-892-8757</p>
+(4)加拿大热线电话:<br> 
+001-416-361-9895<br>
+001-514-342-1023<br>
+001-604-276-2569</p>
+(5)退党传真：<br>
+001-510-372-0176<br>
+001-201-625-6301</p>
+(6)各地退党团队服务中心</p>
+(7)各地大纪元报社</p>
+(8) 各地法轮功学员</p>
+* <b>可先将声明张贴在适当的公共场所，以后再上网。</b> </p>
+◆提示：由于恐惧，中共对退党热线做了手脚，电话接通后录音告之：这是个空号，请不要打这个电话。请别上当、不要挂电话，很快能接通，请相互转告。 </p>
+◆您可能说我思想中早退了，我也不交党费了。那都不算数。因为在那个血旗面前向天发毒誓时，您是说把一生、把生命都献给邪党了。所以只有采取公开的方式退出，有行为的表示，才能除掉这么大的毒誓，才能在天灭中共的时候保平安！ </p>
 </td>
  </tr>
 </table>
-
-  </td></tr>
- </table>
  </p>
  
  <IMG SRC="img/b_simple_6_0M.png" width=880>
@@ -530,13 +540,13 @@
  </p>
 
 <div align="center">
-  <a href="https://git.io/zbdodo"><IMG SRC="img/kkoyu65.jpg" width=880></a></div>
+  <a href="https://git.io/jxdodo"><IMG SRC="img/kkoyu65.jpg" width=880></a></div>
 </p>
 
 <div align="center">
-  <a href="https://github.com/bcdz/true01/blob/master/aaasfa.md"><IMG SRC="img/hhhtt5.jpg" width=880></a></div>
+  <a href="https://git.io/pamja"><IMG SRC="img/hhhtt5.jpg" width=880></a></div>
 </p>
 
-<div align="center">  <IMG SRC="img/img3b790.jpg" width=880></div>
+<div align="center"> <a href="https://git.io/souye"> <IMG SRC="img/img3b790.jpg" width=880></div>
 
 </p>
