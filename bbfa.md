@@ -302,7 +302,7 @@
 <table>
  <tr>
   <td>
- <a href="https://git.io/op"> 下载翻墙软件 https://git.io/op 浏览明慧网 www.minghui.org   </a>
+ <a href="https://git.io/opopop"> 下载翻墙软件 https://git.io/opopop 浏览明慧网 www.minghui.org   </a>
  </td></tr>
   </table>
  
