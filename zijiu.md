@@ -61,8 +61,8 @@ https://git.io/swspip</h1>
 
 <div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>
 
-<a href =#i>真相语音电话：瘟疫中的千金良方（更新）</a><br>
-<a href =#h>一位武汉肺炎患者的获救经历</a><br>
+<a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)</a><br>
+<a href =#h>一位武汉肺炎患者的获救经历(置顶)</a><br>
 <a href =#g>广播：平安度过劫难的护身符(置顶)</a><br>
 <a href =#f>广播：武汉肺炎真相(置顶)</a><br>
 <a href =#e>广播：疫情凶猛，自保有妙招(置顶)</a><br>
@@ -2863,7 +2863,5 @@ http://www.minghui.org/mh/articles/2020/2/9/传诵“大法好”-他人平安�
 
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千金良方（更新）-401102.html
-
-
 
 <a href=#top><h6 align="right">回上方</h6></a>
