@@ -71,6 +71,7 @@ https://git.io/swspip</h1>
 <a href =#b>不怕瘟疫的人 (置顶)</a><br>
 <a href =#a>疫情到来如何自救 (置顶)</a><br>
 
+<a href =#49>49.修德避瘟疫 选择定祸福</a><br>
 <a href =#49>49.传诵“大法好”　他人平安、自己也平安</a><br>
 <a href =#48>48.武汉肺炎 同学念九字吉言两日得愈</a><br>
 <a href =#47>47.警察昨天喊着要抓我　今天连连说谢谢我</a><br>
@@ -2871,6 +2872,5 @@ http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千�
 <h1 align="center"><b>修德避瘟疫 选择定祸福</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/xdbwy.jpg" width=600></div>
-<div align="center">XXX</div><p>
 
 <a href=#top><h6 align="right">回上方</h6></a>
