@@ -2865,3 +2865,12 @@ http://www.minghui.org/mh/articles/2020/2/9/传诵“大法好”-他人平安�
 http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千金良方（更新）-401102.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
+
+<hr><a name=50>
+
+<h1 align="center"><b>修德避瘟疫 选择定祸福</b></h1>
+
+<div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/xdbwy.jpg" width=600></div>
+<div align="center">XXX</div><p>
+
+<a href=#top><h6 align="right">回上方</h6></a>
