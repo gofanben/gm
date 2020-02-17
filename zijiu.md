@@ -6,7 +6,7 @@
 <h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
 
-  <h1>点击视频 http://36.228.14.248</h1></div>
+  <h1>点击视频 http://36.228.40.87</h1></div>
  
 <table>
  <tr><td width=880>
@@ -40,7 +40,7 @@ https://git.io/swspip</h1>
 <table>
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://36.228.14.248 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://36.228.40.87 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
