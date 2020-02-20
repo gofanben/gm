@@ -4,11 +4,11 @@
 
 <div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
 
-<div align="center"><a href="http://61.228.182.172/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
+<div align="center"><a href="http://61.228.178.200/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
 <h1>当天可用明见网ip 
 
-http://61.228.182.172/69
+http://61.228.185.249/69
 
-http://61.228.214.33/69</h1>
+http://61.228.178.200/69</h1>
  
 
