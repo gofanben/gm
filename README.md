@@ -27,6 +27,8 @@
 <table>
  <tr><td width=900><h3><b><a href="https://git.io/whfy-2">➤ 武汉人、湖北人、中国人如何自救？</a></b></h3></tr>
 </td> 
+<tr><td width=900><h3><b><a href="https://git.io/you995995">➤ 相生相克 毒疫有克星</a></b></h3></tr>
+</td> 
 <tr><td width=900><h3><b><a href="https://git.io/whfy-1">➤ 武汉肺炎——新型冠状病毒爆发</a></b></h3></tr>
 </td> 
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
