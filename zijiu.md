@@ -1,7 +1,7 @@
 <a name=top>
-<div align="center"><a href="http://220.141.130.83"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+<div align="center"><a href="http://36.228.47.69"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
  
-<div align="center"><a href="http://220.141.130.83"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
+<div align="center"><a href="http://36.228.47.69"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>
  
 <h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
