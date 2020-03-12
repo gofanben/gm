@@ -60,7 +60,7 @@ https://git.io/swspip</h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
-<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>
+<!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>-->
  
 <a href =#j>【特稿】武汉病毒针对共产党而来</a><br>
 <a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)</a><br>
