@@ -1,3 +1,5 @@
+<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/.jpg" width=800></a>
+
 <h1 align="center"><b><a href="https://github.com/gofanben/gm/blob/master/mp4/zfzxPalV32.mp4?raw=true">“天安门自焚”真相</a></b></h1>
  
 
