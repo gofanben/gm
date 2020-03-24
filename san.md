@@ -2,7 +2,7 @@
 
 <div align=center><h1>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/zfsan </h1>
 
-<h2>免翻视频 http://61.228.180.36/300</h2></div>	
+<h2>免翻视频 http://61.228.176.197/300</h2></div>	
 
 <table>
 <tr>
