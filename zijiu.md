@@ -1,11 +1,11 @@
 <div align="center"><a href="http://61.228.178.178/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
  
-<!--<div align="center"><a href="http://61.228.178.178/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
+<!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
  
 <div align="center"><h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
 
-  <h1>点击视频 http://61.228.183.183/300</h1></div>
+  <h1>点击视频 http://61.228.177.38/300</h1></div>
  
 <table>
  <tr><td width=880>
