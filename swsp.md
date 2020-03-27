@@ -7,8 +7,8 @@
 <div align="center"><a href="https://cmay198205.github.io/html"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
 <h1>当天可用明见网ip 
 
-http://61.228.177.229/69
+http://61.228.182.252/69
 
-http://61.228.179.137/69</h1>
+http://61.228.178.249/69</h1>
  
 
