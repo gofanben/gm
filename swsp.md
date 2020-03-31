@@ -7,9 +7,9 @@
 <div align="center"><a href="https://61.228.188.227/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
 <h1>当天可用明见网ip 
 
-http://61.228.188.227/69
+http://61.228.183.168/69
 
-http://61.228.184.213/69</h1>
+http://61.228.208.218/69</h1>
 
 <table>
 <tr> <td>
@@ -17,9 +17,9 @@ http://61.228.184.213/69</h1>
 存善守德的人会得到上天庇佑<br>
 请珍惜救助的手<br>
 做明智的选择保平安<br>
-https://is.gd/ogaavg
+https://is.gd/2x25XR
 
-重要选择美好人生(已办理过勿再重复)  https://is.gd/dkbYwV	<br></h2>
+重要选择美好人生(已办理过勿再重复)  https://is.gd/QPXr47	<br></h2>
 <td></tr>
 </table> 
  
