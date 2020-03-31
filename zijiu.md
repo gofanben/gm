@@ -1,11 +1,11 @@
-<div align="center"><a href="http://61.228.180.1/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+<div align="center"><a href="http://61.228.187.14/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
  
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
  
 <div align="center"><h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
 
-  <h1>点击视频 http://61.228.188.60/300</h1></div>
+  <h1>点击视频 http://61.228.187.14/300</h1></div>
  
 <table>
  <tr><td width=880>
@@ -44,7 +44,7 @@ https://is.gd/ogaavg
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.188.60/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.187.14/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
