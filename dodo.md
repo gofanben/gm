@@ -3,7 +3,7 @@
 <IMG SRC="img/mmnbg56.jpg" width=880>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/jxdodo </h2></div>	
 
-<h3>免翻视频 http://61.228.187.159/300</h3>
+<h3>免翻视频 http://61.228.182.5/300</h3>
  
  
 <table>
@@ -13,14 +13,14 @@
 存善守德的人会得到上天庇佑<br>
 请珍惜救助的手<br>
 做明智的选择保平安<br>
-https://is.gd/ogaavg
+https://is.gd/diDHX5
 
 重要选择美好人生(已办理过勿再重复)  http://388.st.anuba.cl/st/	<br></h2>
 <td></tr>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.187.159/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.182.5/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
