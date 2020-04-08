@@ -10,9 +10,8 @@
 存善守德的人会得到上天庇佑<br>
 请珍惜救助的手<br>
 做明智的选择保平安<br>
-https://is.gd/0CKkAe
 
-重要选择美好人生(已办理过勿再重复)  http://38812.st.anuba.cl/st	<br></h2>
+重要选择美好人生(已办理过勿再重复)  http://31212.st.anuba.cl/st	<br></h2>
 <td></tr>
 
 <tr>
