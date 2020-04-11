@@ -5,7 +5,7 @@
 <div align="center"><h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://git.io/swspip</h1>
 
-  <h1>点击视频 http://61.228.185.21/300 </h1></div>
+  <h1>点击视频 http://61.228.189.45/300 </h1></div>
  
 <table>
  <tr><td width=880>
@@ -38,12 +38,12 @@ https://git.io/swspip</h1>
 请珍惜救助的手<br>
 做明智的选择保平安<br>
 
-重要选择美好人生(已办理过勿再重复)  http://563820.st.anuba.cl/st	<br></h2>
+重要选择美好人生(已办理过勿再重复)  http://5852.st.anuba.cl/st	<br></h2>
 <td></tr>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.185.21/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.189.45/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr>
 
 <tr>
@@ -62,6 +62,23 @@ https://git.io/swspip</h1>
 
 <div align=center><h1><a href="https://git.io/whfy-1">大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h1></a></div>
 
+<table>
+<tr>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+</tr>
+
+<tr>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+
+
+<tr>
+<td><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2020-01-25_150201.jpg" width="800"  border="0" alt=""></a></td>
+ </tr>
+
+<tr>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true"><div align=center><h2><b>武汉肺炎真相.mp4 (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+</tr>
+</table>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
 <!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>-->
