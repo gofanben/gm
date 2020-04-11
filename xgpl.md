@@ -1,7 +1,7 @@
 <div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/swspip </h2></div>	
 
-<h2>免翻视频 http://61.228.185.21/300 </h2>
+<h2>免翻视频 http://61.228.189.45/300 </h2>
 
 <table>
 <tr> <td>
@@ -11,12 +11,12 @@
 请珍惜救助的手<br>
 做明智的选择保平安<br>
 
-重要选择美好人生(已办理过勿再重复)  http://887388.st.anuba.cl/st	<br></h2>
+重要选择美好人生(已办理过勿再重复)  http://9628.st.anuba.cl/st	<br></h2>
 <td></tr>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.185.21/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.189.45/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
