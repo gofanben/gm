@@ -63,21 +63,15 @@ https://git.io/swspip</h1>
 <div align=center><h1><a href="https://git.io/whfy-1">大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h1></a></div>
 
 <table>
+ <tr>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+</tr> 	
 <tr>
  <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </tr>
 
 <tr>
 <td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
-
-
-<tr>
-<td><a href="https://github.com/awwkk/usdom/blob/master/video/58885_360P.mp4?raw=true"><img src="https://github.com/awwkk/usdom/blob/master/img/2020-01-25_150201.jpg" width="800"  border="0" alt=""></a></td>
- </tr>
-
-<tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/58885_360P.mp4?raw=true"><div align=center><h2><b>武汉肺炎真相.mp4 (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
-</tr>
 </table>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
