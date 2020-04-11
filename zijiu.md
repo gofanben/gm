@@ -60,7 +60,7 @@ https://git.io/swspip</h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
-<h2>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h2>
+<div align="center"><h2>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h2></div>
 
 <table>
  <tr>
