@@ -2,7 +2,7 @@
 
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-3.jpg" width=800></a>	
 
-<h3>免翻视频 最新IP http://61.228.185.21/300 </h3></div>
+<h3>免翻视频 最新IP http://61.228.186.19/300 </h3></div>
 	
 <table>
 <tr> <td>
@@ -11,12 +11,12 @@
 请珍惜救助的手<br>
 做明智的选择保平安<br>
 
-重要选择美好人生(已办理过勿再重复)  http://883212.st.anuba.cl/st	<br></h2>
+重要选择美好人生(已办理过勿再重复)  http://1212.st.anuba.cl/st	<br></h2>
 <td></tr>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.185.21/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.186.19/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
