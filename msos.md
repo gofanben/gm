@@ -3,7 +3,7 @@
 <IMG SRC="img/kkkk2.jpg" width=880>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/jiuren </h2></div>	
 
-<h2>免翻视频 http://61.228.186.19/300 </h2>
+<h2>免翻视频 http://61.228.179.68/300 </h2>
 
 <table>
  
@@ -18,7 +18,7 @@
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.186.19/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.179.68/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr> 
 
 <tr>
