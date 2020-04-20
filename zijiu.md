@@ -48,7 +48,7 @@ https://bit.ly/3ezRQKo </h1>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/2RMhyRY  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
+ <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
 </table>
 
