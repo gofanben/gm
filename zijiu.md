@@ -5,7 +5,7 @@
 <div align="center"><h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
 https://bit.ly/3ezRQKo </h1>
 
-  <h1>点击视频 http://61.228.181.102/300 </h1></div>
+  <!--<h1>点击视频 http://61.228.181.102/300 </h1>--> </div>
  
 <table>
  <tr><td width=880>
@@ -41,10 +41,10 @@ https://bit.ly/3ezRQKo </h1>
 重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj <br></h2>
 <td></tr>
 
-<tr>
+<!--<tr>
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.181.102/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr>
+</tr>-->
 
 <tr>
  <td>
