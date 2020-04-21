@@ -56,7 +56,7 @@ https://bit.ly/3ezRQKo </h1>
  
 <div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq_2-1.jpg" width=800></a></div>
  
-<div align=center><h1><a href="https://git.io/souye">看更多真相</h1></a></div>
+<div align=center><h1><a href="https://bit.ly/2RQM1hX">看更多真相</h1></a></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
@@ -88,7 +88,7 @@ https://bit.ly/3ezRQKo </h1>
 <a href =#b>不怕瘟疫的人 (置顶)</a><br>
 <a href =#a>疫情到来如何自救 (置顶)</a><br>
 
-<a href =#63>63.【抗疫良方】中共病毒无药可治 她却绝处逢生</a><br>
+<a href =#63>63.【抗疫良方】中共病毒无药可治 她却绝处逢生(法国)</a><br>
 <a href =#62>62.武汉肺炎在我们家族失去了传染力</a><br>
 <a href =#61>61.家住武汉百步亭小区的亲戚武汉肺炎好了</a><br>
 <a href =#60>60.医院没看好的病　诚念“法轮大法好”好了</a><br>
@@ -3532,8 +3532,6 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 从这位炼法轮功的亲戚那里，塞维姆还了解到中共如何迫害法轮功，以及在此次疫情中隐瞒真相、导致瘟疫蔓延全球等等。她还说：“如果人们能做到诚实，并在这段艰难的时光中互相帮助，保持良好的道德风尚，这将很重要。我希望上帝会帮助大家。对于那些做了这个的（中共隐瞒疫情），这是对全世界人的种族灭绝，没有人性。”
 
 4月20日，这位亲戚又跟她通了话，了解她的情况。她说，她现在很好，甚至不愿回忆那段可怕的日子。而且，她已不再吃药，不再使用止痛药。电话中的她，听起来“活泼、健康，思维清晰”。
-
- https://github.com/gofanben/gm/raw/master/zijiu-img/aac356159b33a86ac7227152d4e0116a-600x400.jpg
 
 网址转载：https://www.epochtimes.com/gb/20/4/20/n12047472.htm
 
