@@ -2,16 +2,16 @@
 <h1>连播视频 点击ip http://118.165.32.43/300 <h1>
  
 
-<div align=center><h1><a href="https://bit.ly/2RQM1hX"> 看更多真相  </h1></a></div>
+<div align=center><h3><a href="https://bit.ly/2RQM1hX"> 看更多真相  </h3></a></div>
 
 <div align="center"><a href="http://61.231.167.124/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
-<h2>当天可用明见网ip 
+<h3>当天可用明见网ip </h3>
 
 http://61.231.167.124/69
 
 http://61.228.223.69/69
 
-为持续能看到真实信息，请記下明见网即时ip索取信箱：mingjianweb@gmail.com，並下载「无界浏览」与「自由门」「神州明见」等破网工具</h2>
+为持续能看到真实信息，请記下明见网即时ip索取信箱：mingjianweb@gmail.com，並下载「无界浏览」与「自由门」「神州明见」等破网工具
 
 
 
