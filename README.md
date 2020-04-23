@@ -2,7 +2,7 @@
 
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
-<h2>免翻视频IP http://61.228.179.18/300 </h2></div>
+<!--<h2>免翻视频IP http://61.228.179.18/300 </h2></div> -->
  
  <table>
  
@@ -15,10 +15,10 @@
 重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h2>
 <td></tr>
 
-<tr>
+<!--<tr>
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.179.18/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr> 
+</tr> -->
 
 <tr>
  <td>
@@ -39,8 +39,7 @@
 </td> 
 <tr><td width=900><h3><b><a href="https://git.io/you995995">➤ 相生相克 毒疫有克星</a></b></h3></tr>
 </td> 
-<tr><td width=900><h3><b><a href="https://git.io/whfy-1">➤ 武汉肺炎——新型冠状病毒爆发</a></b></h3></tr>
-</td> 
+
 <tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/ls02">➤ 热门時事、评论</a></b></h3></tr>
