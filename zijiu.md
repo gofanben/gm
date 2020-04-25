@@ -1,11 +1,14 @@
-<div align="center"><a href="http://61.228.181.102/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+<!--<div align="center"><a href="http://61.228.181.102/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>-->
  
+ 
+<div align="center"><h1>武汉人、湖北人、中国人如何自救？</h1></div>
+
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
  
-<div align="center"><h1>请收藏网址(新闻视频ip)  随时连上最新即时IP
-https://bit.ly/3ezRQKo </h1>
+<div align="center"><h3>请收藏网址(新闻视频)  随时连上最新即时IP
+https://bit.ly/3ezRQKo </h3>
 
-  <!--<h1>点击视频 http://61.228.181.102/300 </h1>--> </div>
+  <h1>点击视频 https://bit.ly/2VIs51L </h1> </div>
  
 <table>
  <tr><td width=880>
@@ -43,20 +46,22 @@ https://bit.ly/3ezRQKo </h1>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连免翻视频 IP https://bit.ly/2VIs51L </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
+ <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，<b>连免翻视频 IP https://bit.ly/2VIs51L </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
 </tr>
 
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
+ <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
 </table>
 
 <a name=top>
  
-<div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq_2-1.jpg" width=800></a></div>
- 
-<div align=center><h1><a href="https://bit.ly/2RQM1hX">看更多真相</h1></a></div>
+<!--<div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq_2-1.jpg" width=800></a></div>-->
+
+<div align=center><h3><a href="https://bit.ly/3asSXIA">请多传破网软件，使更多的人了解真相从而得救，这是给自己积福德。 https://bit.ly/3asSXIA </h3></a></div>
+
+<div align=center><h2><a href="https://bit.ly/2RQM1hX">看更多真相</h2></a></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
