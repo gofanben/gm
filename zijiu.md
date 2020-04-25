@@ -61,7 +61,7 @@ https://bit.ly/3ezRQKo </h3>
 
 <div align=center><h3><a href="https://bit.ly/3asSXIA">请多传破网软件，使更多的人了解真相从而得救，这是给自己积福德。 https://bit.ly/3asSXIA </h3></a></div>
 
-<div align=center><h2><a href="https://bit.ly/2RQM1hX">看更多真相</h2></a></div>
+<div align=center><h2><a href="https://bit.ly/2RQM1hX">看更多真相 https://bit.ly/2RQM1hX</h2></a></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
