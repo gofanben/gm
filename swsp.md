@@ -4,7 +4,7 @@
 
  网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
 
-<div align=center><a href="https://bit.ly/2RQM1hX"> 看更多真相 </a></div>
+<div align=center><a href="https://bit.ly/2RQM1hX"> 看更多真相 </a></div><p>
 
 <div align="center"><a href="http://61.228.191.226/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=640></a>
  
