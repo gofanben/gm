@@ -1,4 +1,4 @@
-<div align="center"><IMG SRC="zijiu/zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+<div align="center"><IMG SRC="zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
  
 <div align="center"><h1>武汉人、湖北人、中国人如何自救？</h1></div>
 
