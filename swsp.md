@@ -6,6 +6,7 @@
 <div align=center><a href="https://bit.ly/2RQM1hX"> 看更多真相 </a></div>
 
 <div align="center"><a href="http://61.228.191.226/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=800></a>
+ 
 当天可用明见网ip
 
 http://61.228.191.226/69
