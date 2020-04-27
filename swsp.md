@@ -1,6 +1,6 @@
 <div align="center"><a href="hhttp://61.228.184.95/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
 
-连播视频 点击ip hhttp://61.228.184.95/300
+连播视频 点击ip http://61.228.184.95/300
 
  网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
 
