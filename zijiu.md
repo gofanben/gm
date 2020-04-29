@@ -7,7 +7,9 @@
 <div align="center"><h3>请收藏网址(新闻视频)  随时连上最新即时IP
 https://bit.ly/3ezRQKo </h3>
 
-  <h1>点击视频 https://bit.ly/2VIs51L </h1> </div>
+  <h3>点击视频 https://bit.ly/2VIs51L </h3> 
+  
+ 网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。	</div>	 
  
 <table>
  <tr><td width=880>
