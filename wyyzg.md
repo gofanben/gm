@@ -1,7 +1,7 @@
 <div align="center"><h1>病毒針對中共而來</h1></div>
 <a href=#top><h6 align="right">回上方</h6></a>
 
-<a href =#2>2.【瘟疫与中共】中国男高音莫华伦确诊</a><br><br>
+<a href =#2>2.【瘟疫与中共】中国男高音莫华伦确诊</a><p>
 <a href =#1>1.【瘟疫与中共】纽约州为何成了重灾区？</a><br><br>
 
 <hr><a name=2>
