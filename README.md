@@ -37,10 +37,10 @@
 <table>
  <tr><td width=900><h3><b><a href="https://git.io/whfy-2">➤ 武汉人、湖北人、中国人如何自救？</a></b></h3></tr>
 </td> 
-<tr><td width=900><h3><b><a href="https://git.io/you995995">➤ 相生相克 毒疫有克星</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2Yu7lh0">➤ 相生相克 毒疫有克星</a></b></h3></tr>
 </td> 
 
-<tr><td width=900><h3><b><a href="https://git.io/kkopop">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2VTfxG4">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/ls02">➤ 热门時事、评论</a></b></h3></tr>
 </td>
@@ -56,7 +56,7 @@
 <tr><td width=900 ><h3><b><a href="https://git.io/kstui">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
 </td> 
-<tr><td width=900 ><h3><b><a href="https://git.io/kkssos">➤ 九评引发三退大潮 如何三退</a></b></h3>
+<tr><td width=900 ><h3><b><a href="https://bit.ly/2xsSYPc">➤ 九评引发三退大潮 如何三退</a></b></h3>
 </tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/jiuren">➤ 上天在救人 你看懂了吗?</a></b></h3>
@@ -115,7 +115,7 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/cvs">➤ 法轮大法洪传世界</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/kkdada">➤ 他们的改变来自法轮大法</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2Yri1gv">➤ 他们的改变来自法轮大法</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/Sing">➤ 磨难中铸就辉煌</a></b></h3></tr>
 </td>
@@ -137,7 +137,7 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/perhi">➤ 迫害大法弟子遭恶报</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/ssbbaaa">➤ 群体灭绝罪、反人类罪、酷刑罪</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2YmS4yx">➤ 群体灭绝罪、反人类罪、酷刑罪</a></b></h3></tr>
 </td>
 </table>
 
