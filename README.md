@@ -1,4 +1,4 @@
-<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-2.jpg" width=800></a>
+<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="/whfy-img/whfy-1-2.jpg" width=800></a>
 
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
 
@@ -28,9 +28,9 @@
  
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
   <div align=center>
-<h2><b><a href="https://git.io/opopop">● 免费突破封锁翻墙软件 ● </a></b></h2></div>
+<h2><b><a href="https://bit.ly/2RMhyRY">● 免费突破封锁翻墙软件 ● </a></b></h2></div>
 <div align=center>
-<h2><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
+<h2><b><a href="https://bit.ly/35vjjZy">● 红潮即将倾覆  天之将明 ● </a></b></h2></div>
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
@@ -47,6 +47,10 @@
 <tr><td width=900><h3><b><a href="https://git.io/wnn">➤ 小之分享</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/birdf">➤  明真相能保命</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://bit.ly/35vjjZy">➤  红潮即将倾覆  天之将明</a></b></h3></tr>
+</td>
+<tr><td width=900><h3><b><a href="https://bit.ly/2RMhyRY">➤  免费突破封锁翻墙软件</a></b></h3></tr>
 </td>
 </table>
 
