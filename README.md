@@ -1,8 +1,8 @@
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="/whfy-img/whfy-1-2.jpg" width=800></a>
 
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
+<div align=center><h2>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo </h2>
 
-<!--<h2>免翻视频IP http://61.228.179.18/300 </h2></div> -->
+点击视频 https://bit.ly/2VIs51L
  
  <table>
  
