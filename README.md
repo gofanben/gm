@@ -29,15 +29,15 @@
  
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
   <div align=center>
-<h3><b><a href="https://bit.ly/2WjzO6M">● 24小时实事禁闻 </a></b></h3></div>
+<h3><b><a href="https://bit.ly/2WjzO6M">● 24小时实事禁闻 ● </a></b></h3></div>
 <div align=center>
-<h3><b><a href="https://bit.ly/35qgJUl">● 大纪元实事新闻</a></b></h3></div>
+<h3><b><a href="https://bit.ly/35qgJUl">● 大纪元实事新闻 ● </a></b></h3></div>
 <div align=center>
-<h3><b><a href="https://bit.ly/3d8Cdbi">● 禁书在线阅读 </a></b></h3></div>
+<h3><b><a href="https://bit.ly/3d8Cdbi">● 禁书在线阅读 ● </a></b></h3></div>
 <div align=center>
-<h3><b><a href="https://bit.ly/3aUn4IX">● 安卓翻墙软件 </a></b></h3></div>
+<h3><b><a href="https://bit.ly/3aUn4IX">● 安卓翻墙软件 ● </a></b></h3></div>
 <div align=center>
-<h3><b><a href="https://bit.ly/35n3WlP">● 全球禁闻聚合 </a></b></h3></div>
+<h3><b><a href="https://bit.ly/35n3WlP">● 全球禁闻聚合 ● </a></b></h3></div>
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
 <table>
