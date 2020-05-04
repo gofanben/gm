@@ -94,12 +94,12 @@ https://bit.ly/3ezRQKo </h3>
 <a href =#b>不怕瘟疫的人 (置顶)</a><br><br>
 <a href =#a>疫情到来如何自救 (置顶)</a><br><br>
 
-<a href =#66>66.【抗疫良方】染疫绝望中 留日女生奇迹康复</a><br><br>
-<a href =#65>65.【免疫良方】加男染疫住院 念真言神奇康复(加拿大)</a><br><br>
-<a href =#64>64.【抗疫良方】魁北克人突遇事故 神奇恢复(加拿大)</a><br><br>
-<a href =#63>63.【抗疫良方】中共病毒无药可治 她却绝处逢生(法国)</a><br><br>
-<a href =#62>62.武汉肺炎在我们家族失去了传染力</a><br><br>
-<a href =#61>61.家住武汉百步亭小区的亲戚武汉肺炎好了</a><br><br>
+<a href =#66>‧【抗疫良方】染疫绝望中 留日女生奇迹康复</a><br><br>
+<a href =#65>‧【免疫良方】加男染疫住院 念真言神奇康复(加拿大)</a><br><br>
+<a href =#64>‧【抗疫良方】魁北克人突遇事故 神奇恢复(加拿大)</a><br><br>
+<a href =#63>‧【抗疫良方】中共病毒无药可治 她却绝处逢生(法国)</a><br><br>
+<a href =#62>‧武汉肺炎在我们家族失去了传染力</a><br><br>
+<a href =#61>‧家住武汉百步亭小区的亲戚武汉肺炎好了</a><br><br>
 <a href =#60>60.医院没看好的病　诚念“法轮大法好”好了</a><br><br>
 <a href =#59>59.江苏医生：保全自己、战胜邪恶有唯一的方法</a><br><br>
 <a href =#58>58.武汉人用真名三退后全家得救</a><br><br>
@@ -2181,9 +2181,7 @@ http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维�
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11833388.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=31>
-
 <h1 align="center"><b>王友群：中共大祸临头 国人当自救</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/000_1OG8SF-600x400.jpg" width=600></div>
@@ -2268,9 +2266,7 @@ http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维�
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11831715.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=32>
-
 <h1 align="center"><b>北京某区宣传部副部长：国难当头　感谢你们救人</b></h1>
 
 【明慧网二零二零年一月三十日】（明慧记者章韵报道）二零二零年刚开始，武汉爆发新型病毒带来的肺炎。自武汉爆发这种新型冠状病毒肺炎，传播途径已至亚太地区、北美和欧洲。因为中共官方报道一贯信息缩水和隐瞒真实情况，许多百姓无可奈何，在中国武汉肺炎疫情继续扩散之际，海外的法轮功学员一直不忘国内的中国人，为了让更多的人能从危难中得救，纷纷给他们打去电话，告诉他们疫情凶猛，自保有妙招：第一，灾祸面前，尽量保持心情平静，诚念“法轮大法好、真善忍好”，可能让您得到天助！第二，如果还没做“三退”（退出中共党团队），赶快想办法退了，也能保平安。
@@ -2321,9 +2317,7 @@ English Version: http://en.minghui.org/html/articles/2020/1/31/183028.html
 http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国难当头-感谢你们救人-400463.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=33>
-
 <h1 align="center"><b>救世的灵丹妙药</b></h1>
 
 【明慧网二零二零年二月四日】目前，武汉肺炎（冠状病毒）传播猛烈，危害着全国广大人民的生命安全，甚至散播到全球二十六个国家。自二零一九年十二月初在武汉出现至今，两个月过去了，仍然见不到被遏制的希望。
@@ -2349,9 +2343,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 网址转载： http://www.minghui.org/mh/articles/2020/2/4/救世的灵丹妙药-400716.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=34>
-
 <h1 align="center">他从疑似“武汉肺炎”凶症中走出来</h1>
 
 【希望之声2020年2月2日】（本台记者慧光综合报导）他是中国大陆山东人，在政府机关上班，人处中年，身体健康，在当前“武汉肺炎”肆虐全国的时候，出现了与之十分相似的症状，然而在妻子的引导下他硬是闯了过来，走过了一大难关，他的经历值得国人借鉴。
@@ -2387,9 +2379,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 网址转载： https://www.soundofhope.org/post/338884
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=35>
-
 <h1 align="center"><b>大毒当前要自救——不是秘密的秘密<br>从逾越节看武汉肺炎</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/1580215424655.webp" width=600></div>
@@ -2441,9 +2431,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 网址转载：https://www.soundofhope.org/post/337240
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=36>
-
 <h1 align="center"><b>清洁工：武汉肺炎 我有抵御的秘方</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/100417223056100445-600x400.jpg" width=600></div>
@@ -2473,9 +2461,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11833328.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=37>
-
 <h1 align="center"><b>大难前的慈悲</b></h1>
 
 【明慧网二零二零年二月四日】明慧网近日报导，武汉肺炎爆发一个多月来，无论确诊病例或死亡案例，都持续急速攀升。但是中国人已经不再相信中共官方通报的数字，很多人在面临灾祸时都相信法轮功学员告诉他们的自救方法：一，诚念“法轮大法好、真善忍好”，可能获得天助；二，尽快做“三退”（即退出中国共产党、共青团和少先队），也能保平安。
@@ -2500,9 +2486,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=38>
-
 <h1 align="center"><b>悉尼集会：声援三亿五千万人退出中共</b></h1>
 
 【明慧网二零二零年二月四日】（明慧悉尼记者站报道）二零二零年一月三十一日，澳洲悉尼各界人士和法轮功学员在悉尼市中心海关大楼前举行集会，庆祝三亿五千万中华儿女退出中共党、团、队组织（三退）。来自悉尼各界嘉宾顶着炎炎烈日在集会上发言，赞扬三亿五千万中华儿女退出中共的无畏勇气；谴责中共对法轮功学员、维吾尔人、西藏人、香港人以及正义人士的人权践踏的恶劣行径。他们认为天灭中共是神的意志，中共末日已到，呼吁更多的华人顺应天意，赶快“三退”，选择美好的未来；也呼吁世人快快觉醒，远离中共这个魔鬼，躲避共产极权主义的病毒。
@@ -2581,9 +2565,7 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=39>
-
 <h1 align="center"><b>梦中三次大疫神警示人： 大疫不可怕大法能救命</b></h1>
 
 【正见网2020年02月05日】
@@ -2609,9 +2591,7 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 网址转载： http://www.zhengjian.org/node/256779
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=40>
-
 <h1 align="center"><b>东方觉：最危险、最愚蠢的举动——火线入党</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/608122012211017-600x400.jpg" width=600></div>
@@ -2644,7 +2624,6 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 网址转载：https://www.ntdtv.com/gb/2020/02/05/a102769820.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=h>
 <h1 align="center"><b>一位武汉肺炎患者的获救经历<br>真信大法　敬念“法轮大法好”能得救</b></h1>
 
@@ -2678,9 +2657,7 @@ Z先生的儿子、妻子和岳母都是法轮功修炼人，无法来到他身�
 http://www.minghui.org/mh/articles/2020/2/7/一位武汉肺炎患者的获救经历-400844.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=41>
-
 <h1 align="center"><b>武汉民众：谢谢法轮功学员的真心相救</b></h1>
 
 【明慧网二零二零年二月七日】（明慧记者章韵报道）武汉肺炎疫情延烧，中国已有超过50城市实施规模不一的封锁措施，辽宁省5日直接宣布全省14城实施“封闭式管理”，而江西也宣布省内所有区域实行“封闭式管理”。至此，全中国已有3省65城宣布“封闭式管理”。
@@ -2724,9 +2701,7 @@ http://www.minghui.org/mh/articles/2020/2/7/一位武汉肺炎患者的获救经
 http://www.minghui.org/mh/articles/2020/2/7/武汉民众-谢谢法轮功学员的真心相救-400862.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=42>
-
 <h1 align="center"><b>《刘伯温碑记》点明避开瘟疫的真言</b></h1>
 
 【明慧网二零二零年二月七日】历史上将要发生的大事，许多先知、先觉和高人通过观察天象，能预知未来，并巧妙地用独特的语言记录下来，如诸葛亮写了《马前课》、邵雍写了《梅花诗》、刘伯温写了《烧饼歌》等等。
@@ -2785,9 +2760,7 @@ http://www.minghui.org/mh/articles/2020/2/7/武汉民众-谢谢法轮功学员�
 http://www.minghui.org/mh/articles/2020/2/7/《刘伯温碑记》点明避开瘟疫的真言-400851.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=43>
-
 <h1 align="center"><b>姥姥避瘟疫的法宝</b></h1>
 
 【明慧网二零二零年二月十日】二零二零年大年之前，在外地做生意的亲属都回家来了。不久就听到了有关武汉肺炎疫情方面的消息。亲属们都庆幸自己今年没去武汉！但对疫情还是感到很紧张。
@@ -2833,9 +2806,7 @@ http://www.minghui.org/mh/articles/2020/2/7/《刘伯温碑记》点明避开瘟
 http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=44>
-
 <h1 align="center"><b>岳高：欲摆脱瘟疫 先远离红魔</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/GettyImages-1198473030-800x450.jpg" width=600></div>
@@ -2868,9 +2839,7 @@ http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.htm
 网址转载： https://www.ntdtv.com/gb/2020/02/10/a102774026.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=45>
-
 <h1 align="center"><b>谎言本身就是毒素　真相是最好的疫苗</b></h1>
 
 【明慧网二零二零年二月十日】一九八六年五一节的乌克兰，当看不见的辐射尘埃雨点般落下时，穿着衬衫的孩子们走过了游行检阅台，那通常是苏联领导人的坐席，但这次却空空荡荡，孩子们的注目礼看到是空空的一排排坐椅。
@@ -2901,9 +2870,7 @@ http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.htm
 http://www.minghui.org/mh/articles/2020/2/10/谎言本身就是毒素-真相是最好的疫苗-400963.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=46>
-
 <h1 align="center"><b>我的老乡也在传真相</b></h1>
 
 【明慧网二零二零年二月十日】今年过年去给一位老乡拜年，顺便送点胶东大饽饽。她见到我说：“可见着熟人了！这些天闹武汉肺炎不让出门，憋的够呛。”然后说：“你以前给我讲的真相都对，看这阵势，怕是要应验了。这不，我给几个朋友打电话，让他们也明白明白，让他们受益，躲过这次灾难，我给张哥、刘哥、我大姐等几个人都说了，让他们记住‘法轮大法好，真善忍好’，告诉他们记住这九个字，这次疫情面前能保平安。”
@@ -2920,9 +2887,7 @@ http://www.minghui.org/mh/articles/2020/2/10/谎言本身就是毒素-真相是�
 http://www.minghui.org/mh/articles/2020/2/10/我的老乡也在传真相-401003.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=47>
-
 <h1 align="center"><b>警察昨天喊着要抓我　今天连连说谢谢我</b></h1>
 
 【明慧网二零二零年二月九日】前些日子的一天，看到一个三、四十岁的男子领着一个十多岁的小女孩在路边走。我过去跟他讲真相劝“三退”。
@@ -2941,9 +2906,7 @@ http://www.minghui.org/mh/articles/2020/2/10/我的老乡也在传真相-401003.
 http://www.minghui.org/mh/articles/2020/2/9/警察昨天喊着要抓我-今天连连说谢谢我-400953.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=48>
-
 <h1 align="center"><b>武汉肺炎 同学念九字吉言两日得愈</b></h1>
 
 【明慧网二零二零年二月八日】读者来信——武汉封城。二月二日，我联系武汉一朋友（同学），得知朋友陪妻子就诊，不幸染疾，症状和武汉肺炎完全一致。但医院没有床位，就是不给确诊，让在家自行隔离。家里还有不满十岁的小孩，还有两老人，情况危急。
@@ -2964,9 +2927,7 @@ English Version: http://en.minghui.org/html/articles/2020/2/9/183161.html
 http://www.minghui.org/mh/articles/2020/2/8/武汉肺炎-同学念九字吉言两日得愈-400904.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=49>
-
 <h1 align="center"><b>传诵“大法好”　他人平安、自己也平安</b></h1>
 
 【明慧网二零二零年二月九日】诚心敬念“法轮大法好，真善忍好”，大难来时，能逢凶化吉，遇难呈祥。“法轮大法好，真善忍好”这九个字，就是九字真言。法轮功学员告诉人们九字真言，没有任何为名、为利、为私的想法，就是希望您能明大法真相，躲劫难，保平安。
@@ -2999,9 +2960,7 @@ Z先生终于想起大法来了，答应了儿子。他想：当今大法在世�
 http://www.minghui.org/mh/articles/2020/2/9/传诵“大法好”-他人平安、自己也平安-400950.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=i>
-
 <h1 align="center"><b>真相语音电话：瘟疫中的千金良方（更新）</b></h1>
 
 <h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/2002090305840.mp3?raw=true">下载 ➤ mp3 真相语音电话：瘟疫中的千金良方（更新）</a></h2></div>
@@ -3026,15 +2985,11 @@ http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千�
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=50>
-
 <h1 align="center"><b>修德避瘟疫 选择定祸福</b></h1>
-
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/xdbwy.jpg" width=600></div>
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=51>
-
 <h1 align="center"><b>说说“神目如电”</b></h1>
 
 【明慧网二零二零年二月十五日】一个多月来，武汉新型冠状病毒肺炎疫情泛滥，许多人只能关在家里，情绪越来越紧张、焦虑，甚至惶恐。古人云，“神目如电”、“三尺头上有神灵”、“善恶有报”。中国传统文化称，每个人的命运都和自己和自己祖上的德行有关。下面的故事或许能帮您静下心来，缓解焦虑。
@@ -3073,9 +3028,7 @@ http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千�
 http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=52>
-
 <h1 align="center"><b>武汉感染者：感谢法轮功送的自救秘诀</b></h1>
 
 【明慧网二零二零年二月十九日】（明慧记者章韵报道）现在爆发的武汉肺炎疫情，从二零二零年一月二十三日武汉封城开始，愈演愈烈，然而人类却束手无策，目前还没有找到有效的防治办法。
@@ -3119,9 +3072,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 网址转载：http://www.minghui.org/mh/articles/2020/2/19/武汉感染者-感谢法轮功送的自救秘诀-401413.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=53>
-
 <h1 align="center"><b>他们怎么康复的？</b></h1>
 
 <【明慧网二零二零年二月十九日】猪鼠年之交，新冠病毒在中国武汉爆发并迅速蔓延全国乃至全球。更令人忧心的是，该病毒目前仍然难以救治，甚至难以防护。让人担忧无望之际，却传出几例新冠病毒感染者神奇康复的事例。那么，他们是如何康复的？
@@ -3154,13 +3105,10 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 
 如果您相信上述病人痊愈是得到了神佛的保护，我们希望您也同样能得到神佛的保护。如果您认为这是精神作用，我们认为物质和精神是一性的，希望您也能受益于九字真言所带来的强大、正面的精神作用，不被疫情卷走宝贵的生命。
 
-网址转载：
-http://www.minghui.org/mh/articles/2020/2/19/他们怎么康复的--401370.html
+网址转载：http://www.minghui.org/mh/articles/2020/2/19/他们怎么康复的--401370.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=54>
-
 <h1 align="center"><b>【退党中心特稿】中共祸害广 国人快“三退”<br>全球退党服务中心</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/aac356159b33a86ac7227152d4e0116a-600x400.jpg" width=600></div>
@@ -3200,9 +3148,7 @@ http://www.minghui.org/mh/articles/2020/2/19/他们怎么康复的--401370.html
 网址转载： https://www.epochtimes.com/gb/20/2/20/n11884306.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=55>
-
 <h1 align="center"><b>两武汉医生患武汉肺炎 数日康复
 ————叩谢李大师</b></h1>
 
@@ -3261,7 +3207,6 @@ http://www.minghui.org/mh/articles/2020/2/19/他们怎么康复的--401370.html
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=56>
-
 <h1 align="center"><b>诚念九字真言　中共病毒消除</b></h1>
 
 【明慧网二零二零年三月二十五日】一位河南省大法弟子在武汉读研究生的女儿在这场疫情中出现中共病毒（武汉肺炎）症状，真心敬念“法轮大法好、真善忍好”恢复健康。为了感谢法轮大法师父的救命之恩，她特意写了一份亲身经历，她也衷心希望众多的朋友们在疫情中、在任何灾难的环境中，诚信敬念“法轮大法好、真善忍好”，定能走出魔难。
@@ -3325,9 +3270,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=58>
-
 <h1 align="center"><b>武汉人用真名三退后全家得救</b></h1>
-
 【明慧网二零二零年四月四日】（明慧记者章韵报道）在中共病毒肆虐全中国和全世界之际，武汉的一家在危难之际接到海外法轮功学员的电话，用真名做了三退（退出中共党、团、队，简称三退）后，诚念“法轮大法好，真善忍好”九字真言，得到了神佛的保佑。病危的先生最后病愈，家人也没有受感染。太太流泪说：“感谢法轮功师父救了我们一家！”
 
 以下是给这家武汉人打电话的纽约法轮功学员谢女士的介绍。
@@ -3361,9 +3304,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 网址转载： http://www.minghui.org/mh/articles/2020/4/4/武汉人用真名三退后全家得救-403381.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=59>
-
 <h1 align="center"><b>江苏医生：保全自己、战胜邪恶有唯一的方法</b></h1>
 
 江苏一位江医生曾经是中共入党积极分子，看到武汉新冠病毒的疫情来势汹汹，他奉劝所有想要逃过这次瘟疫灾难的中国人，要抓住最后的机会勇敢的加入“三退”大潮，到大纪元退党网站退出中共党、团、队组织“三退”才能幸免于难。
@@ -3396,7 +3337,6 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 <a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=60>
-
 <h1 align="center"><b>医院没看好的病　诚念“法轮大法好”好了</b></h1>
 
 【明慧网二零二零年四月二十日】
@@ -3426,9 +3366,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 网址转载：https://www.minghui.org/mh/articles/2020/4/20/医院没看好的病-诚念“法轮大法好”好了-404107.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=61>
-
 <h1 align="center"><b>家住武汉百步亭小区的亲戚武汉肺炎好了</b></h1>
 
 【明慧网二零二零年四月十九日】武汉这次突发的瘟疫，让人始料不及，封城更是让人深受其害。元月二十三日，我刚到儿子家，就听孙子说他在武汉的舅舅和表弟逃出来了，回外婆家了，细问才知道因武汉封城，已经死了很多人了，儿媳的弟媳（下简称弟媳）都快崩溃了。
@@ -3491,9 +3429,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 网址转载：https://www.minghui.org/mh/articles/2020/4/19/家住武汉百步亭小区的亲戚武汉肺炎好了-404036.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=62>
-
 <h1 align="center"><b>武汉肺炎在我们家族失去了传染力</b></h1>
 
 【明慧网二零二零年四月十八日】我们家族有三十多口人。我家有四口人住在武汉，其余二十多人住在农村老家。年前我们计划回农村老家团年，由于武汉肺炎的爆发，武汉封城，我家四口没能回老家，其余在农村老家的二十多人还是在大年三十的晚上一起吃了年夜饭，大家也很开心。
@@ -3519,7 +3455,6 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=63>
-
 <h1 align="center"><b>【抗疫良方】中共病毒无药可治 她却绝处逢生</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/WhatsApp-Image-2020-04-20-at-19.42.39-600x400.jpeg" width=600></div>
@@ -3558,7 +3493,6 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 <a href=#top><h6 align="right">回上方</h6></a>
 
 <hr><a name=64>
-
 <h1 align="center"><b>【抗疫良方】魁北克人突遇事故 神奇恢复</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/62601549_10157249647319800_3192390371539681280_o-600x400.jpg" width=600></div>
@@ -3570,7 +3504,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 布罗歇在事故发生几天后把她的经历写在了脸书页上，并在电话中跟记者讲述了她的历险记。
 
-* * * * * * * *
+* *
 
 3月27日那天星期五，下午4点半，我带着我自己做的口罩去买东西，先到药店买个胶带，然后去食杂店，蔬菜和水果在疾病大流行期间可是让人保持健康的好东西。
 
@@ -3634,7 +3568,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 大约凌晨两点的时候，我“醒”了过来，这意味我刚才是睡着了。哦，多么光荣的睡眠！我怎么能睡着呢？疼痛呢？我试着挪动一下，天哪，全身的剧痛消失不见了！我又动了动，如果说以前我的疼痛是100%的话，现在只有2%，甚至是零！。
 
-* * * * * * * *
+* *
 
 到此时此刻，布罗歇这次似乎已经招来死神的厄运戛然而止。她肯定地说，“一种神奇的力量起了作用”。
 
@@ -3650,11 +3584,8 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.epochtimes.com/gb/20/4/18/n12041036.htm
 
-
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=65>
-
 <h1 align="center"><b>【免疫良方】加男染疫住院 念真言神奇康复</b></h1>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/IMG_20200422_170330_01-600x400.jpg" width=600></div>
@@ -3723,7 +3654,6 @@ Leo对记者说：“因为没有办法了，我想试一下。”
 网址转载：https://www.epochtimes.com/gb/20/4/24/n12059010.htm
 
 <a href=#top><h6 align="right">回上方</h6></a>
-
 <hr><a name=66>
 <h1 align="center"><b>【抗疫良方】染疫绝望中 留日女生奇迹康复</b></h1>
 
