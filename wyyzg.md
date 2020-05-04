@@ -568,7 +568,7 @@ Leo对记者说：“因为没有办法了，我想试一下。”
 
 <hr><a name=56>
 <h1 align="center"><b>【抗疫良方】中共病毒无药治 她却绝处逢生</b></h1>
-<div align="center"><img src="/wyyzg-img/XXX" width=600></div>
+<div align="center"><img src="/wyyzg-img/WhatsApp-Image-2020-04-20-at-19.42.39-600x400.jpeg" width=600></div>
 <div align="center">现定居法国的土耳其女子马克布雷·塞维姆（Makbule Sevim）（右）和她的姐姐塞米尔·塞维姆（Cemile Sevim）。(Makbule Sevim提供)</div><p>
 
  【大纪元2020年04月21日讯】（大纪元记者Gökhan、李言报导）马克布雷·塞维姆（Makbule Sevim）是一名移居法国的土耳其人，在此次瘟疫中不幸感染中共病毒（武汉肺炎），就在她痛不欲生的时候，她得到一剂神奇的抗疫良方，并因此而获得新生。
