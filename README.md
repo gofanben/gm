@@ -42,9 +42,9 @@
 
 <table>
  
- <tr><td width=900><h3><b><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">➤病毒針對中共而來 免疫良方</a></b></h3></tr>
+ <tr><td width=900><h3><b><a href="https://bit.ly/2zg5JNi">➤病毒針對中共而來 免疫良方</a></b></h3></tr>
 </td> 
- <tr><td width=900><h3><b><a href="https://git.io/whfy-2">➤ 武汉人、湖北人、中国人如何自救？</a></b></h3></tr>
+ <tr><td width=900><h3><b><a href="https://git.io/whfy-2">➤免疫良方</a></b></h3></tr>
 </td> 
 <tr><td width=900><h3><b><a href="https://bit.ly/2Yu7lh0">➤ 相生相克 毒疫有克星</a></b></h3></tr>
 </td> 
