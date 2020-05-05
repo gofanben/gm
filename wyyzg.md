@@ -1,4 +1,7 @@
 <div align="center"><h1>病毒針對中共而來</h1></div>
+<div align="center"><h2><a href="https://bit.ly/3c7dIuW">免疫良方</a></h2></div>
+
+
 <a href=#top><h6 align="right">回上方</h6></a>
 
 
