@@ -94,6 +94,7 @@ https://bit.ly/3ezRQKo </h3>
 <a href =#b>‧不怕瘟疫的人 (置顶)</a><p>
 <a href =#a>‧疫情到来如何自救 (置顶)</a><p><p>
 
+
 <a href =#73>‧【免疫良方】华人现染疫症状 念真言化险为夷</a><p>
 <a href =#72>‧任世豪：“四二五”与瘟疫解方</a><p>
 <a href =#71>‧疫情冲击下 澳洲女业主顺利脱困的秘诀</a><p>
@@ -170,7 +171,7 @@ https://bit.ly/3ezRQKo </h3>
 
 <hr><a name=73>
 <h1 align="center"><b>【免疫良方】华人现染疫症状 念真言化险为夷</b></h1>
-<div align="center"><img src="/zijiu-img/1024px-Clifftops4-7-07-600x400.jpgX" width=600></div>
+<div align="center"><img src="/zijiu-img/1024px-Clifftops4-7-07-600x400.jpg" width=600></div>
 <div align="center">北卡华人疑染疫，念真言化险为夷。图为北卡罗来纳州和田纳西州之间的大烟山国家公园（Great Smoky Mountains National Park）（公有领域）</div><p>
 
 【大纪元2020年05月05日讯】（大纪元记者林丹纽约报导）住在美国北卡州的华人颜先生，近期出现了发烧、咳嗽等中共病毒（武汉肺炎、新冠肺炎）症状，服抗生素也不好转，他非常担心。他的法轮功朋友告诉他，要念“法轮大法好，真善忍好”，颜先生相信并照做，结果是平安无事。
