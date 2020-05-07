@@ -1,6 +1,5 @@
 <div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
-<a href=#top><h6 align="right">回上方</h6></a>
-
+<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回上頁</h6></a></div>
 
 <a href =#70>【瘟疫与中共】维州被红色资本渗透（2）</a><p>
 <a href =#69>【瘟疫与中共】孔子学院使德国蒙难 (2)</a><p>
