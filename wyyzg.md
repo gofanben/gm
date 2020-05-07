@@ -1,10 +1,9 @@
-<div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
+<a name=top><div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
 
 <div align="center"><h1><a href="https://bit.ly/3c7dIuW">免疫良方</a></h1></div>
 
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg-1.md">下一頁</h6></div>
 
-<a name=top>
 
 <a href =#a1>【特稿】越亲中共疫情越重 防疫有良方(置顶)</a><p>
 
