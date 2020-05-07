@@ -1,4 +1,4 @@
-<div align="center"><h1>病毒針對中共而來【瘟疫与中共】</h1></div>
+<div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
 <a href=#top><h6 align="right">回上方</h6></a>
 
 
