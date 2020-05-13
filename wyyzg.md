@@ -1,4 +1,6 @@
-<a name=top><div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
+<div align="center"><img src="/wyyzg-img/wyyzg.jpg.jpg" width=800></div>
+
+<!-- <a name=top><div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div> -->
 
 <div align="center"><h1><a href="https://bit.ly/3c7dIuW">免疫良方</a></h1></div>
 
