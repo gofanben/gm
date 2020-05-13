@@ -1,4 +1,4 @@
-<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800>
+<div align="center"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/ntdtvflower.jpg" width=800></div>	
 <div align=center><h3>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/swspip </h3></div>	
 
 <table>
