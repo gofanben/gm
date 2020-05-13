@@ -1,8 +1,6 @@
 <div align="center">
 <IMG SRC="img-2/ae054.jpg" width=880>
 <div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://bit.ly/3ezRQKo </h2></div>	
-
-<h3>免翻视频 https://bit.ly/2VIs51L </h3>
  
 <h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
 
@@ -12,15 +10,6 @@
 
 <table>
  
-<tr> <td>
-<h2>上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h2>
-<td></tr>
-
 <tr>
  <td>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，<b>连免翻视频 IP https://bit.ly/2VIs51L </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
