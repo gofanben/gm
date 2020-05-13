@@ -1,21 +1,9 @@
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="/whfy-img/whfy-1-2.jpg" width=800></a>
 
 <div align=center><h2>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo </h2>
-
-点击视频 https://bit.ly/2VIs51L
  
  <table>
  
-<tr> <td>
-<h3> ● 三退保平安 ●<br>
-上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h3>
-<td></tr>
-
 <!--<tr>
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.179.18/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
