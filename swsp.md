@@ -1,6 +1,6 @@
 <div align="center"><a href="https://bit.ly/2VIs51L"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
 
-点击视频 https://bit.ly/2VIs51L
+点击视频 http://61.228.211.221/300
 
  网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
 
