@@ -1,33 +1,16 @@
 
 <div align="center">
 <IMG SRC="img/kkkk2.jpg" width=880>
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://git.io/jiuren </h2></div>	
-
-<h2>免翻视频 http://61.228.181.102/300 </h2>
+<div align=center><h3>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo</h3></div>	
 
 <table>
- 
-<tr> <td>
-<h2>上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h2>
-<td></tr>
-
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.181.102/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr> 
-
-<tr>
- <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://bit.ly/3asSXIA  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
+ <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://bit.ly/3asSXIA  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
  </table> 
  
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h1><a href=https://git.io/souye>看更多真相 https://git.io/souye </h1></a></div>
  
 <div align="center">
 <IMG SRC="img/b_illust_24_0M.png"width=880 ></div>
@@ -80,7 +63,7 @@
   <a href="https://git.io/9p9pos" >◆ 看《九评》https://git.io/9p9pos  </a>
   </td>
    <td width=440>
-  <a href="https://git.io/opopop" >◆ 索取翻墙软件 https://git.io/opopop </a></p>
+  <a href="https://https://bit.ly/3asSXIA" >◆ 索取翻墙软件 https://bit.ly/3asSXIA </a></p>
     </td>
        
   </tr>
