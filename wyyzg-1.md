@@ -1,4 +1,4 @@
-<div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div>
+<div align="center"><img src="/wyyzg-img/wyyzg.jpg" width=800></div>
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回上頁</h6></a></div>
 
 <a href =#70>【瘟疫与中共】维州被红色资本渗透（2）</a><p>
