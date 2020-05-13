@@ -1,34 +1,15 @@
-<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-2.jpg" width=800></a>
+<div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-2.jpg" width=800></a></div>
 
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://bit.ly/3ezRQKo </h2>
-
-<h2>免翻视频IP http://61.228.179.18/300 </h2></div>
-	
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+<div align=center><h3>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo</h3>
 
 <table>
-	
-<tr> <td>
-<h2>上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h2>
-<td></tr>
-
 <tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.179.18/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr> 
-
-<tr>
- <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站 https://bit.ly/3asSXIA  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
+ <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站 https://bit.ly/3asSXIA  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
   </table> 
  
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h3><a href="https://bit.ly/2RQM1hX">看更多真相 https://bit.ly/2RQM1hX</h3></a></div>
 
 <h1 align="center"><b>手机上好看的电子书（ePub版）</b></h1>
 <h2 align="center"> (推荐)Reasily - EPUB 阅读器，可以观看视频、音频、图文EPUB。<br><a href="https://github.com/gofanben/gm/blob/master/download/Reasily1802h.apk?raw=true">点击直接下载</a></h2>
