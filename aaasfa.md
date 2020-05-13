@@ -1,8 +1,6 @@
 <div align="center">
 <IMG SRC="img-2/ae054.jpg" width=880>
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP<br>   https://bit.ly/3ezRQKo </h2></div>	
- 
-<h1><b><a href="https://github.com/awwkk/usdom/blob/master/forfor.md">红潮即将倾覆  天之将明</a></b></h1></div>
+<div align=center><h2>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo</div>
 
 <hr>
 
@@ -16,7 +14,7 @@
 </tr>
   </table> 
 
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h3><a href="https://bit.ly/2RQM1hX">看更多真相 https://bit.ly/2RQM1hX</h3></a></a></div>
 
 <a name=list><b>目錄</b></p>
 <table>
