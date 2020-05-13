@@ -4,12 +4,7 @@
 
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
  
-<div align="center"><h3>请收藏网址(新闻视频)  随时连上最新即时IP
-https://bit.ly/3ezRQKo </h3>
-
-  <h3>点击视频 https://bit.ly/2VIs51L </h3> 
-  
- 网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。	</div>	 
+<div align="center"><h3>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo </h3></div>	 
  
 <table>
  <tr><td width=880>
@@ -35,21 +30,6 @@ https://bit.ly/3ezRQKo </h3>
 </table>
 
 <table>
-
-<tr> <td>
-<h2>上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj <br></h2>
-<td></tr>
-
-<tr>
- <td>
- <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ” https://bit.ly/3cMz5Bz </a>，<b>连免翻视频 https://bit.ly/2VIs51L </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr>
-
 <tr>
  <td>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
