@@ -2,8 +2,6 @@
 
 <div align=center><h2>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo </h2></div>
  
-复制网址到谷歌或火狐浏览器打开。若出现 “提示” ，請点击“继续”访问即可。
-
 <div align=center><h3>收藏本站网址 https://bit.ly/2RQM1hX  </h3></div>
  <table>
  
