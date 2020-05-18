@@ -1,6 +1,8 @@
 <div align="center"><a href="http://61.228.183.150/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
 
-点击视频 http://61.228.183.150/300
+点击视频 https://bit.ly/3ftVDsY
+
+http://61.228.183.150/300
 
 http://61.228.180.111/300
 
