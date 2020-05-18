@@ -18,6 +18,8 @@
  
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
   <div align=center>
+<h3><b><a href="https://bit.ly/3bItoUr">● 新闻热点 海外报道 ● </a></b></h3></div>
+<div align=center>
 <h3><b><a href="https://bit.ly/2WjzO6M">● 24小时实事禁闻 ● </a></b></h3></div>
 <div align=center>
 <h3><b><a href="https://bit.ly/35qgJUl">● 大纪元实事新闻 ● </a></b></h3></div>
