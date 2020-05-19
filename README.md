@@ -37,7 +37,7 @@
 </td> 
  <tr><td width=900><h3><b><a href="https://bit.ly/3c7dIuW">➤免疫良方</a></b></h3></tr>
 </td> 
-<tr><td width=900><h3><b><a href="https://bit.ly/2Yu7lh0">➤ 相生相克 毒疫有克星</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2TmqaQa">➤ 相生相克 毒疫有克星</a></b></h3></tr>
 </td> 
 
 <tr><td width=900><h3><b><a href="https://bit.ly/2VTfxG4">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
