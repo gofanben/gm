@@ -1,6 +1,7 @@
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="/whfy-img/whfy-1-2.jpg" width=800></a></div>
 
-<div align=center><h2>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo </h2></div>
+<div align=center><h2>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo </h2>
+ 点击视频 https://bit.ly/2VIs51L </div>
  
 <div align=center><h3>收藏本站网址 https://bit.ly/2RQM1hX  </h3></div>
  <table>
