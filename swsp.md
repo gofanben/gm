@@ -1,6 +1,6 @@
-<div align="center"><a href="http://61.228.218.232/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
+<div align="center"><a href="https://bit.ly/2VIs51L"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
 
-点击视频 https://bit.ly/3ftVDsY
+点击视频 https://bit.ly/2VIs51L
 
 http://61.228.218.232/300
 
@@ -8,7 +8,7 @@ http://61.228.187.77/300
 
  网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
 
-<div align=center><a href="https://bit.ly/2VIs51L"> 看更多真相 https://bit.ly/2VIs51L</a></div><p>
+<div align=center><a href="https://bit.ly/2RQM1hX"> 看更多真相 https://bit.ly/2RQM1hX </a></div><p>
 
 <div align="center"><a href="http://61.228.218.232/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=640></a>
  
