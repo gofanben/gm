@@ -1,6 +1,6 @@
 <div align="center"><IMG SRC="zijiu-img/zijiu_logo-4.jpg" width=800></div>
  
-<div align="center"><h1>免疫良方</h1></div>
+<div align="center"><h1>免疫有良方</h1></div>
 
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800>-->
  
