@@ -1,6 +1,6 @@
 <div align="center"><IMG SRC="zijiu-img/zijiu_logo-4.jpg" width=800></div>
  
-<div align="center"><h1>免疫有良方</h1></div>
+<div align="center"><h1>免疫良方</h1></div>
 
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800>-->
  
@@ -45,7 +45,6 @@
 <a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置顶)<p>
 <a href =#b>不怕瘟疫的人 (置顶)<p>
 <a href =#a>疫情到来如何自救 (置顶)<p><br>
-
 <a href =#77>【免疫良方】纽约女商人染疫 念九字真言痊愈<p>
 <a href =#76>【珍言真语】气功师见证12实例 九字真言显奇迹<p>
 <a href =#75>疫情冲击下 台湾企业董事长生意欣荣的秘诀<p>
@@ -126,7 +125,7 @@
 
 <hr><a name=77>
 <h1 align="center"><b>【免疫良方】纽约女商人染疫 念九字真言痊愈</b></h1>
-<div align="center"><img src="/wyyzg-img/download-1-4-600x400.jpg" width=600></div>
+<div align="center"><img src="/zijiu-img/download-1-4-600x400.jpg" width=600></div>
 <div align="center">长岛女珠宝商最近经历了一次生死关，受神保佑恢复了健康。（受访者）</div><p>
 
 【大纪元2020年05月20日讯】（大纪元记者施萍纽约报导）今年三月份，一个居住在长岛的犹太女珠宝商不幸感染新冠肺炎（中共肺炎），在家瘫痪在床。在经过几个星期呼吸困难的恐惧后，幸获朋友相助，念“法轮大法好，真善忍好”九字真言后身体恢复，目前已经开始正常工作。</p>
@@ -138,7 +137,7 @@
 <p>在没有任何办法的情况下，盖德开始学念九字真言。在学习发音的过程中，她惊奇地发现她可以呼吸了。在之后的两三周内，盖德从中共病毒中恢复。</p>
 <p>“这个口诀确实让我喘上气来了，我不知道别人的经历，反正这是我亲身经历的。在我慢慢学习这个口诀的过程中，我必须停下来，正确读出每个字，我对安娜说，不管谁创造了这个口诀，真的是让人正确呼吸的方法。”</p>
 <p>她说，“我不知道这背后的原因是什么，这就是我的经历。我现在不管是睡前，还是醒来的时候，还是在我走路的时候，还是我有不好的想法，或者抑郁的时候，我都念这个口诀，在过去的两三周内，我恢复过来了。”</p>
-<div align="center"><img src="/wyyzg-img/osnat-profile-600x338.jpg" width=600></div>
+<div align="center"><img src="/zijiu-img/osnat-profile-600x338.jpg" width=600></div>
 <div align="center">5月18日Gad接受大纪元记者采访，讲述自己的神奇经历。（大纪元）</div><p>
 <p>盖德发现，念九字真言不仅让她从中共病毒中走了过来，而且她过去的心脏病以及其它病状都消失不见了。</p>
 <p>“我不相信神迹，但是我边念九字真言边呼吸，确实全面改变了我的能量水平。”她说，现在她感觉自己充满活力，每天走步两英里，并开始了日常的工作。</p>
