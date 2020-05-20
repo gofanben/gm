@@ -1,48 +1,20 @@
-<div align="center"><IMG SRC="zijiu-img/zijiu_logo-4.jpg" width=800></a></div>
+<div align="center"><IMG SRC="zijiu-img/zijiu_logo-4.jpg" width=800></div>
  
 <div align="center"><h1>免疫良方</h1></div>
 
-<!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800></a>-->
+<!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/falundafagood.jpg" width=800>-->
  
 <div align="center"><h3>请收藏本网址，连上免翻视频 https://bit.ly/3ezRQKo </h3></div>	 
  
-<table>
- <tr><td width=880>
-  <h3 align="center"><a href="http://">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3>
- </p>
-* (1)用海外邮箱发表声明 tuidang@epochtimes.com </p>
-* (2)用破网软件登录 http://tuidang.epochtimes.com </p>
-* (3)美国热线电话:  <br> 
- 001-702-873-1734 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 001-866-697-6570 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  001-858-609-9088<br>
- 001-858-609-9099 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 001-888-892-8757</p>
- (4)加拿大热线电话:<br> 
-001-416-361-9895 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  001-514-342-1023  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 001-604-276-2569</p>
-(5)退党传真：<br>
-001-510-372-0176 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 001-201-625-6301</p>
-(6)各地退党团队服务中心</p>
-(7)各地大纪元报社</p>
-(8) 各地法轮功学员</p>
-* <b>可先将声明张贴在适当的公共场所，以后再上网。</b> </p>
-◆提示：由于恐惧，中共对退党热线做了手脚，电话接通后录音告之：这是个空号，请不要打这个电话。请别上当、不要挂电话，很快能接通，请相互转告。 </p>
-◆您可能说我思想中早退了，我也不交党费了。那都不算数。因为在那个血旗面前向天发毒誓时，您是说把一生、把生命都献给邪党了。所以只有采取公开的方式退出，有行为的表示，才能除掉这么大的毒誓，才能在天灭中共的时候保平安！ </p>
-</td>
- </tr>
-</table>
 
-<table>
-<tr>
- <td>
- <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
-</tr>
-</table>
 
 <a name=top>
  
-<!--<div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq_2-1.jpg" width=800></a></div>-->
+<!--<div align="center"><a href="https://git.io/opopop"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/please_fq_2-1.jpg" width=800></div>-->
 
-<div align=center><h3><a href="https://bit.ly/3asSXIA">请多传破网软件，使更多的人了解真相从而得救，这是给自己积福德。 https://bit.ly/3asSXIA </h3></a></div>
+<div align=center><h3><a href="https://bit.ly/3asSXIA">请多传破网软件，使更多的人了解真相从而得救，这是给自己积福德。 https://bit.ly/3asSXIA </h3></div>
 
-<div align=center><h2><a href="https://bit.ly/2RQM1hX">看更多真相 https://bit.ly/2RQM1hX</h2></a></div>
+<div align=center><h2><a href="https://bit.ly/2RQM1hX">看更多真相 https://bit.ly/2RQM1hX</h2></div>
 
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
@@ -50,107 +22,134 @@
 
 <table>
  <tr>
-<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
 </tr> 	
 <tr>
- <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+ <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
 </tr>
 
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
 </table>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/whfy-img/fngrchn3.jpg"></div>
 
-<!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></a></div>-->
+<!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="https://github.com/gofanben/gm/blob/master/zijiu-img/zijiu_logo-3.jpg" width=800></div>-->
  
-<a href =#j>【特稿】越亲中共疫情越重 防疫有良方</a><p>
-<a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)</a><p>
-<a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)</a><p>
-<a href =#h>一位武汉肺炎患者的获救经历(置顶)</a><p>
-<a href =#g>广播：平安度过劫难的护身符(置顶)</a><p>
-<a href =#f>广播：武汉肺炎真相(置顶)</a><p>
-<a href =#e>广播：疫情凶猛，自保有妙招(置顶)</a><p>
-<a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置顶)</a><p>
-<a href =#b>不怕瘟疫的人 (置顶)</a><p>
-<a href =#a>疫情到来如何自救 (置顶)</a><p><br>
+<a href =#j>【特稿】越亲中共疫情越重 防疫有良方<p>
+<a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)<p>
+<a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)<p>
+<a href =#h>一位武汉肺炎患者的获救经历(置顶)<p>
+<a href =#g>广播：平安度过劫难的护身符(置顶)<p>
+<a href =#f>广播：武汉肺炎真相(置顶)<p>
+<a href =#e>广播：疫情凶猛，自保有妙招(置顶)<p>
+<a href =#c>“九字吉言” 治愈武汉肺炎的奇方(置顶)<p>
+<a href =#b>不怕瘟疫的人 (置顶)<p>
+<a href =#a>疫情到来如何自救 (置顶)<p><br>
 
-<a href =#76>【珍言真语】气功师见证12实例 九字真言显奇迹</a><p>
-<a href =#75>疫情冲击下 台湾企业董事长生意欣荣的秘诀</a><p>
-<a href =#74>诚念九字真言　快速从武汉肺炎康复（图）(法国)</a><p>
-<a href =#73>【免疫良方】华人现染疫症状 念真言化险为夷</a><p>
-<a href =#72>任世豪：“四二五”与瘟疫解方</a><p>
-<a href =#71>疫情冲击下 澳洲女业主顺利脱困的秘诀</a><p>
-<a href =#70>欧洲游客染瘟疫 痛斥中共后奇迹康复</a><p>
-<a href =#69>疫灾中自保 村大队长让一家三代人“三退”</a><p>
-<a href =#68>诚念“九字真言”治愈疫病的神奇故事</a><p>
-<a href =#67>瘟疫肆虐 村长带领全村人“三退”自救</a><p>
-<a href =#66>【抗疫良方】染疫绝望中 留日女生奇迹康复</a><p>
-<a href =#65>【免疫良方】加男染疫住院 念真言神奇康复(加拿大)</a><p>
-<a href =#64>【抗疫良方】魁北克人突遇事故 神奇恢复(加拿大)</a><p>
-<a href =#63>【抗疫良方】中共病毒无药可治 她却绝处逢生(法国)</a><p>
-<a href =#62>武汉肺炎在我们家族失去了传染力</a><p>
-<a href =#61>家住武汉百步亭小区的亲戚武汉肺炎好了</a><p>
-<a href =#60>医院没看好的病　诚念“法轮大法好”好了</a><p>
-<a href =#59>江苏医生：保全自己、战胜邪恶有唯一的方法</a><p>
-<a href =#58>武汉人用真名三退后全家得救</a><p>
-<a href =#57>妹妹念“法轮大法好”　武汉肺炎好了</a><p>
-<a href =#56>诚念九字真言　中共病毒消除</a><p>
-<a href =#55>两武汉医生患武汉肺炎 数日康复————叩谢李大师</a><p>
-<a href =#54>【退党中心特稿】中共祸害广 国人快“三退”</a><p>
-<a href =#53>他们怎么康复的？</a><p>
-<a href =#52>武汉感染者：感谢法轮功送的自救秘诀</a><p>
-<a href =#51>说说“神目如电”</a><p>
-<a href =#50>修德避瘟疫 选择定祸福</a><p>
-<a href =#49>传诵“大法好”　他人平安、自己也平安</a><p>
-<a href =#48>武汉肺炎 同学念九字吉言两日得愈</a><p>
-<a href =#47>警察昨天喊着要抓我　今天连连说谢谢我</a><p>
-<a href =#46>我的老乡也在传真相</a><p>
-<a href =#45>谎言本身就是毒素　真相是最好的疫苗</a><p>
-<a href =#44>欲摆脱瘟疫 先远离红魔</a><p>
-<a href =#43>姥姥避瘟疫的法宝</a><p>
-<a href =#42>《刘伯温碑记》点明避开瘟疫的真言</a><p>
-<a href =#41>武汉民众：谢谢法轮功学员的真心相救</a><p>
-<a href =#40>最危险、最愚蠢的举动——火线入党</a><p>
-<a href =#39>梦中三次大疫神警示人： 大疫不可怕大法能救命</a><p>
-<a href =#38>悉尼集会：声援三亿五千万人退出中共</a><p>
-<a href =#37>大难前的慈悲</a><p>
-<a href =#36>清洁工：武汉肺炎 我有抵御的秘方</a><p>
-<a href =#35>大毒当前要自救——不是秘密的秘密</a><p>
-<a href =#34>他从疑似“武汉肺炎”凶症中走出来</a><p>
-<a href =#33>救世的灵丹妙药</a><p>
-<a href =#32>北京某区宣传部副部长：国难当头　感谢你们救人</a><p>
-<a href =#31>中共大祸临头 国人当自救</a><p>
-<a href =#30>中共为什么要掩盖疫情真相</a><p>
-<a href =#29>疫情阴影下 武汉人在德国三退：我心踏实了</a><p>
-<a href =#28>控制疫情真实信息　只为维护中共自身</a><p>
-<a href =#27>九字真言小故事：汶川地震山崩地裂的那一刻</a><p>
-<a href =#26>瘟疫中的千金良方</a><p>
-<a href =#25>历时八天击败“莫名凶症”</a><p>
-<a href =#24>一个比口罩更有效的自我保护方法</a><p>
-<a href =#23>《大明劫》中的大疫之劫</a><p>
-<a href =#22>古罗马的三次大瘟疫</a><p>
-<a href =#21>突发突止的古希腊瘟疫</a><p>
-<a href =#20>武汉警察：谢谢法轮功还想着我们</a><p>
-<a href =#19>奇迹就在一念间</a><p>
-<a href =#18>摆脱现代年兽</a><p>
-<a href =#17>武汉肺炎与保命要诀</a><p>
-<a href =#16>疫情被瞒 中国民众失望愤怒 纷纷“三退”</a><p>
-<a href =#15>相声表演者死里逃生的神奇故事</a><p>
-<a href =#14>九字真言小故事：白血病患者的痊愈</a><p>
-<a href =#13>【文史】瘟疫肆虐 为何有人能避开它？</a><p>
-<a href =#12>瘟疫使者不敢到谁家散播瘟疫</a><p>
-<a href =#11>大难“三退”保平安 “九字”吉言是金方</a><p>
-<a href =#10>治疗瘟疫的良方</a><p>
-<a href =#9>武汉疫情远超想像 中国人如何自救</a><p>
-<a href =#8>疫情中请牢记法轮大法好</a><p>
-<a href =#7>大疫当前，中国人应觉醒</a><p> 
-<a href =#6>鼠年到 “天灭中共”正在进行时</a><p> 
-<a href =#5>中共是否会放弃感染病毒的中国人？</a><p> 
-<a href =#4>顺应天意 神才会为你开出一条路</a><p> 
-<a href =#3>抵抗瘟疫 这篇网文给你新思路！</a><p> 
-<a href =#2>疫情如火　中共草菅人命</a><p> 
-<a href =#1>再一次的隐瞒和欺卝</a><p><br>
+<a href =#77>【免疫良方】纽约女商人染疫 念九字真言痊愈<p>
+<a href =#76>【珍言真语】气功师见证12实例 九字真言显奇迹<p>
+<a href =#75>疫情冲击下 台湾企业董事长生意欣荣的秘诀<p>
+<a href =#74>诚念九字真言　快速从武汉肺炎康复（图）(法国)<p>
+<a href =#73>【免疫良方】华人现染疫症状 念真言化险为夷<p>
+<a href =#72>任世豪：“四二五”与瘟疫解方<p>
+<a href =#71>疫情冲击下 澳洲女业主顺利脱困的秘诀<p>
+<a href =#70>欧洲游客染瘟疫 痛斥中共后奇迹康复<p>
+<a href =#69>疫灾中自保 村大队长让一家三代人“三退”<p>
+<a href =#68>诚念“九字真言”治愈疫病的神奇故事<p>
+<a href =#67>瘟疫肆虐 村长带领全村人“三退”自救<p>
+<a href =#66>【抗疫良方】染疫绝望中 留日女生奇迹康复<p>
+<a href =#65>【免疫良方】加男染疫住院 念真言神奇康复(加拿大)<p>
+<a href =#64>【抗疫良方】魁北克人突遇事故 神奇恢复(加拿大)<p>
+<a href =#63>【抗疫良方】中共病毒无药可治 她却绝处逢生(法国)<p>
+<a href =#62>武汉肺炎在我们家族失去了传染力<p>
+<a href =#61>家住武汉百步亭小区的亲戚武汉肺炎好了<p>
+<a href =#60>医院没看好的病　诚念“法轮大法好”好了<p>
+<a href =#59>江苏医生：保全自己、战胜邪恶有唯一的方法<p>
+<a href =#58>武汉人用真名三退后全家得救<p>
+<a href =#57>妹妹念“法轮大法好”　武汉肺炎好了<p>
+<a href =#56>诚念九字真言　中共病毒消除<p>
+<a href =#55>两武汉医生患武汉肺炎 数日康复————叩谢李大师<p>
+<a href =#54>【退党中心特稿】中共祸害广 国人快“三退”<p>
+<a href =#53>他们怎么康复的？<p>
+<a href =#52>武汉感染者：感谢法轮功送的自救秘诀<p>
+<a href =#51>说说“神目如电”<p>
+<a href =#50>修德避瘟疫 选择定祸福<p>
+<a href =#49>传诵“大法好”　他人平安、自己也平安<p>
+<a href =#48>武汉肺炎 同学念九字吉言两日得愈<p>
+<a href =#47>警察昨天喊着要抓我　今天连连说谢谢我<p>
+<a href =#46>我的老乡也在传真相<p>
+<a href =#45>谎言本身就是毒素　真相是最好的疫苗<p>
+<a href =#44>欲摆脱瘟疫 先远离红魔<p>
+<a href =#43>姥姥避瘟疫的法宝<p>
+<a href =#42>《刘伯温碑记》点明避开瘟疫的真言<p>
+<a href =#41>武汉民众：谢谢法轮功学员的真心相救<p>
+<a href =#40>最危险、最愚蠢的举动——火线入党<p>
+<a href =#39>梦中三次大疫神警示人： 大疫不可怕大法能救命<p>
+<a href =#38>悉尼集会：声援三亿五千万人退出中共<p>
+<a href =#37>大难前的慈悲<p>
+<a href =#36>清洁工：武汉肺炎 我有抵御的秘方<p>
+<a href =#35>大毒当前要自救——不是秘密的秘密<p>
+<a href =#34>他从疑似“武汉肺炎”凶症中走出来<p>
+<a href =#33>救世的灵丹妙药<p>
+<a href =#32>北京某区宣传部副部长：国难当头　感谢你们救人<p>
+<a href =#31>中共大祸临头 国人当自救<p>
+<a href =#30>中共为什么要掩盖疫情真相<p>
+<a href =#29>疫情阴影下 武汉人在德国三退：我心踏实了<p>
+<a href =#28>控制疫情真实信息　只为维护中共自身<p>
+<a href =#27>九字真言小故事：汶川地震山崩地裂的那一刻<p>
+<a href =#26>瘟疫中的千金良方<p>
+<a href =#25>历时八天击败“莫名凶症”<p>
+<a href =#24>一个比口罩更有效的自我保护方法<p>
+<a href =#23>《大明劫》中的大疫之劫<p>
+<a href =#22>古罗马的三次大瘟疫<p>
+<a href =#21>突发突止的古希腊瘟疫<p>
+<a href =#20>武汉警察：谢谢法轮功还想着我们<p>
+<a href =#19>奇迹就在一念间<p>
+<a href =#18>摆脱现代年兽<p>
+<a href =#17>武汉肺炎与保命要诀<p>
+<a href =#16>疫情被瞒 中国民众失望愤怒 纷纷“三退”<p>
+<a href =#15>相声表演者死里逃生的神奇故事<p>
+<a href =#14>九字真言小故事：白血病患者的痊愈<p>
+<a href =#13>【文史】瘟疫肆虐 为何有人能避开它？<p>
+<a href =#12>瘟疫使者不敢到谁家散播瘟疫<p>
+<a href =#11>大难“三退”保平安 “九字”吉言是金方<p>
+<a href =#10>治疗瘟疫的良方<p>
+<a href =#9>武汉疫情远超想像 中国人如何自救<p>
+<a href =#8>疫情中请牢记法轮大法好<p>
+<a href =#7>大疫当前，中国人应觉醒<p> 
+<a href =#6>鼠年到 “天灭中共”正在进行时<p> 
+<a href =#5>中共是否会放弃感染病毒的中国人？<p> 
+<a href =#4>顺应天意 神才会为你开出一条路<p> 
+<a href =#3>抵抗瘟疫 这篇网文给你新思路！<p> 
+<a href =#2>疫情如火　中共草菅人命<p> 
+<a href =#1>再一次的隐瞒和欺卝<p><br>
 
+<hr><a name=77>
+<h1 align="center"><b>【免疫良方】纽约女商人染疫 念九字真言痊愈</b></h1>
+<div align="center"><img src="/wyyzg-img/download-1-4-600x400.jpg" width=600></div>
+<div align="center">长岛女珠宝商最近经历了一次生死关，受神保佑恢复了健康。（受访者）</div><p>
+
+【大纪元2020年05月20日讯】（大纪元记者施萍纽约报导）今年三月份，一个居住在长岛的犹太女珠宝商不幸感染新冠肺炎（中共肺炎），在家瘫痪在床。在经过几个星期呼吸困难的恐惧后，幸获朋友相助，念“法轮大法好，真善忍好”九字真言后身体恢复，目前已经开始正常工作。</p>
+<p>盖德（Osnot Gad）是一个美籍犹太人，上个世纪六十年代移民美国，是一个家族珠宝生意的掌管人。今年73岁，每年在世界各地旅游，寻找奇石异宝做首饰材料。</p>
+<p>今年三月份，弟弟一家从曼哈顿来到长岛度周末。之后一周以后，她发现自己失去味觉，开始发低烧。再一周后全身疼痛起不来床。医生诊断她得了新冠肺炎。</p>
+<p>盖德遵医嘱自己在家隔离，逐渐变得呼吸困难，她感到了死亡的恐惧。</p>
+<p>“那种无法呼吸的恐惧是巨大的，因为你一个人，旁边没有亲人，我在想，如果下几分钟中我喘不上来气，我也不能叫任何人来给我送去医院。因为我中毒了，他们也会被传染，那种害怕亲人受到感染的恐惧是极其折磨人的。”盖德在5月18日接受大纪元记者采访时说道。</p>
+<p>四月底的一天，她的一个叫安娜的法轮功学员朋友来电话，得知她的情况之后，告诉她念“法轮大法好，真善忍好”九字真言，并发给她网上链接以及法轮大法真相。</p>
+<p>在没有任何办法的情况下，盖德开始学念九字真言。在学习发音的过程中，她惊奇地发现她可以呼吸了。在之后的两三周内，盖德从中共病毒中恢复。</p>
+<p>“这个口诀确实让我喘上气来了，我不知道别人的经历，反正这是我亲身经历的。在我慢慢学习这个口诀的过程中，我必须停下来，正确读出每个字，我对安娜说，不管谁创造了这个口诀，真的是让人正确呼吸的方法。”</p>
+<p>她说，“我不知道这背后的原因是什么，这就是我的经历。我现在不管是睡前，还是醒来的时候，还是在我走路的时候，还是我有不好的想法，或者抑郁的时候，我都念这个口诀，在过去的两三周内，我恢复过来了。”</p>
+<div align="center"><img src="/wyyzg-img/osnat-profile-600x338.jpg" width=600></div>
+<div align="center">5月18日Gad接受大纪元记者采访，讲述自己的神奇经历。（大纪元）</div><p>
+<p>盖德发现，念九字真言不仅让她从中共病毒中走了过来，而且她过去的心脏病以及其它病状都消失不见了。</p>
+<p>“我不相信神迹，但是我边念九字真言边呼吸，确实全面改变了我的能量水平。”她说，现在她感觉自己充满活力，每天走步两英里，并开始了日常的工作。</p>
+<p>她现在已经联系了长岛的修炼法轮功的学员，她想学炼法轮功。“我要感谢法轮大法，真的，我必须感谢法轮大法，感谢安娜，是神把她和法轮大法发送到我身边的。”</p>
+<p>盖德说，“我昨晚睡不着觉，我就念这个口诀，于是我就睡着了。一觉醒来，看到一个明亮又美丽的早晨，这对我来说太神奇了。这是如此珍贵的一份礼物！”</p>
+<p>最后盖德表示，“我想说，这个口诀不是治了我一个病的问题，我有很多病，心脏病等等，可这一切不好的症状都消失了。这个口诀对那些有呼吸问题的人，对血管有问题的人……所有人，我敢说他对任何人都是有好处的，不只是对这个病毒患者，对任何人都好。”</p>
+<p>目前，盖德刚刚开始读法轮大法的著作，她领会到“只有做好人，才能调动起我们内在的力量，并使用它。”她说，越来越有兴趣深入了解法轮大法了。“可能我所剩的年岁并不多了，但只要有一天能够接受师父的教诲并吸收进灵魂，我都不胜感激。”</p>
+<p>责任编辑：杨亦慧#</p>
+网址转载：https://www.epochtimes.com/gb/20/5/19/n12122008.htm
+
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=76>
 <h1 align="center"><b>【珍言真语】气功师见证12实例 九字真言显奇迹</b></h1>
 <div align="center"><img src="/zijiu-img/dabe6597b88837b6b6912ecd7d159bda-600x400.jpg" width=600></div>
@@ -308,7 +307,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.epochtimes.com/gb/20/5/14/n12108533.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=75>
 <h1 align="center"><b>疫情冲击下 台湾企业董事长生意欣荣的秘诀</b></h1>
 <div align="center"><img src="/zijiu-img/2020-5-5-taiwan-falun-gong-cultivation-story_02-600x400" width=600></div>
@@ -401,7 +400,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.epochtimes.com/gb/20/5/8/n12094125.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=74>
 <h1 align="center"><b>诚念九字真言　快速从武汉肺炎康复（图）</b></h1>
 <div align="center"><img src="/zijiu-img/2020-5-9-thuy-anh_01--ss.jpg" width=600></div>
@@ -459,7 +458,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.minghui.org/mh/articles/2020/5/9/诚念九字真言-快速从武汉肺炎康复（图）-405099.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=73>
 <h1 align="center"><b>【免疫良方】华人现染疫症状 念真言化险为夷</b></h1>
 <div align="center"><img src="/zijiu-img/1024px-Clifftops4-7-07-600x400.jpg" width=600></div>
@@ -507,7 +506,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.epochtimes.com/gb/20/5/5/n12085023.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=72>
 <h1 align="center"><b>任世豪：“四二五”与瘟疫解方</b></h1>
 <div align="center"><img src="/wyyzg-img/2020-02-20_121511-600x400-1.jpg" width=600></div>
@@ -658,7 +657,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.epochtimes.com/gb/20/4/22/n12053052.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=70>
 <h1 align="center"><b>欧洲游客染瘟疫 痛斥中共后奇迹康复</b></h1>
 <div align="center"><img src="/wyyzg-img/111-2-600x400.jpeg" width=600></div>
@@ -708,7 +707,7 @@ https://www.youtube.com/watch?v=GTeMdYdhu-I
 
 网址转载：https://www.epochtimes.com/gb/20/4/14/n12030636.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=69>
 <h1 align="center"><b>疫灾中自保 村大队长让一家三代人“三退”</b></h1>
 <div align="center"><img src="/wyyzg-img/dmhj-y9v4aa5k0r-600x400.jpg" width=600></div>
@@ -843,7 +842,7 @@ https://youtu.be/TEZoX2wlysc?list=PL49195970994DFDBA
 
 网址转载：https://www.epochtimes.com/gb/20/2/14/n11868618.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=68>
 <h1 align="center"><b>诚念“九字真言”治愈疫病的神奇故事</b></h1>
 <div align="center"><img src="/wyyzg-img/11-14-600x400.jpg" width=600></div>
@@ -957,7 +956,7 @@ https://youtu.be/TEZoX2wlysc?list=PL49195970994DFDBA
 资料来源：明慧网<br>
 网址转载：https://www.epochtimes.com/gb/20/2/19/n11880232.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=67>
 <h1 align="center"><b>瘟疫肆虐 村长带领全村人“三退”自救</b></h1>
 <div align="center"><img src="/wyyzg-img/p8755331a280654207-600x374.jpg" width=600></div>
@@ -1055,7 +1054,7 @@ https://youtu.be/TEZoX2wlysc?list=PL49195970994DFDBA
  
 网址转载：https://www.epochtimes.com/gb/20/2/11/n11861714.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=j>
 <h1 align="center"><b>【特稿】越亲中共疫情越重 防疫有良方</b></h1>
@@ -1171,7 +1170,7 @@ https://youtu.be/TEZoX2wlysc?list=PL49195970994DFDBA
 
 网址转载： https://www.epochtimes.com/gb/20/4/19/n12042989.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=a>
 
@@ -1211,7 +1210,7 @@ https://youtu.be/TEZoX2wlysc?list=PL49195970994DFDBA
 
 网址转载：http://www.minghui.org/mh/articles/2020/1/28/疫情到来如何自救-400403.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=b>
 <h1 align="center"><b>九字真言小故事：不怕瘟疫的人</b></h1>
@@ -1231,7 +1230,7 @@ English Version: http://en.minghui.org/html/articles/2020/1/28/182989.html
 
 网址转载：http://www.minghui.org/mh/articles/2020/1/25/九字真言小故事-不怕瘟疫的人-400056.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=1>
 <h1 align="center"><b>再一次的隐瞒和欺卝</b></h1>
@@ -1280,7 +1279,7 @@ English Version: http://en.minghui.org/html/articles/2020/1/28/182989.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/1/24/再一次的隐瞒和欺卝-399891.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=2>
 <h1 align="center"><b>疫情如火　中共草菅人命</b></h1> 
@@ -1303,7 +1302,7 @@ http://www.minghui.org/mh/articles/2020/1/24/再一次的隐瞒和欺卝-399891.
 
 网址转载：http://www.minghui.org/mh/articles/2020/1/25/疫情如火-中共草菅人命-400042.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=3>
 
@@ -1344,7 +1343,7 @@ http://www.minghui.org/mh/articles/2020/1/24/再一次的隐瞒和欺卝-399891.
 
 文章来源 : https://www.epochtimes.com/gb/20/1/27/n11824834.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=4>
 
@@ -1449,7 +1448,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/23/n11816364.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=5>
 
@@ -1488,7 +1487,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/27/n11826030.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=6>
 
@@ -1589,7 +1588,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/27/n11824186.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=7>
 
@@ -1605,7 +1604,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/26/n11821946.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=8>
 
@@ -1665,7 +1664,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/25/n11821049.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=9>
 
@@ -1736,7 +1735,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/25/n11820349.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=10>
 
@@ -1788,7 +1787,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/29/n11830784.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=11>
 
@@ -1825,7 +1824,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/29/n11829501.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=12>
 
@@ -1875,7 +1874,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/19/11/21/n11671842.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=c>
 
@@ -1900,7 +1899,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/20/1/30/n11833165.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=13>
 
@@ -1984,7 +1983,7 @@ Josh McDowell《铁证待判》
 
 文章来源 : https://www.epochtimes.com/gb/18/7/21/n10580480.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=d>
 
@@ -2018,13 +2017,13 @@ Josh McDowell《铁证待判》
 
 第四套功法	12分30秒（17MB））下载 ➤ https://github.com/gofanben/gm/blob/master/mp3/exercise4_12min30s.mp3?raw=true
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=e>
 
 <h1 align="center"><b>广播稿：疫情凶猛，自保有妙招</b></h1>
 
-<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/20200131WuHan-mp3.mp3?raw=true">下载 ➤ mp3 广播声音挡：疫情凶猛，自保有妙招</a></h2></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/20200131WuHan-mp3.mp3?raw=true">下载 ➤ mp3 广播声音挡：疫情凶猛，自保有妙招</h2></div>
 
 【明慧网二零二零年一月二十九日】朋友您好！首先，真诚希望您和家人新的一年健康、平安！
 
@@ -2094,13 +2093,13 @@ English Version: http://en.minghui.org/html/articles/2020/1/29/183004.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/1/29/广播稿-疫情凶猛，自保有妙招-400420.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=f>
 
 <h1 align="center"><b>武汉肺炎真相</b></h1>
 
-<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/whzx.mp4?raw=true">下载 ➤ mp4 广播：武汉肺炎真相</a></h2></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/whzx.mp4?raw=true">下载 ➤ mp4 广播：武汉肺炎真相</h2></div>
 
 您好，湖北武汉市2020新年前爆发不明原因的病毒性肺炎，目前已经扩散到香港、台湾、韩国等地，表现为发烧、呼吸道感染或肺炎症状。现香港、澳门、台湾、韩国和马来西亚等国家及地区的政府已对此采取紧急措施，包括在边境地区进行更饣格的卫生控制，并对来自疫情爆发地——武汉的所有航班人员进行体温检查。这个语音电话是希望能让您了解肺炎发生的背景和危难中如何来保护自己。
 
@@ -2123,7 +2122,7 @@ http://www.minghui.org/mh/articles/2020/1/29/广播稿-疫情凶猛，自保有�
 网址转载：
 http://www.minghui.org/mh/articles/2020/1/21/真相语音电话-武汉肺炎真相稿-399589.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=14>
 
@@ -2149,7 +2148,7 @@ http://www.minghui.org/mh/articles/2020/1/21/真相语音电话-武汉肺炎真�
 网址转载：
 http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患者的痊愈-398847.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=15>
 
@@ -2210,7 +2209,7 @@ http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患�
 
 文章来源 : https://www.renminbao.com/rmb/articles/2020/1/29/70317.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=16>
 
@@ -2281,7 +2280,7 @@ http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患�
 
 文章来源 : https://www.ntdtv.com/gb/2020/02/01/a102766105.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=17>
 
@@ -2322,7 +2321,7 @@ http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患�
 
 文章来源 : https://www.epochtimes.com/gb/20/2/1/n11836876.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=18>
 
@@ -2354,7 +2353,7 @@ http://www.minghui.org/mh/articles/2020/1/12/九字真言小故事-白血病患�
 网址转载：
 http://www.minghui.org/mh/articles/2019/12/30/摆脱现代年兽-397600.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=19>
 
@@ -2407,7 +2406,7 @@ http://www.minghui.org/mh/articles/2019/12/30/摆脱现代年兽-397600.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/1/奇迹就在一念间-400572.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=20>
 
@@ -2472,7 +2471,7 @@ http://www.minghui.org/mh/articles/2020/2/1/奇迹就在一念间-400572.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/1/武汉警察-谢谢法轮功还想着我们-400583.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=21>
 
@@ -2492,7 +2491,7 @@ http://www.minghui.org/mh/articles/2020/2/1/武汉警察-谢谢法轮功还想�
 http://www.minghui.org/mh/articles/2020/2/2/突发突止的古希腊瘟疫-400555.html
 
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=22>
 
@@ -2558,7 +2557,7 @@ http://www.minghui.org/mh/articles/2020/2/2/突发突止的古希腊瘟疫-40055
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/2/古罗马的三次大瘟疫-400603.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=23>
 
@@ -2605,13 +2604,13 @@ http://www.minghui.org/mh/articles/2020/2/2/古罗马的三次大瘟疫-400603.h
 网址转载：
 http://big5.minghui.org/mh/articles/2020/2/2/《大明劫》中的大疫之劫-400609.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=g>
 
 <h1 align="center"><b>真相语音电话：平安度过劫难的护身符</b></h1>
 
-<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/2001300617467-mp3.mp3?raw=true">下载 ➤ mp3 广播声音挡：平安度过劫难的护身符</a></h2></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/2001300617467-mp3.mp3?raw=true">下载 ➤ mp3 广播声音挡：平安度过劫难的护身符</h2></div>
 
 喂，您好！您那边怎么样了啊，我们很挂念你们那里啊。这次的新型冠状病毒让我们大家心里都非常的难过。那么现在有没有救命的办法呢？有！给您打这个电话就是送给您平安度过劫难的护身符。这个护身符是经过上亿人验证过的，就是佛家的九字真言：“法轮大法好，真、善、忍好”。
 
@@ -2641,7 +2640,7 @@ http://big5.minghui.org/mh/articles/2020/2/2/《大明劫》中的大疫之劫-4
 
 网址转载： http://www.minghui.org/mh/articles/2020/2/2/真相语音电话-平安度过劫难的护身符-400626.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=24>
 
@@ -2718,7 +2717,7 @@ http://big5.minghui.org/mh/articles/2020/2/2/《大明劫》中的大疫之劫-4
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/1/一个比口罩更有效的自我保护方法-400575.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=25>
 
@@ -2745,7 +2744,7 @@ http://www.minghui.org/mh/articles/2020/2/1/一个比口罩更有效的自我保
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/1/历时八天击败“莫名凶症”-400573.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=26>
 
@@ -2784,7 +2783,7 @@ http://www.minghui.org/mh/articles/2020/2/1/历时八天击败“莫名凶症”
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/1/瘟疫中的千金良方-400559.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=27>
 
@@ -2819,7 +2818,7 @@ http://www.minghui.org/mh/articles/2020/2/1/瘟疫中的千金良方-400559.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/3/九字真言小故事-汶川地震山崩地裂的那一刻-400656.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=28>
 
@@ -2856,7 +2855,7 @@ http://www.minghui.org/mh/articles/2020/2/3/九字真言小故事-汶川地震�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维护中共自身-400525.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=29>
 
@@ -2974,7 +2973,7 @@ http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维�
 
 网址转载： https://www.epochtimes.com/gb/20/1/27/n11825711.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=30>
 
@@ -3074,7 +3073,7 @@ http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维�
 
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11833388.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=31>
 <h1 align="center"><b>王友群：中共大祸临头 国人当自救</b></h1>
 
@@ -3159,7 +3158,7 @@ http://www.minghui.org/mh/articles/2020/2/3/控制疫情真实信息-只为维�
 
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11831715.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=32>
 <h1 align="center"><b>北京某区宣传部副部长：国难当头　感谢你们救人</b></h1>
 
@@ -3210,7 +3209,7 @@ English Version: http://en.minghui.org/html/articles/2020/1/31/183028.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国难当头-感谢你们救人-400463.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=33>
 <h1 align="center"><b>救世的灵丹妙药</b></h1>
 
@@ -3236,7 +3235,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 
 网址转载： http://www.minghui.org/mh/articles/2020/2/4/救世的灵丹妙药-400716.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=34>
 <h1 align="center">他从疑似“武汉肺炎”凶症中走出来</h1>
 
@@ -3272,7 +3271,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 
 网址转载： https://www.soundofhope.org/post/338884
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=35>
 <h1 align="center"><b>大毒当前要自救——不是秘密的秘密<br>从逾越节看武汉肺炎</b></h1>
 
@@ -3324,7 +3323,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 
 网址转载：https://www.soundofhope.org/post/337240
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=36>
 <h1 align="center"><b>清洁工：武汉肺炎 我有抵御的秘方</b></h1>
 
@@ -3354,7 +3353,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 
 网址转载： https://www.epochtimes.com/gb/20/1/30/n11833328.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=37>
 <h1 align="center"><b>大难前的慈悲</b></h1>
 
@@ -3379,7 +3378,7 @@ http://www.minghui.org/mh/articles/2020/1/30/北京某区宣传部副部长-国�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=38>
 <h1 align="center"><b>悉尼集会：声援三亿五千万人退出中共</b></h1>
 
@@ -3458,7 +3457,7 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 网址转载： http://www.minghui.org/mh/articles/2020/2/4/悉尼集会-声援三亿五千万人退出中共-400723.html
 
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=39>
 <h1 align="center"><b>梦中三次大疫神警示人： 大疫不可怕大法能救命</b></h1>
 
@@ -3484,7 +3483,7 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 
 网址转载： http://www.zhengjian.org/node/256779
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=40>
 <h1 align="center"><b>东方觉：最危险、最愚蠢的举动——火线入党</b></h1>
 
@@ -3517,7 +3516,7 @@ http://www.minghui.org/mh/articles/2020/2/4/大难前的慈悲-400675.html
 
 网址转载：https://www.ntdtv.com/gb/2020/02/05/a102769820.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=h>
 <h1 align="center"><b>一位武汉肺炎患者的获救经历<br>真信大法　敬念“法轮大法好”能得救</b></h1>
 
@@ -3550,7 +3549,7 @@ Z先生的儿子、妻子和岳母都是法轮功修炼人，无法来到他身�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/7/一位武汉肺炎患者的获救经历-400844.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=41>
 <h1 align="center"><b>武汉民众：谢谢法轮功学员的真心相救</b></h1>
 
@@ -3594,7 +3593,7 @@ http://www.minghui.org/mh/articles/2020/2/7/一位武汉肺炎患者的获救经
 
 http://www.minghui.org/mh/articles/2020/2/7/武汉民众-谢谢法轮功学员的真心相救-400862.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=42>
 <h1 align="center"><b>《刘伯温碑记》点明避开瘟疫的真言</b></h1>
 
@@ -3653,7 +3652,7 @@ http://www.minghui.org/mh/articles/2020/2/7/武汉民众-谢谢法轮功学员�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/7/《刘伯温碑记》点明避开瘟疫的真言-400851.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=43>
 <h1 align="center"><b>姥姥避瘟疫的法宝</b></h1>
 
@@ -3699,7 +3698,7 @@ http://www.minghui.org/mh/articles/2020/2/7/《刘伯温碑记》点明避开瘟
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=44>
 <h1 align="center"><b>岳高：欲摆脱瘟疫 先远离红魔</b></h1>
 
@@ -3732,7 +3731,7 @@ http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.htm
 
 网址转载： https://www.ntdtv.com/gb/2020/02/10/a102774026.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=45>
 <h1 align="center"><b>谎言本身就是毒素　真相是最好的疫苗</b></h1>
 
@@ -3763,7 +3762,7 @@ http://www.minghui.org/mh/articles/2020/2/10/姥姥避瘟疫的法宝-400954.htm
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/10/谎言本身就是毒素-真相是最好的疫苗-400963.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=46>
 <h1 align="center"><b>我的老乡也在传真相</b></h1>
 
@@ -3780,7 +3779,7 @@ http://www.minghui.org/mh/articles/2020/2/10/谎言本身就是毒素-真相是�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/10/我的老乡也在传真相-401003.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=47>
 <h1 align="center"><b>警察昨天喊着要抓我　今天连连说谢谢我</b></h1>
 
@@ -3799,7 +3798,7 @@ http://www.minghui.org/mh/articles/2020/2/10/我的老乡也在传真相-401003.
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/9/警察昨天喊着要抓我-今天连连说谢谢我-400953.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=48>
 <h1 align="center"><b>武汉肺炎 同学念九字吉言两日得愈</b></h1>
 
@@ -3820,7 +3819,7 @@ English Version: http://en.minghui.org/html/articles/2020/2/9/183161.html
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/8/武汉肺炎-同学念九字吉言两日得愈-400904.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=49>
 <h1 align="center"><b>传诵“大法好”　他人平安、自己也平安</b></h1>
 
@@ -3853,11 +3852,11 @@ Z先生终于想起大法来了，答应了儿子。他想：当今大法在世�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/9/传诵“大法好”-他人平安、自己也平安-400950.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=i>
 <h1 align="center"><b>真相语音电话：瘟疫中的千金良方（更新）</b></h1>
 
-<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/2002090305840.mp3?raw=true">下载 ➤ mp3 真相语音电话：瘟疫中的千金良方（更新）</a></h2></div>
+<h2><div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp3/2002090305840.mp3?raw=true">下载 ➤ mp3 真相语音电话：瘟疫中的千金良方（更新）</h2></div>
 
 喂，乡亲，您那边还好吗？武汉肺炎感染和死亡的人越来越多，很多医护人员也倒下了。但是，请您一定不要无奈，更不要绝望。我给您打这个电话，就是告诉您一个好消息，这里有一个瘟疫中的千金良方。
 
@@ -3876,13 +3875,13 @@ http://www.minghui.org/mh/articles/2020/2/9/传诵“大法好”-他人平安�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千金良方（更新）-401102.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=50>
 <h1 align="center"><b>修德避瘟疫 选择定祸福</b></h1>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/zijiu-img/xdbwy.jpg" width=600></div>
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=51>
 <h1 align="center"><b>说说“神目如电”</b></h1>
 
@@ -3921,7 +3920,7 @@ http://www.minghui.org/mh/articles/2020/2/12/真相语音电话-瘟疫中的千�
 网址转载：
 http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=52>
 <h1 align="center"><b>武汉感染者：感谢法轮功送的自救秘诀</b></h1>
 
@@ -3965,7 +3964,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 
 网址转载：http://www.minghui.org/mh/articles/2020/2/19/武汉感染者-感谢法轮功送的自救秘诀-401413.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=53>
 <h1 align="center"><b>他们怎么康复的？</b></h1>
 
@@ -4001,7 +4000,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 
 网址转载：http://www.minghui.org/mh/articles/2020/2/19/他们怎么康复的--401370.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=54>
 <h1 align="center"><b>【退党中心特稿】中共祸害广 国人快“三退”<br>全球退党服务中心</b></h1>
 
@@ -4041,7 +4040,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 
 网址转载： https://www.epochtimes.com/gb/20/2/20/n11884306.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=55>
 <h1 align="center"><b>两武汉医生患武汉肺炎 数日康复
 ————叩谢李大师</b></h1>
@@ -4098,7 +4097,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 
 网址转载：http://www.minghui.org/mh/articles/2020/3/18/两武汉医生患武汉肺炎-数日康复-402638.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=56>
 <h1 align="center"><b>诚念九字真言　中共病毒消除</b></h1>
@@ -4131,7 +4130,7 @@ http://www.minghui.org/mh/articles/2020/2/15/说说“神目如电”-401213.htm
 网址转载：
 http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消除-402916.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=57>
 <h1 align="center"><b>妹妹念“法轮大法好”　武汉肺炎好了</b></h1>
 
@@ -4161,7 +4160,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：http://www.minghui.org/mh/articles/2020/4/5/妹妹念“法轮大法好”-武汉肺炎好了-403396.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=58>
 <h1 align="center"><b>武汉人用真名三退后全家得救</b></h1>
@@ -4197,7 +4196,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载： http://www.minghui.org/mh/articles/2020/4/4/武汉人用真名三退后全家得救-403381.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=59>
 <h1 align="center"><b>江苏医生：保全自己、战胜邪恶有唯一的方法</b></h1>
 
@@ -4229,7 +4228,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.aboluowang.com/2020/0225/1413920.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=60>
 <h1 align="center"><b>医院没看好的病　诚念“法轮大法好”好了</b></h1>
 
@@ -4259,7 +4258,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.minghui.org/mh/articles/2020/4/20/医院没看好的病-诚念“法轮大法好”好了-404107.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=61>
 <h1 align="center"><b>家住武汉百步亭小区的亲戚武汉肺炎好了</b></h1>
 
@@ -4322,7 +4321,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.minghui.org/mh/articles/2020/4/19/家住武汉百步亭小区的亲戚武汉肺炎好了-404036.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=62>
 <h1 align="center"><b>武汉肺炎在我们家族失去了传染力</b></h1>
 
@@ -4346,7 +4345,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.minghui.org/mh/articles/2020/4/18/武汉肺炎在我们家族失去了传染力-403987.html
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=63>
 <h1 align="center"><b>【抗疫良方】中共病毒无药可治 她却绝处逢生</b></h1>
@@ -4384,7 +4383,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.epochtimes.com/gb/20/4/20/n12047472.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 
 <hr><a name=64>
 <h1 align="center"><b>【抗疫良方】魁北克人突遇事故 神奇恢复</b></h1>
@@ -4478,7 +4477,7 @@ http://www.minghui.org/mh/articles/2020/3/25/诚念九字真言-中共病毒消�
 
 网址转载：https://www.epochtimes.com/gb/20/4/18/n12041036.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=65>
 <h1 align="center"><b>【免疫良方】加男染疫住院 念真言神奇康复</b></h1>
 
@@ -4547,7 +4546,7 @@ Leo对记者说：“因为没有办法了，我想试一下。”
 
 网址转载：https://www.epochtimes.com/gb/20/4/24/n12059010.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
 <hr><a name=66>
 <h1 align="center"><b>【抗疫良方】染疫绝望中 留日女生奇迹康复</b></h1>
 
@@ -4588,4 +4587,4 @@ https://www.youtube.com/watch?v=s7RNfiHHun8
 
 网址转载：https://www.epochtimes.com/gb/20/4/22/n12052679.htm
 
-<a href=#top><h6 align="right">回上方</h6></a>
+<a href=#top><h6 align="right">回上方</h6>
