@@ -40,8 +40,7 @@
 </td> 
 <tr><td width=900><h3><b><a href="https://bit.ly/2TmqaQa">➤ 相生相克 毒疫有克星</a></b></h3></tr>
 </td> 
-
-<tr><td width=900><h3><b><a href="https://bit.ly/2VTfxG4">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/3bVzz7y">➤ 了解真实中国 翻墙必看 中国禁闻</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/ls02">➤ 热门時事、评论</a></b></h3></tr>
 </td>
@@ -49,10 +48,11 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/birdf">➤  明真相能保命</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://bit.ly/35vjjZy">➤  红潮即将倾覆  天之将明</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/3bW0GPR">➤  红潮即将倾覆  天之将明</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://bit.ly/2RMhyRY">➤  免费突破封锁翻墙软件</a></b></h3></tr>
 </td>
+
 </table>
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
@@ -61,7 +61,7 @@
 <tr><td width=900 ><h3><b><a href="https://git.io/kstui">➤ 为何要退出共产党、共青团、少先队？</a></b></h3>
 </tr>
 </td> 
-<tr><td width=900 ><h3><b><a href="https://bit.ly/2xsSYPc">➤ 九评引发三退大潮 如何三退</a></b></h3>
+<tr><td width=900 ><h3><b><a href="https://bit.ly/2zZxrOU">➤ 九评引发三退大潮 如何三退</a></b></h3>
 </tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/jiuren">➤ 上天在救人 你看懂了吗?</a></b></h3>
@@ -105,7 +105,7 @@
 
 <tr><td width=900><h3><b><a href="https://git.io/425sf">➤ “四•二五”上访真相</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://git.io/ykykyk">➤ 纪念四·二五</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2LOTGKb">➤ 纪念四·二五</a></b></h3></tr>
 </td>
  <tr><td width=900><h3><b><a href="https://git.io/1400zx">➤ “1400例”真相</a></b></h3></tr>
 </td>
@@ -120,7 +120,7 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/cvs">➤ 法轮大法洪传世界</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://bit.ly/2Yri1gv">➤ 他们的改变来自法轮大法</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2XleX3w">➤ 他们的改变来自法轮大法</a></b></h3></tr>
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/Sing">➤ 磨难中铸就辉煌</a></b></h3></tr>
 </td>
@@ -142,7 +142,7 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/perhi">➤ 迫害大法弟子遭恶报</a></b></h3></tr>
 </td>
-<tr><td width=900><h3><b><a href="https://bit.ly/2YmS4yx">➤ 群体灭绝罪、反人类罪、酷刑罪</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/2TsquNa">➤ 群体灭绝罪、反人类罪、酷刑罪</a></b></h3></tr>
 </td>
 </table>
 
@@ -157,12 +157,6 @@
 </td>
 <tr><td width=900><h3><b><a href="https://git.io/goal-4">➤《共产主义的终极目的》的相关话题</a></b></h3></tr>
 </td>
-<!-- <tr><td width=900><h3><b><a href="https://git.io/yer">➤ 一位律师的肺腑直言：我为什么发自内心敬佩法轮功</a></b></h3></tr>
-<tr><td width=900><h3><b><a href="https://github.com/no1show/show1/blob/master/gcdsy.md">➤ 评《共产党宣言》</a></b></h3></tr>
-</td>-->
-<!-- <tr><td width=900><h3><b><a href="https://git.io/yer">➤ 一位律师的肺腑直言：我为什么发自内心敬佩法轮功</a></b></h3></tr>
-<tr><td width=900 ><h3><b><a href="https://github.com/no1show/show1/blob/master/whss.md">➤ 中共意识形态之理性批判</a></b></h3></tr>
-</td>-->
 </table>
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
