@@ -106,7 +106,8 @@
 <h2>恢复传统 支持自由</h2>
 <p>如今，中共势力对麻州政府的渗透可谓严重，但麻州毕竟是美国民主自由思想的摇篮。这里发生了“波士顿倾茶事件”、“勒星顿枪声”等美国独立革命的重要事件，也有举办过革命者秘密会议的芬钮厅（Faneuil Hall）。麻州人不论对内还是对外，向来有着崇尚自由的传统。</p>
 <p>1989年“六四”惨案发生后，时任波士顿市长的雷夫连（Ray Flynn）在波士顿中国城建立“天安门纪念碑”，刻文为中国民主运动献身的中华儿女致敬。</p>
-<figure id="attachment_12134287" style="width: 600px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/05/1-1-3MA-Covid-e1590382652203.jpg"><img class="size-large wp-image-12134287" src="https://i.epochtimes.com/assets/uploads/2020/05/1-1-3MA-Covid-600x450.jpg" alt="" width="600" height="450" /></a><figcaption class="wp-caption-text">波士顿华埠的天安门纪念碑。（刘景烨／大纪元）</figcaption></figure>
+<div align="center"><img src="/wyyzg-img/1-1-3MA-Covid-600x450.jpg" width=600></div>
+<div align="center">波士顿华埠的天安门纪念碑。（刘景烨／大纪元）</div><p>
 <p>2003年6月，时任麻州众议员的华殊（Martin Walsh）联合24位众议员和2位参议员，发信支持受到残酷迫害的法轮功学员起诉江泽民。</p>
 <p>2003年12月温家宝访问麻州期间，中共人员多次试图阻挡《大纪元时报》记者到机场和码头采访，并提出诸如“不在采访名单”、“防止抗议滋事”等借口。麻州官员则提出新闻自由原则，并证明《大纪元时报》记者已获得进场许可。他们在请示州长罗姆尼（Mitt Romney）后，要求中共人员让路。中共人员一意阻拦的情况下，波士顿警察出场带中共记者入场。</p>
 <p>到今年，在麻州政府公开配合中共“防疫大外宣”的背景下，仍有一批尊崇传统的民众站出来谴责中共隐瞒疫情、迫害人权的恶行。今年5月16日，数百民众齐聚斯旺普斯科特镇（Swampscott）的贝克州长宅邸，呼吁解封麻州，并谴责中共的恶行。</p>
