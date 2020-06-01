@@ -5,7 +5,7 @@
 <div align="center"><h1><a href="https://bit.ly/3c7dIuW">免疫良方</a></h1></div>
 
 <div align="center"><h1><a href="http://61.228.212.189/300">相关视频</a></h1></div>
-<div align="center"><h1><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h1></div>
+<div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg-1.md">下一頁</h6></div>
