@@ -8,7 +8,7 @@
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
 
-
+<a href =#15>华春莹煽动美国骚乱 网民狂贴六四照片回应</a><p>
 <a href =#14>川普突然率众走到教堂 持圣经喊话 震惊媒体</a><p>
 <a href =#13>美媒：多地美警向示威者下跪 大陆公安呢？</a><p>
 <a href =#12>五角大楼：美国暴动牵涉中共</a><p>
@@ -24,6 +24,58 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+
+<hr><a name=16>
+<h1 align="center"><b>华春莹煽动美国骚乱 网民狂贴六四照片回应</b></h1>
+<div align="center"><img src="/usbliky-img/7d1e8d5def9d5e190a4791a72b6da0ad-800x450.jpg" width=600></div>
+<div align="center">华春莹在推特煽动美国骚乱，宣称与非洲朋友站一起。遭大批网民贴出中共六四屠城的照片回呛。（合成图片）</div><p>
+
+【新唐人北京时间2020年06月02日讯】美国一名非裔男子之死，引发大批暴徒<a href="https://www.ntdtv.com/gb/砸店.htm">砸店</a>、<a href="https://www.ntdtv.com/gb/抢劫.htm">抢劫</a>等<a href="https://www.ntdtv.com/gb/骚乱.htm">骚乱</a>事件。中共开足马力渲染此事件，<a href="https://www.ntdtv.com/gb/华春莹.htm">华春莹</a>在推特煽动美国骚乱，宣称与非洲朋友站一起。遭大批网民贴出中共六四屠城的照片回呛。</p>
+<p>中共外交部发言人<a href="https://www.ntdtv.com/gb/华春莹.htm">华春莹</a>6月1日转推非洲联盟委员会主席马哈马特（Moussa Faki Mahamat）的推文，并附文说，“所有性命都珍贵。我们与非洲朋友站在一起，我们强烈反对一切形式的种族歧视，以及煽动性的种族主义和仇恨表达。”</p>
+</p>
+<blockquote class="twitter-tweet" data-width="500" data-dnt="true">
+<p lang="en" dir="ltr">All lives matter. We stand firmly with our African friends. We strongly oppose all forms of racial discrimination and inflammatory expressions of racism and hatred. <a href="https://t.co/bRXvafrKZH">https://t.co/bRXvafrKZH</a></p>
+<p>&mdash; Hua Chunying 华春莹 (@SpokespersonCHN) <a href="https://twitter.com/SpokespersonCHN/status/1267417514335539201?ref_src=twsrc%5Etfw">June 1, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>华春莹的推文一出，遭众多网友打脸，跟贴批评中共当局随意杀戮中国人，窃政70年，杀害上亿人，如今更是散播中共病毒谋杀全球人。</p>
+<p>还有网友贴出中共公安当街打死人的视频。也有网友贴出1989年六四事件中，中共在天安门屠杀学生的照片，回应华春莹。</p>
+<figure id="attachment_102861498" style="width: 600px" class="wp-caption alignnone"><a href="https://i.ntdtv.com/assets/uploads/2020/06/php4BYWlL.jpg"><img class="size-medium wp-image-102861498" src="https://i.ntdtv.com/assets/uploads/2020/06/php4BYWlL-600x397.jpg" alt="" width="600" height="397" /></a><figcaption class="wp-caption-text">有国外网友贴出“六四坦克人”的照片回应。（推特截图）</figcaption></figure>
+<figure id="attachment_102861501" style="width: 600px" class="wp-caption alignnone"><a href="https://i.ntdtv.com/assets/uploads/2020/06/phpURrvBu.jpg"><img class="size-medium wp-image-102861501" src="https://i.ntdtv.com/assets/uploads/2020/06/phpURrvBu-600x372.jpg" alt="" width="600" height="372" /></a><figcaption class="wp-caption-text">有网友批评说，“所有生命都很重要&#8230;除了中国人，对吗？”。（推特截图）</figcaption></figure>
+<p><strong>华春莹“不能呼吸” 被打脸</strong></p>
+<p>5月30日，华春莹也曾发推文说：“‘我不能呼吸’（I can’t breathe）。”这句故意隐射美国暴乱，为死者<a href="https://www.ntdtv.com/gb/弗洛伊德.htm">弗洛伊德</a>说话的贴文，同样被网友们的洗版式狂轰。</p>
+<p>“在全球杀害了30几万人的国家有什么资格说话”、“在拿别人的悲剧来幸灾乐祸之前，你有想过香港吗？”、“那在中国的非裔呢？当他们被霸凌时有人跟他们站在一起吗？”、“别人就暴力，自己就合法使用武力”。</p>
+<p>许多网友贴出“六四天安门”与“香港反送中”的照片呛道，“香港人能呼吸吗？”、“中国人能呼吸吗？”、“你没资格说话”。</p>
+<figure id="attachment_102860409" style="width: 600px" class="wp-caption alignnone"><a href="https://i.ntdtv.com/assets/uploads/2020/06/11.jpg"><img class="size-medium wp-image-102860409" src="https://i.ntdtv.com/assets/uploads/2020/06/11-600x384.jpg" alt="" width="600" height="384" /></a><figcaption class="wp-caption-text">（推特截图）</figcaption></figure>
+<p><strong>谁在有组织的煽动暴乱</strong></p>
+<p>在美国的明尼苏达州，非裔男子<a href="https://www.ntdtv.com/gb/弗洛伊德.htm">弗洛伊德</a>5月25日在警察执法过程中死亡。事发后，明州解雇了4名涉事警员，按压弗洛伊德的警员被控三级谋杀罪。但明州仍爆发示威抗议和暴力冲突，并扩散至全美100多座城市，且越演越烈，如今放火、<a href="https://www.ntdtv.com/gb/砸店.htm">砸店</a>、<a href="https://www.ntdtv.com/gb/抢劫.htm">抢劫</a>、打人，甚至抢银行，攻击白宫等<a href="https://www.ntdtv.com/gb/骚乱.htm">骚乱</a>仍在持续中。</p>
+<p>明州州长沃尔兹（Tim Waltz）说，目前的抗议局势已偏离初衷，与抗议弗洛伊德被警膝压致死已经没有关联，多处发生示威者焚烧和抢掠的现象。</p>
+</p>
+<blockquote class="twitter-tweet" data-width="500" data-dnt="true">
+<p lang="zh" dir="ltr">美国正在调查关于这次骚乱背后中国政府是如何煽动策划的。 <a href="https://t.co/jdKOuUkHmn">pic.twitter.com/jdKOuUkHmn</a></p>
+<p>&mdash; 郑静观察员，观察政经 (@Sister_Jing) <a href="https://twitter.com/Sister_Jing/status/1267126947047305216?ref_src=twsrc%5Etfw">May 31, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>美国总统川普则明确表示：暴力和蓄意破坏是由“安提法”（Antifa）和其它激进的左翼组织所领导，这些组织正在恐吓无辜者，摧毁工作，伤害企业并烧毁建筑物。并表示美国将把“安提法”指定为恐怖主义组织。</p>
+<p>美国司法部长巴尔（William Barr）也说，“起初的和平抗议正在被暴力和极端力量所劫持。”一些示威活动被“极端左翼组织所左右，他们另有目的”。</p>
+<p>“安提法”是一个极左翼组织，同共产主义和准马克思主义有关。网上出现大量评论，质疑暴乱背后有中共的影子。</p>
+<p>有网民说：“极左Antifa其实就是共产主义，只是换了个不同名字，煽动黑人上街，就像当年老毛叫农民打地主分田地一样，同一个套路，熟悉的手法！”</p>
+<p>种种迹象显示，这次暴乱事件根本就不是白种人和黑人的种族纷争，这是“安提法”有组织的搅乱美国的运动。</p>
+<p>不少人质疑：“安提法”是在配合中共指示，就非裔男子被警暴致死借题发挥制造混乱，而趁火打劫正是共产党的优良传统。</p>
+</p>
+<blockquote class="twitter-tweet" data-width="500" data-dnt="true">
+<p lang="en" dir="ltr">They are supported by the CCP, Russians and others. It’s not about us as a nation. It’s about those nations who want to see America destroyed. <a href="https://twitter.com/hashtag/stealthwar?src=hash&amp;ref_src=twsrc%5Etfw">#stealthwar</a> <a href="https://t.co/XSwyfdFz3M">https://t.co/XSwyfdFz3M</a> <a href="https://t.co/I2y1Ha8C2l">https://t.co/I2y1Ha8C2l</a></p>
+<p>&mdash; General Spalding (@robert_spalding) <a href="https://twitter.com/robert_spalding/status/1266763256112181248?ref_src=twsrc%5Etfw">May 30, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>五角大楼参谋长联席会议主席斯伯丁（Robert Spalding）说，这次暴乱的背后是共产主义势力有组织的暴乱，目的是毁坏美国。</p>
+<p>他在推文中写道，他们的暴乱活动得到中共、俄国人和其他反动人士的支持， “这与我们这个国家无关，这与那些想看到美国被摧毁的国家有关。”</p>
+<p>川普也在推文暗指，暴乱背后有中共因素，他评论有的新闻媒体只敢就暴乱问题指责俄罗斯，却不敢触及中共，因为他们需要现金，所以不能责怪中共。</p>
+<p>对川普总统的推文，斯伯丁将军则回应了三个字母：CCP （中共）</p>
+<p>（记者李韵报导/责任编辑：李泉）</p>
+网址转载：https://www.ntdtv.com/gb/2020/06/02/a102861496.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=14>
 <h1 align="center"><b>川普突然率众走到教堂 持圣经喊话 震惊媒体</b></h1>
 <div align="center"><img src="/usbliky-img/GettyImages-1216826630-600x400.jpg" width=600></div>
