@@ -7,6 +7,9 @@
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
+
+
+<a href =#14>川普突然率众走到教堂 持圣经喊话 震惊媒体</a><p>
 <a href =#13>美媒：多地美警向示威者下跪 大陆公安呢？</a><p>
 <a href =#12>五角大楼：美国暴动牵涉中共</a><p>
 <a href =#11>利用虚假宣传抹黑美国 蓬佩奥：中共在转移视线</a><p>
@@ -21,6 +24,42 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+<hr><a name=14>
+<h1 align="center"><b>川普突然率众走到教堂 持圣经喊话 震惊媒体</b></h1>
+<div align="center"><img src="/usbliky-img/GettyImages-1216826630-600x400.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John's Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+【大纪元2020年06月02日讯】（大纪元记者徐简综合报导）非裔男子佛洛德之死引发恐怖组织在美国各地发起暴动，6月1日美国总统<a href="https://www.epochtimes.com/gb/tag/%E5%B7%9D%E6%99%AE.html">川普</a>（特朗普）发表演说后突然步行走出白宫，径直走到被破坏的圣约翰公会<a href="https://www.epochtimes.com/gb/tag/%E6%95%99%E5%A0%82.html">教堂</a> （St. John&#8217;s Episcopal Church），他在那里持圣经留影，并誓言要保障美国安全。</p>
+<p><a href="https://www.epochtimes.com/gb/tag/%E5%B7%9D%E6%99%AE.html">川普</a>在白宫玫瑰园发表讲话说，承诺将立即采取总统行动，动员联邦资源来制止骚乱和抢劫，以“制止暴力，并恢复美国的安全与保障”。</p>
+<p>让媒体惊讶的是，川普总统讲话后忽然走出白宫，穿过白宫和圣约翰之间的被暴动者破坏的涂鸦区，一直走到有“总统<a href="https://www.epochtimes.com/gb/tag/%E6%95%99%E5%A0%82.html">教堂</a>”之称的<a href="https://www.epochtimes.com/gb/tag/%E5%9C%A3%E7%BA%A6%E7%BF%B0%E5%85%AC%E4%BC%9A%E6%95%99%E5%A0%82.html">圣约翰公会教堂</a> （St. John&#8217;s Episcopal Church），该教堂这周在暴力示威过程中遭到纵火破坏。现场的媒体出乎意料，纷纷拍照。</p>
+<p>当时在保安的开路下，总统领头走来，后面跟着大批白宫高级官员如国防部长埃斯珀（Esper）、司法部长巴尔（William Barr）、新闻秘书麦肯纳尼（Kayleigh McEnany）、<span class="s1">白宫幕僚长马克</span><span class="s2">‧</span><span class="s1">梅多斯（</span><span class="s2">Mark Meadows</span><span class="s1">）、川普</span>的女儿和女婿等人。</p>
+<p>福克斯新闻现场解说，“这是让人震惊的一幕，总统正在走向教堂，去那里（向被破坏的教堂）致敬。”</p>
+<p>到达教堂后，川普双手持着圣经，之后他又用右手举起圣经，站在教堂外说，“我们是全世界最棒的国家，我们将会保障她的安全”，“不用多久，我们（国家）就会恢复，并会比以前更加伟大。”</p>
+<div align="center"><img src="/usbliky-img/GettyImages-1216826585-600x387.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂</div><p>
+
+<div align="center"><img src="/usbliky-img/GettyImages-1216828184-600x400.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John&#8217;s Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+<div align="center"><img src="/usbliky-img/GettyImages-1240593578-600x400.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John&#8217;s Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+<div align="center"><img src="/usbliky-img/GettyImages-1216826627-600x400.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John&#8217;s Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+<div align="center"><img src="/usbliky-img/GettyImages-1216826602-600x400.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John&#8217;s Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+<div align="center"><img src="/usbliky-img/GettyImages-1216826617-600x375.jpg" width=600></div>
+<div align="center">6月2日，川普总统率领白宫官员，从白宫走到被破坏的圣约翰公会教堂 （St. John&#8217;s Episcopal Church）去表达敬意。(BRENDAN SMIALOWSKI/AFP via Getty Images)</div><p>
+
+<p>在川普达到圣约翰教堂之前，警方将那里的抗议者驱离，国会议员卢比奥说，那些人不是真正的抗议者，而是“专业人士”，他们故意留在教堂附近挑衅警方。</p>
+<p>“他们知道在晚上7点宵禁之前需要清理这条街道”，卢比奥在推特上写道，“但他们故意留下来抵抗警方，并获得他们想要的故事，即‘警察袭击了和平的抗议者’。”<br />
+<iframe src="https://www.youtube.com/embed/9pnmW-ANY3c" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen"></iframe></p>
+<p>责任编辑：李玲#</p>
+网址转载：https://www.epochtimes.com/gb/20/6/2/n12155081.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=13>
 <h1 align="center"><b>美媒：多地美警向示威者下跪 大陆公安呢？</b></h1>
 <div align="center"><img src="/usbliky-img/e9364fb4eda818ab9fd476ff36790b26-800x450.jpg" width=600></div>
