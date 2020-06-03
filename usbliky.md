@@ -1,12 +1,14 @@
 <div align="center"><img src="/usbliky-img/20200602053358222.jpg" width=800></div>
 
-<!-- <a name=top><div align="center"><h1>美国骚乱</h1></div> -->
+ <a name=top><div align="center"><h1>美国非裔男之死酿冲突</h1></div>
 
 <div align="center"><h3><a href="http://61.228.191.164/300">相关视频</a></h3></div>
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
+
+<a href =#19>28州调用国民警卫队 川普敦促迅速行动</a><p>
 <a href =#18>川普手握圣经 誓言结束骚乱</a><p>
 <a href =#17>【美股瞭望】周末暴动骚乱 无碍股市涨势</a><p>
 <a href =#16>立即行动制止暴力 川普：将为保护你们而战</a><p>
@@ -26,7 +28,23 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+<hr><a name=19>
+<h1 align="center"><b>28州调用国民警卫队 川普敦促迅速行动</b></h1>
+<div align="center"><img src="/usbliky-img/a9a2649903b24df1b192f8eb24d9f204-800x450.jpg" width=600></div>
+<div align="center">6月2日，美国国民警卫队正在华盛顿特区调动兵力。（Drew Angerer/Getty Images）</div><p>
 
+【新唐人北京时间2020年06月03日讯】截至周二（6月2日），全美已有28个州及华盛顿特区调用国民警卫队，应对非裔美国人弗洛伊德（George Floyd）死后的全国性骚乱。目前已征调的<a href="https://www.ntdtv.com/gb/国民警卫队.htm">国民警卫队</a>士兵及飞行员已逾2万人。</p>
+<p>视频显示，全国各地的骚乱都始于和平抗议，且大部分暴力、抢劫和纵火事件都是由左翼极端主义组织煽动的。</p>
+<p>国民警卫局（National Guard Bureau）局长约瑟夫·伦吉尔（Joseph Lengyel）在一份声明中表示，“我们所执行的最艰钜任务是在内乱时期做出反应。我们在这里保护生命和财产，维护和平、秩序与公共安全”。</p>
+<p>6月1日，<a href="https://www.ntdtv.com/gb/川普.htm">川普</a>总统敦促各州州长部署<a href="https://www.ntdtv.com/gb/国民警卫队.htm">国民警卫队</a>。此前一天，调用国民警卫队的已有23个州。</p>
+<p><a href="https://www.ntdtv.com/gb/川普.htm">川普</a>6月1日在白宫玫瑰园发表全国讲话，要求“市长和州长们必须建立起压倒性的执法力量，直到暴力平息”。</p>
+<p>他警告一些举措软弱的地方领导人：“如果一个城市或州拒绝采取必要的行动来保护其居民的生命和财产，那么我将部署美国军队，迅速为他们解决问题。”</p>
+<p>尽管近日<a href="https://www.ntdtv.com/gb/纽约.htm">纽约</a>州一到夜晚到处是骚乱和抢劫，但该州并没有部署国民警卫队。州长库默（Andrew Cuomo）把该责任归咎于纽约市市长白思豪（Bill de Blasio），称他拒绝了援助。骚乱中，至少2名警察被汽车撞倒，至少5名警察被枪击中，很多人遭到暴徒和抢劫者袭击。</p>
+<p>周二发布的“晨间咨询”（Morning Consult）民调显示，大多数美国人都支持调用军队来补充警力的不足，其中58%的登记选民说，他们赞成军队介入；33%的受访者“强烈支持”将军事用于此类目的；25%的人表示“多少”支持。</p>
+<p>（记者李佳欣综合报导/责任编辑：东野）</p>
+网址转载：https://www.ntdtv.com/gb/2020/06/03/a102862126.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=18>
 <h1 align="center"><b>川普手握圣经 誓言结束骚乱</b></h1>
 <div align="center"><img src="/usbliky-img/GettyImages-1216826602-1-600x400.jpg" width=600></div>
