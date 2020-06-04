@@ -7,6 +7,8 @@
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
+
+<a href =#21>庄德利：有人在暗处煽动周六游行发生骚乱</a><p>
 <a href =#20>程晓容：中共党媒借美国暴乱抹黑反送中</a><p>
 <a href =#19>28州调用国民警卫队 川普敦促迅速行动</a><p>
 <a href =#18>川普手握圣经 誓言结束骚乱</a><p>
@@ -28,6 +30,30 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+
+<hr><a name=21>
+<h1 align="center"><b>庄德利：有人在暗处煽动周六游行发生骚乱</b></h1>
+<div align="center"><img src="/usbliky-img/23142534-600x400.jpg" width=600></div>
+<div align="center">多伦多市长庄德利周二（6月2日）表示，警方已经留意到有人在社交媒体上发文，煽动在可能周六的大游行中制造某种不良行为。（加通社）</div><p>
+
+【大纪元2020年06月04日讯】（大纪元记者王兰多伦多报导）多伦多市长庄德利周二（6月2日）表示，警方已经留意到有人在社交媒体上发文，<a href="https://www.epochtimes.com/gb/tag/%E7%85%BD%E5%8A%A8.html">煽动</a>在可能周六的大游行中制造某种不良行为。</p>
+<p>庄德利周二的虚拟市政厅会议上对想要引起骚乱的人提出警告。</p>
+<p>“我想对那些人说，如果你们是那些想要引起麻烦的人，那些花大量的时间坐在地下室里，发送<a href="https://www.epochtimes.com/gb/tag/%E7%85%BD%E5%8A%A8.html">煽动</a>骚乱的信息，别再这样做了，这不是多伦多人做事的方式。”</p>
+<p>庄德利表示相信“在6月6日或任何其它日期，参加游行的理性的人们对任何形式的骚乱不感兴趣。”</p>
+<p>他也呼吁计划周六参加游行的人和平，但也提醒市民们为可能的骚乱做好准备。</p>
+<p>多伦多市中心的一些店面从周一开始都已用木板将橱窗和大门封上，或者是将店内值钱的商品全部下架，以免遭到掳掠。</p>
+<figure id="attachment_12158932" style="width: 600px" class="wp-caption alignnone"><a href="https://i.epochtimes.com/assets/uploads/2020/06/23300902.jpg"><img class="size-large wp-image-12158932" src="https://i.epochtimes.com/assets/uploads/2020/06/23300902-600x382.jpg" alt="" width="600" height="382" /></a><figcaption class="wp-caption-text">商店被钉上木板。（加通社）</figcaption></figure>
+<p>多伦多警方发言人发给NARCITY的电子邮件中表示，“我们知道有关多伦多抗议活动的各种社交媒体帖子。我们将继续监视并在必要时作出回应，以确保所涉所有人的安全。”</p>
+<p>庄德利也对警察的反应做出评论，他表示警察将“保持警惕”以确保城市安全。</p>
+<p>他说：“我们可以进行任何必要的抗议或纪念，以发出自己的声音。坦率地说，我认为绝大多数表示关切的人，都是多伦多人，对看到其它城市正在进行的那种活动，无论是抢劫、给他人造成财产损失或其它不当行为毫无兴趣。”</p>
+<p>有未经证实的报导指出，1个称为Black Lives Matter的小组，正组织周六下午在多伦多的1场游行，由Trinity Bellwoods公园出发，游行至女王公园。</p>
+<p>来自该团体的传单，将活动描述为“和平抗议，抗议没有武装的黑人，在警察手中死亡，以及他们不断面对种族主义”。</p>
+<p>同样在周二，安省省长道格·福特向记者说，安省的人们“不会容忍”在美国看到的那种骚乱。</p>
+<p>从美国明尼苏达州的警暴事件引发到全国骚乱中，美国总统川普将民间极左翼组织Antifa定性为恐怖组织。</p>
+<p>责任编辑：严枫</p>
+网址转载：https://www.epochtimes.com/gb/20/6/3/n12158899.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=20>
 <h1 align="center"><b>程晓容：中共党媒借美国暴乱抹黑反送中</b></h1>
 <div align="center"><img src="/usbliky-img/GettyImages-1242453320-600x400.jpg" width=600></div>
