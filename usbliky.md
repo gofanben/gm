@@ -88,9 +88,6 @@
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
-网址转载：
-
-<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=23>
 <h1 align="center"><b>【新闻看点】美警港警6大不同 中共趁乱大外宣</b></h1>
 <div align="center"><img src="/usbliky-img/70b01f2ed53274cf97155f2b5831a040-600x400.jpg" width=600></div>
