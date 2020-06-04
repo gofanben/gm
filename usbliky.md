@@ -7,6 +7,7 @@
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
+<a href =#29>防乱中遭抢劫 沃尔玛部分商店下架枪支弹药</a><p>
 <a href =#28>暴徒自食恶果 抢走苹果手机暴露自己位置</a><p>
 <a href =#27>纽约宵禁骚乱不绝 华人民众怎么看？</a><p>
 <a href =#26>《石涛聚焦》中国留学生 西雅图参与“示威”抢得Gucci手袋 网上炫耀</a><p>
@@ -36,6 +37,23 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+<hr><a name=29>
+<h1 align="center"><b>防乱中遭抢劫 沃尔玛部分商店下架枪支弹药</b></h1>
+<div align="center"><img src="/usbliky-img/GettyImages-1225856879-600x400.jpg" width=600></div>
+<div align="center">近来由骚乱暴力事件引起的枪支窃案频传，美国零售业巨头沃尔玛（Walmart）已决定在某些商店里，将枪支和弹药暂时撤出销售区。(Scott Olson/Getty Images)</div><p>
+
+【大纪元2020年06月04日讯】（大纪元记者陈霆综合报导）<a href="https://www.epochtimes.com/gb/tag/%E7%BE%8E%E5%9B%BD.html">美国</a>非裔男子<a href="https://www.epochtimes.com/gb/tag/%E4%B9%94%E6%B2%BB%C2%B7%E5%BC%97%E6%B4%9B%E4%BC%8A%E5%BE%B7.html">乔治·弗洛伊德</a>（George Floyd）之死引发的抗议、骚乱事件仍在持续，导致枪支窃案频传，<a href="https://www.epochtimes.com/gb/tag/%E7%BE%8E%E5%9B%BD.html">美国</a>零售业巨头<a href="https://www.epochtimes.com/gb/tag/%E6%B2%83%E5%B0%94%E7%8E%9B.html">沃尔玛</a>（Walmart）已决定在某些商店里，将枪支和<a href="https://www.epochtimes.com/gb/tag/%E5%BC%B9%E8%8D%AF.html">弹药</a>暂时撤出销售区。</p>
+<p>据美国烟酒枪炮及爆裂物管理局（ATF）的消息，最近发生了许多起枪械抢劫案。总部位于亚特兰大的查克枪械公司（Chuck&#8217;s Firearms Inc.）被至少7名嫌犯，窃走42把枪支。在纽约州水牛城的一间当铺里，也被窃走9把散弹枪、三把步枪。</p>
+<p>“作为负责任的狩猎和运动枪支销售商，为了谨慎起见，在部分商店里我们已将枪支<a href="https://www.epochtimes.com/gb/tag/%E5%BC%B9%E8%8D%AF.html">弹药</a>暂时移出销售楼层”，<a href="https://www.epochtimes.com/gb/tag/%E6%B2%83%E5%B0%94%E7%8E%9B.html">沃尔玛</a>发言人周三（3日）说，“这些商品仍可购买，但会保存在安全的房间里。”</p>
+<p>各地的骚乱与暴力事件，致使许多零售商或企业遭到掠夺。除了沃尔玛之外，像是塔吉特百货、Apple店面、亚马逊旗下的全食超市，以及一些精品店、餐馆都遭到暴徒洗劫、砸店。</p>
+<p>在此之前，约有12家沃尔玛卖场遭到破坏。在周日（5月31日）晚上，沃尔玛一度关闭了全国数百家商店。</p>
+<p>沃尔玛发言人表示，到目前为止，公司遭受了包括抢劫在内的其它财产损失，但所幸没有员工受伤。然而，某些抢劫、破坏事件发生在白天，令人感到不安。</p>
+<p>多年来，沃尔玛一直在调整枪支政策，例如1993年停止贩售手枪，2015年停止销售半自动步枪，2018年2月，佛罗里达州发生枪击案，导致17人丧生。沃尔玛将购枪最低年龄提高到21岁。</p>
+<p>在2019年，因为在店内发生了两起致命枪击案，沃尔玛进一步禁止消费者在店内携带枪支，并停止销售某些手枪和突击步枪的弹药。</p>
+<p>责任编辑：叶紫微#</p>
+网址转载：https://www.epochtimes.com/gb/20/6/4/n12159942.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=28>
 <h1 align="center"><b>暴徒自食恶果 抢走苹果手机暴露自己位置</b></h1>
 
