@@ -32,6 +32,13 @@
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-swpnjq.mp3?raw=true"> 0605-swpnjq.mp3</a>
 <hr>
 
+陈破空纵论天下➤➤香港维园！万千蜡烛照亮黑暗天空。重磅！中国球星发表反共宣言。北京左右韩国大选？加拿大抛弃华为
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-chenpokong.mp4?raw=true"> 0605-chenpokong.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-chenpokong.mp3?raw=true"> 0605-chenpokong.mp3</a>
+<hr>
+
 中国禁闻➤➤【中国禁闻】6月4日完整版
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4?raw=true"> 0604-ckjw.mp4</a>
