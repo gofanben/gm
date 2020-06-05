@@ -1,8 +1,10 @@
 <div align="center"><a href="https://bit.ly/2VIs51L"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
+</p>
 
 
+下载方式：鼠标右键点击标题，再点击 链接另存为(K)... 或 Save link as...
 
-下载方式：鼠标右键点击标题，再点击 链接另存为(K)... 或 Save link as...(所有音、视频都已压缩至20MB以下)
+(所有音、视频都已压缩至20MB以下)
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
@@ -21,6 +23,15 @@
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-swkd.mp3?raw=true"> 0605-swkd.mp3</a>
 <hr>
+
+中国禁闻➤【中国禁闻】6月4日完整版
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4?raw=true"> 0604-ckjw.mp4</a>
+
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp3?raw=true"> 0604-ckjw.mp3</a>
+<hr>
+
 
 江峰时刻➤江峰最新MV《人民》—献给六四纪念日31周年（词曲：大雄；江峰、大雄演唱）
 
