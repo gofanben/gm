@@ -23,6 +23,13 @@
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-swkd.mp3?raw=true"> 0605-swkd.mp3</a>
 <hr>
 
+新聞拍案驚奇➤➤🚨解放军水炮车现香港，国安法威胁下，港人多区同时纪念六四，坐满维园，高喊香港独立；郭文贵“建国”，国足名将郝海东“惊艳”登场，公开灭共；防病毒，牡丹江全民检疫；习李产生裂痕？
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-swpnjq.mp4?raw=true"> 0605-swpnjq.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-swpnjq.mp3?raw=true"> 0605-swpnjq.mp3</a>
+<hr>
+
 中国禁闻➤➤【中国禁闻】6月4日完整版
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4?raw=true"> 0604-ckjw.mp4</a>
