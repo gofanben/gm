@@ -7,6 +7,8 @@
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
+<a href =#37>组图：防抢劫 曼哈顿第变“木板城”</a><p>
+<a href =#36>库默吁检察官严惩抢劫者 敦促设保释金</a><p>
 <a href =#35>弗洛伊德胞弟纽约集会发声：拒绝破坏行为</a><p>
 <a href =#34>邢天行：从泰国骚乱到美国暴乱，秘辛与假图透视隐情</a><p>
 <a href =#33>美司法部長：在暴力騷亂中已逮捕51名嫌犯</a><p>
@@ -43,6 +45,68 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+
+<hr><a name=37>
+<h1 align="center"><b>组图：防抢劫 曼哈顿第变“木板城”</b></h1>
+<div align="center"><img src="/usbliky-img/98b70a15197b4d21c4c0d54063f27e0f-450x338-1.jpg" width=600></div>
+<div align="center">梅西百货首层，被木板包裹起来。（林丹／大纪元）</div><p>
+
+【大纪元2020年06月05日讯】（大纪元记者林丹美国纽约报导）<a href="https://www.epochtimes.com/gb/tag/%E6%9B%BC%E5%93%88%E9%A1%BF.html">曼哈顿</a>是世界的中心，<a href="https://www.epochtimes.com/gb/tag/%E7%AC%AC%E4%BA%94%E5%A4%A7%E9%81%93.html">第五大道</a>被誉为“极致奢华的梦幻大道”，马路两旁玻璃幕墙的高楼大厦林立，这里有世界上最集中的顶级品牌奢侈品店、精品店。但是，6月的第五大道，昔日琳琅满目的橱窗，现被一块块<a href="https://www.epochtimes.com/gb/tag/%E6%9C%A8%E6%9D%BF.html">木板</a>所代替。</p>
+<p>近日因明州男子弗洛伊德之死所引发的抗议演变为骚乱和<a href="https://www.epochtimes.com/gb/tag/%E6%8A%A2%E5%8A%AB.html">抢劫</a>，祸及<a href="https://www.epochtimes.com/gb/tag/%E6%9B%BC%E5%93%88%E9%A1%BF.html">曼哈顿</a>的商家，先是5月31日曼哈顿下城苏活区（SOHO）的奢侈品店遭到洗劫，第二天6月1日晚纽约市实施宵禁，但是宵禁无效，当晚不法分子在<a href="https://www.epochtimes.com/gb/tag/%E7%AC%AC%E4%BA%94%E5%A4%A7%E9%81%93.html">第五大道</a>打砸抢，许多商店的橱窗被砸烂、财物被抢，包括萨克斯（Saks），卡地亚（Cartier），哈里‧温斯顿（Harry Winston）和杜嘉班纳（Dolce&amp;Gabbana）等奢侈品店，都遭到了抢掠，梅西百货也损失惨重。</p>
+<div align="center"><img src="/usbliky-img/0324c398d04684711336062223c6d781-450x338.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗被钉上了木板，防范骚乱者抢劫。（林丹／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/0463a174917dfebd0dd3477c52a05950-450x338.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗被钉上了木板，防范不法分子抢劫。（林丹／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/48fa337f8732f17c642408fe203b2b37-450x338.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗被钉上了木板，防范不法分子打着抗议的名义抢劫。（林丹／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/58225872-692F-40AC-82DD-94D88888E694-600x450.jpg" width=600></div>
+<div align="center">图为梅西百货（Ｍacy’s）。（林丹/大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/2FFAD250-D9FE-415A-B488-395CE3487576-600x450.jpg" width=600></div>
+<div align="center">图为服装连锁店H&M。（林丹/大纪元）</div><p>
+<p>从本周开始，五大道的精品店纷纷请木工钉上木板，把玻璃橱窗、玻璃门包起来进行防护。</p>
+<p>记者在4日见到，昔日繁华的第五大道成了“木板之城”，高楼大厦下都被木板包裹。相信这是纽约有史以来从来没有过的景象。</p>
+<p>&nbsp;</p>
+<div align="center"><img src="/usbliky-img/ef2e9101ac9f9be758188f195b626764-1-600x400.jpg" width=600></div><p>
+<p><iframe width="640" height="360" src="https://www.youtube.com/embed/I5rh8mlg--A?feature=oembed" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></p>
+<div align="center"><img src="/usbliky-img/a235fbb1c9afef6ac213b478c6ca9494-450x338.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗被钉上了木板，有些木板上有图案，增添了些许色彩。（林丹／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/7cf39e64aa678bac2c01078c2cac7c02-450x338.jpg" width=600></div>
+<div align="center">曼哈顿第五大道的Bestbuy被钉上木板，防不法分子“假抗议真抢劫”。（林丹／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/5d61412118b6200baeafa7da692d17fd-450x300.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗和玻璃门被钉上了木板，防骚乱者抢劫。（宋升华／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/289afc1555cec29bef763d9f1e160b1e-450x253.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗和玻璃门被钉上了木板，大楼保安加强安保，防范抢劫。（宋升华／大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/8c35791c42f299dc5f382a03ebd349bd-450x253.jpg" width=600></div>
+<div align="center">曼哈顿五大道的名店橱窗和玻璃门被木板所包裹。（宋升华／大纪元）</div><p>
+<p>纽约的疫情才刚有所缓和，整座城市还没有来得及喘口气，又陷入了极端抗议所引发的骚乱和抢劫；正准备重新开门迎客的商家，又被一块块的木板所钉上。</p>
+<p>骚乱的背后是社会的尘渣泛起，负面因素被触发，暴徒趁火打劫，魔性大发，唯恐天下不乱。这些，可能就是自由主义泛滥、借“民主”旗号而是非不分、以及变异的文化所带来之痛。</p>
+<div align="center"><img src="/usbliky-img/23F8202E-0334-47AD-A107-98E2C49B6141-600x450.jpg" width=600></div>
+<div align="center">曼哈顿第五大道高楼大厦的橱窗和落地玻璃，被钉上木板。（林丹/大纪元）</div><p>
+<div align="center"><img src="/usbliky-img/ABF37BDE-83D8-4BF8-A412-0F9A4CD1927B-600x450.jpg" width=600></div>
+<div align="center">曼哈顿第五大道名店鳞次栉比，如今它们的橱窗和落地玻璃被钉上了木板。（林丹/大纪元）</div><p>
+<p>责任编辑：李悦</p>
+网址转载：https://www.epochtimes.com/gb/20/6/5/n12163081.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
+<hr><a name=36>
+<h1 align="center"><b>库默吁检察官严惩抢劫者 敦促设保释金</b></h1>
+<div align="center"><img src="/usbliky-img/9b30b5e5b9c375b4893743a2b2d336bb-600x400.jpg" width=600></div>
+<div align="center">据非官方的学者统计，纽约市此波遭抢的商家已损失超过数千万元，而抢匪因保释金改革法案再被释放到街上，继续犯案。 (Michael Appleton/Mayoral Photography Office)</div><p>
+
+【大纪元2020年06月05日讯】（大纪元记者黄小堂美国<a href="https://www.epochtimes.com/gb/tag/%E7%BA%BD%E7%BA%A6.html">纽约</a>报导）近日无政府主义者和<a href="https://www.epochtimes.com/gb/tag/%E6%8A%A2%E5%8A%AB.html">抢劫</a>犯利用抗议游行作为掩护，洗劫纽约市的商家财物并攻击警官。纽约州长库默4日在记者会上表示，利用抗议游行来抢劫和袭警是不可原谅的行为，他呼吁检察官对抢劫者加重刑罚，使他们不适用保释金改革法的法律，不能再次犯案。</p>
+<p>库默似乎4日才意识到他所签署的保释金改革法的漏洞在助长犯罪，并让保释金改革延伸的问题再度成为市民关注的焦点。今年1月州长签署生效的州法——保释金改革法案，让轻罪犯案者被逮补后，无须保释金即可释放，这令执法人员感到沮丧。</p>
+<p><a href="https://www.epochtimes.com/gb/tag/%E7%BA%BD%E7%BA%A6.html">纽约</a>市警局长谢伊（Dermot Shea）说，他对那些因该法案快速获释的<a href="https://www.epochtimes.com/gb/tag/%E6%8A%A2%E5%8A%AB.html">抢劫</a>者“感到挫折”；第一线执法的市警局总监莫纳汉（Terence Monahan）周二接受《纽约邮报》采访时表示，“几乎所有”被逮捕的人都将重返街头，自由行走继续破坏。</p>
+<p>库默则声称，“如果警察逮捕抢劫者，第二天又返回街上再次进行抢劫，那将是荒谬的”。</p>
+<p>州长在4日的记者会对媒体表示，“地方检察官应起诉这些抢劫者，他们应该被拘留，（法官应）设立保释金条件”；他坚持认为，检察官可对抢劫犯的罪行进行“适当起诉”（charge appropriately），让他们被关押起来。</p>
+<p>曾任地方检察官的州长库默表示，“地检有权力阻止抢劫者再次回到街上，以二级入室盗窃重罪（Burglary in the Second Degree）起诉的嫌犯，可能使用危险的工具，例如撬棍、岩石、砖头等&#8230;&#8230;这些人应该被指控他们犯下的罪行，并设立保释金条件”。</p>
+<p>州长说，他理解目前政治氛围，并再次强调应对抢劫者进行“适当起诉”。</p>
+<p>曼哈顿地区检察官万斯（Cyrus Vance Jr）向媒体表示，“迄今为止，目前曼哈顿绝大多数抢劫案都不能被指控为二级入室盗窃重罪，因为这些案件的事实不支持这种指控。”“问题在于，很难举证卷入抢劫行为的人与最初闯入商店的人有任何关系。”</p>
+<p>万斯也呼吁州议院，修改保释金改革法并让州长使用其紧急权力，以便法官可对抢劫者设立保释金。</p>
+<p>州长库默连日来多次重申，要把和平抗议者和抢劫者分开来看，那些抢劫者利用抗议作为掩护；据非官方的学者统计，遭抢的纽约市的精品店和小商家已损失超过数千万元，还未计入疫情冲击的损失。◇</p>
+<p>责任编辑：李悦</p>
+网址转载：https://www.epochtimes.com/gb/20/6/5/n12162969.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=35>
 <h1 align="center"><b>弗洛伊德胞弟纽约集会发声：拒绝破坏行为</b></h1>
 <div align="center"><img src="/usbliky-img/2020-06-05_140812.jpg" width=600></div>
