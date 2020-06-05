@@ -1,6 +1,6 @@
 <div align="center"><a href="https://bit.ly/2VIs51L"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
 
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+
 
 下载方式：鼠标右键点击标题，再点击 链接另存为(K)... 或 Save link as...(所有音、视频都已压缩至20MB以下)
 
