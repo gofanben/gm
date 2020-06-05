@@ -6,9 +6,11 @@
 
 (所有音、视频都已压缩至20MB以下)
 
+2020.06.05></p>
+
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
-天亮时分➤➤郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?(政论天下第177集 20200604)天亮时分
+天亮时分➤➤郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?(政论天下第177集 20200604)
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-tlsf.mp4?raw=true"> 0605-tlsf.mp4</a>
 
