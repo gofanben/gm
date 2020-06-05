@@ -6,7 +6,7 @@
 
 (所有音、视频都已压缩至20MB以下)
 
-2020.06.05></p>
+2020.06.05
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
