@@ -41,6 +41,13 @@
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0606-ANTIFA.mp3?raw=true">0606-ANTIFA.mp3</a>
 <hr>
 
+【禁闻】美国非裔骚乱 部分华人趁火打劫害了谁 
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-jinwen.mp4?raw=true"> 0606-ANTIFA.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-jinwen.mp3?raw=true">0606-ANTIFA.mp3</a>
+<hr>
+
 2020.06.05
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
