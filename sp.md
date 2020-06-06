@@ -10,15 +10,24 @@
 
 2020.06.06
 
- <!-- 中国禁闻➤➤【中国禁闻】6月5日完整版
+中国禁闻➤➤【中国禁闻】6月5日完整版
 
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4"> 0604-ckjw.mp4</a>
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-ckjw.mp4"> 0605-ckjw.mp4</a>
 
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp3"> 0604-ckjw.mp3</a>
-<hr> -->
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-ckjw.mp3"> 0605-ckjw.mp3</a>
+<hr>
+
+新闻看点➤➤王沪宁叫板李克强？地摊经济火速被禁；李克强上演在中国“说实话的代价”；耿爽离职发言人，外交模拟器成历史；中共民航居然投降了？脸书针对官媒有新动作：大外宣通通贴上标签！
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-swkd.mp4"> 0606-swkd.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-swkd.mp3"> 0606-swkd.mp3</a>
+<hr>
 
 
 新聞拍案驚奇 大宇➤➤🔥罢韩登场！若罢免失败，韩国瑜将获“免死金牌”；吉林地摊面临天价管理费！中国9亿人月入不到2千，地方债藏巨雷；一直派人潜伏美国各处，知情人曝中共布局；郝海东转战推特？耿爽卸任
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-swpnjq.mp4"> 0606-swpnjq.mp4</a>
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0606-swpnjq.m4a"> 0606-swpnjq.m4a</a>
 <hr>
@@ -60,7 +69,7 @@
 
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
-天亮时分➤➤郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?(政论天下第177集 20200604)
+天亮时分➤➤郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?(政论天下第177集 20200604)🔥
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-tlsf.mp4"> 0605-tlsf.mp4</a>
 
