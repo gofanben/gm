@@ -15,6 +15,12 @@
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp3?raw=true"> 0604-ckjw.mp3</a>
 <hr> -->
 
+
+新聞拍案驚奇 大宇➤➤🔥罢韩登场！若罢免失败，韩国瑜将获“免死金牌”；吉林地摊面临天价管理费！中国9亿人月入不到2千，地方债藏巨雷；一直派人潜伏美国各处，知情人曝中共布局；郝海东转战推特？耿爽卸任
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-swpnjq.m4a?raw=true"> 0606-swpnjq.m4a</a>
+<hr>
+
 陈破空纵论天下➤➤李克强一招击败习近平！外交部内斗，耿爽出局。中国公司正被赶出华尔街？
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0606-chenpokong.mp3?raw=true"> 0605-chenpokong.mp3</a>
