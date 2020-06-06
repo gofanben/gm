@@ -7,13 +7,7 @@
 (所有音、视频都已压缩至20MB以下)
 
 2020.06.06
-
- <!-- 中国禁闻➤➤【中国禁闻】6月5日完整版
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4?raw=true"> 0604-ckjw.mp4</a>
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp3?raw=true"> 0604-ckjw.mp3</a>
-<hr> -->
+<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
 陈破空纵论天下➤➤李克强一招击败习近平！外交部内斗，耿爽出局。中国公司正被赶出华尔街？
 
@@ -22,10 +16,17 @@
 
 文昭談古論今➤➤中国地摊“月入三万”大跃进！习、李拆招新“泄密”；郝海东倒共宣言拉倒戈潮（文昭谈古论今20200605第764期）.mp4
 
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-wenzhao.mp4?raw=true"> 0604-ckjw.mp4</a>
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-wenzhao.mp4?raw=true"> 0606-wenzhao.mp4</a>
 
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-wenzhao.mp3?raw=true"> 0604-ckjw.mp3</a>
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-wenzhao.mp3?raw=true"> 0606-wenzhao.mp3</a>
+<hr>
 
+【世事关心】➤➤北京强推“港版国安法” 世界对中共独裁政权说“不”
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-xxgx.mp4?raw=true"> 0606-xxgx.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-xxgx.mp3?raw=true">0606-xxgx.mp3</a>
+<hr>
 
 2020.06.05
 
