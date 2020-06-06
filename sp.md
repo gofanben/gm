@@ -7,7 +7,13 @@
 (所有音、视频都已压缩至20MB以下)
 
 2020.06.06
-<div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
+
+ <!-- 中国禁闻➤➤【中国禁闻】6月5日完整版
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp4?raw=true"> 0604-ckjw.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0604-ckjw.mp3?raw=true"> 0604-ckjw.mp3</a>
+<hr> -->
 
 陈破空纵论天下➤➤李克强一招击败习近平！外交部内斗，耿爽出局。中国公司正被赶出华尔街？
 
@@ -26,6 +32,13 @@
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0606-xxgx.mp4?raw=true"> 0606-xxgx.mp4</a>
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0606-xxgx.mp3?raw=true">0606-xxgx.mp3</a>
+<hr>
+
+【新唐人电视台2020年06月06日訊】美司法部调查暴乱 前情报官员解析ANTIFA 
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-ANTIFA.mp4?raw=true"> 0606-ANTIFA.mp4</a>
+
+<a href="https://github.com/gofanben/gm/blob/master/git-download/0606-ANTIFA.mp3?raw=true">0606-ANTIFA.mp3</a>
 <hr>
 
 2020.06.05
