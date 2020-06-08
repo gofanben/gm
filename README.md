@@ -38,8 +38,8 @@
  <tr><td width=900><h3><b><a href="https://bit.ly/2zg5JNi">➤病毒針對中共而來 免疫良方</a></b></h3></tr>
 </td> 
  <tr><td width=900><h3><b><a href="https://bit.ly/3c7dIuW">➤免疫良方</a></b></h3></tr>
-<tr><td width=900><h3><b><a href="https://bit.ly/3eUyoaw">➤最新评论 视频下载</a></b></h3></tr>
-</td>
+ <!-- <tr><td width=900><h3><b><a href="https://bit.ly/3eUyoaw">➤最新评论 视频下载</a></b></h3></tr>
+</td> -->
 </td>
  <tr><td width=900><h3><b><a href="https://bit.ly/2XUcflF">➤美国骚乱</a></b></h3></tr>
 </td> 
