@@ -4,7 +4,7 @@
 
 <div align="center"><h1><a href="https://bit.ly/3c7dIuW">免疫良方</a></h1></div>
 
-<div align="center"><h3><a href="http://61.228.216.86/300">相关视频 http://61.228.216.86/300</a></h3></div>
+<div align="center"><h3><a href="http://61.228.176.63/300">相关视频 http://61.228.176.63/300</a></h3></div>
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
