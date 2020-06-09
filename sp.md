@@ -46,7 +46,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 下载位置 : https://is.gd/okhG1X<br>
 下载位置 : https://is.gd/QVnHzA
 
-下载方式：<br>
+GitHub下载方式：<br>
 手机：对着擋按名稱长按下载连结；或點檔案名稱，再对着 View raw 长按下载连结<br>
 桌机：点档案，再点 View raw，或对着 View raw 右键另存为..
 
