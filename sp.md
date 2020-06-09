@@ -14,7 +14,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 请支持我们：https://bit.ly/2Mh6zNe
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.06 新闻评论下载</div><p>
+<div align="center">2020.06.09 新闻评论下载</div><p>
 
 文昭谈古论今20200608第766期➤➤李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
