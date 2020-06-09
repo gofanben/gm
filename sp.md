@@ -16,7 +16,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.06 新闻评论下载</div><p>
 
-🔥陈破空纵论天下➤➤争夺接班人！习近平最不喜欢的人，竟忽然现身梁家河。美国示威降温，北京大失所望&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 声音档 26.9MB
+🔥陈破空纵论天下➤➤争夺接班人！习近平最不喜欢的人，竟忽然现身梁家河。美国示威降温，北京大失所望(声音档 26.9MB)
 
 下载位置(6月16日前有效) : https://bit.ly/2BFnE1d
 
