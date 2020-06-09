@@ -12,3 +12,19 @@
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
 
 请支持我们：https://bit.ly/2Mh6zNe
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+
+
+文昭谈古论今20200608第766期➤➤李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
+
+下载位置 : https://is.gd/NtJ5Pn<br>
+                https://is.gd/6qmN4R
+
+【新闻看点 李沐阳06.08】➤➤中共新规定：党员的20个不准！中共抗疫白皮书，给自己立“贞节牌坊”？铁杆伊朗嘲笑中共确诊数；破坏美国研发疫苗，北京阻止病毒样本分享，南方8省洪灾严重，醴陵河水位日涨4米
+
+下载位置 : https://is.gd/Rx9P1j
+
+新聞拍案驚奇 大宇➤➤🔥💥中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
+
+下载位置 : https://is.gd/jALCBg
