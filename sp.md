@@ -19,7 +19,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 文昭谈古论今20200608第766期➤➤李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
 下载位置 : https://is.gd/NtJ5Pn<br>
-                https://is.gd/6qmN4R
+&nbsp;&nbsp;&nbsp;&nbsp;https://is.gd/6qmN4R
 
 【新闻看点 李沐阳06.08】➤➤中共新规定：党员的20个不准！中共抗疫白皮书，给自己立“贞节牌坊”？铁杆伊朗嘲笑中共确诊数；破坏美国研发疫苗，北京阻止病毒样本分享，南方8省洪灾严重，醴陵河水位日涨4米
 
