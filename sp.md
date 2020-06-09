@@ -16,6 +16,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.06 新闻评论下载</div><p>
 
+🔥陈破空纵论天下➤➤争夺接班人！习近平最不喜欢的人，竟忽然现身梁家河。美国示威降温，北京大失所望
+
+下载位置(6月16日前有效) : https://bit.ly/2BFnE1d
+
+🌟如果您喜欢陳破空纵论天下，诚请打赏。不胜感谢！ Paypal賬號：https://www.paypal.me/ChenPokong<br>
+比特幣Bitcoin賬號：1Lo1yQyzsXNxxc13ohS26zKHcpHfqzU8ig <br>
+或订阅陳破空会员网站：chenpokongvip.com 全览他的节目音频、文字、政论与文学作品、段子，以及在线互动。支持破空，支持中国民主化！
+
 🔥文昭谈古论今20200608第766期➤➤李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
 下载位置 : https://is.gd/NtJ5Pn<br>
@@ -25,7 +33,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载位置 : https://is.gd/Rx9P1j
 
-🔥新聞拍案驚奇 大宇➤➤💥中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
+🔥新聞拍案驚奇 大宇➤➤中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
 下载位置 : https://is.gd/jALCBg
 
