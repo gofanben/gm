@@ -16,6 +16,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
 
+🔥【新闻看点 李沐阳06.09】➤➤任正非批中共“砸钱不行”，吃诚实豆沙包？世卫爆料：中共“重大拖延”；谭书记变谭总机，当机10秒；张晓明“杀气腾腾”，预示加大镇压力度？去年8月病毒已传播？哈佛2大证据
+
+【视频下载】 : https://is.gd/BSEgOi
+
 🔥陈破空纵论天下➤➤紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年&nbsp;【声音档 26.9MB】
 
 【音頻下载】(6月17日前有效) : https://bit.ly/3dPDi8r
