@@ -11,8 +11,6 @@
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
 
-请支持我们：https://bit.ly/2Mh6zNe
-
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
 
@@ -31,6 +29,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥江峰时刻（江峰漫谈20200609第186期）➤➤地摊经济，百姓的无奈与中共的谋算； 习李不是内斗而是携手左转，开启中共新闭关锁国时代；香港反送中一周年
 
 【视频】 : https://is.gd/hV7xEn
+
 【视频】 : https://is.gd/P6Dr9u
 
 🔥陈破空纵论天下➤➤紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年&nbsp;【声音档 26.9MB】
