@@ -14,7 +14,13 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 请支持我们：https://bit.ly/2Mh6zNe
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.06 新闻评论下载</div><p>
+<div align="center">2020.06.10 新闻评论下载</div><p>
+🔥陈破空纵论天下➤➤紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年&nbsp;【声音档 26.9MB】
+
+【音頻下载】(6月17日前有效) : https://bit.ly/3dPDi8r
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center">2020.06.09 新闻评论下载</div><p>
 
 🔥世界的十字路口 唐浩➤➤哈佛研究：中国疫情10月已发生；反送中周年，全球抗共潮蔓延；揭密中共诡辩卸责五部曲（2020.6.9）
 
