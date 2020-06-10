@@ -14,6 +14,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
 
+🔥【中国禁闻6月9日完整版】➤➤中共限党员20条“不准” 三大信息解读；中共调整外宣口径 绝口不提或全力煽动。
+
+【视频】(6月17日前有效) :https://bit.ly/3f7SiyM
+
 🔥新聞拍案驚奇 大宇➤➤中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
 【视频】 : https://is.gd/NmAd2x
@@ -24,7 +28,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥【唐靖远快评】➤➤危机压顶，中宣部出密令要搞乱美国！李克强，郝海东，蔡霞：近期3件大事的主角有何内在联系？
 
-【视频】 : https://bit.ly/2zo7KaW
+【视频】(6月17日前有效) : https://bit.ly/2zo7KaW
 
 🔥江峰时刻（江峰漫谈20200609第186期）➤➤地摊经济，百姓的无奈与中共的谋算； 习李不是内斗而是携手左转，开启中共新闭关锁国时代；香港反送中一周年
 
