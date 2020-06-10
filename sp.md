@@ -15,10 +15,16 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
-  
+
 🔥陈破空纵论天下➤➤紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年&nbsp;【声音档 26.9MB】
 
 【音頻下载】(6月17日前有效) : https://bit.ly/3dPDi8r
+
+🔥文昭谈古论今20200606第767期➤➤大亨一语惊人：中国11亿人无消费能力！幸存者偏差；习近平最怕的俄罗斯反水将到来？
+
+【视频下载】 : https://is.gd/rOT1KM
+
+【视频下载】 : https://is.gd/rOT1KM
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.09 新闻评论下载</div><p>
