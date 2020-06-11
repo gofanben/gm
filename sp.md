@@ -12,6 +12,16 @@
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+
+🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）
+
+【视频下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
+
+🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（下集）
+
+【视频下载】(6月18日前有效)  :https://bit.ly/2UxhuqC
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
 
 🔥【中国禁闻6月10日完整版】➤➤关键转折! 北约呼吁全球共同对抗中共势力；“六个不许”锁牢 海南自贸港自由吗；花钱大外宣 《中国日报》四年付美媒1900万。
