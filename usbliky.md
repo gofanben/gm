@@ -60,7 +60,7 @@
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
 <hr><a name=50>
-<h1 align="center"><b>XXX</b></h1>
+<h1 align="center"><b>西雅图示威者占警局宣自治 冲击市政厅逼市长下台</b></h1>
 <div align="center"><img src="/usbliky-img/Untitled-13-800x450.jpg" width=600></div>
 <div align="center">6月9日晚，一些示威者冲击西雅图市政厅后，在国会山（Capitol Hill）地区集会。（David Ryder/Getty Images）</div><p>
 
@@ -85,7 +85,7 @@
 <a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=49>
 <h1 align="center"><b>【新闻第一现场】卧底秘密拍摄揭Antifa残暴</b></h1>
-<div align="center"><img src="/usbliky-img/download-25-600x400 .jpg" width=600></div>
+<div align="center"><img src="/usbliky-img/download-25-600x400.jpg" width=600></div>
 <div align="center">卧底秘密拍摄揭安提法残暴</div><p>
 
 【大纪元2020年06月10日讯】亲临新闻现场，直击全球真相。您好，欢迎走进<a href="https://www.epochtimes.com/gb/tag/%E6%96%B0%E9%97%BB%E7%AC%AC%E4%B8%80%E7%8E%B0%E5%9C%BA.html">新闻第一现场</a>。美国近期发生的各地暴乱中，总是有“安提法（Antifa）”组织的身影。最近公布的一段秘密录像，曝光了安提法的暴力本质。</p>
