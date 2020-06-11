@@ -2,12 +2,16 @@
 
  <a name=top><div align="center"><h1>美国非裔男之死酿冲突</h1></div>
 
-<div align="center"><h3><a href="http://61.228.222.60/300">相关视频 hhttp://61.228.222.60/300</a></h3></div>
+<div align="center"><h3><a href="http://61.228.222.60/300">相关视频 http://61.228.222.60/300</a></h3></div>
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
 
+<a href =#50>西雅图示威者占警局宣自治 冲击市政厅逼市长下台</a><p>
+<a href =#49>【新闻第一现场】卧底秘密拍摄揭Antifa残暴</a><p>
+<a href =#48>抗议仇警环境 纽约警察警告治安混乱后果</a><p>
+<a href =#47>保守派非裔勇敢说“不”遭报复 筹款网页被关</a><p>
 <a href =#46>纽约华人金店遭“抗议”暴徒洗劫 全家被打成重伤</a><p>
 <a href =#45>美司法部长：解散警察部门是危险和错误的</a><p>
 <a href =#44>在抗议活动中趁火打劫 三Antifa成员被捕</a><p>
@@ -55,6 +59,118 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+<hr><a name=50>
+<h1 align="center"><b>XXX</b></h1>
+<div align="center"><img src="/usbliky-img/Untitled-13-800x450.jpg" width=600></div>
+<div align="center">6月9日晚，一些示威者冲击西雅图市政厅后，在国会山（Capitol Hill）地区集会。（David Ryder/Getty Images）</div><p>
+
+【新唐人北京时间2020年06月11日讯】美国极左翼推动的削弱警察运动目前愈发不可收拾，左翼领导人也正自食其果。周二（6月9日）晚，<a href="https://www.ntdtv.com/gb/示威者.htm">示威者</a>涌入华盛顿州<a href="https://www.ntdtv.com/gb/西雅图.htm">西雅图</a>（Seattle）<a href="https://www.ntdtv.com/gb/市政厅.htm">市政厅</a>，要求该市民主党籍市长詹妮•杜尔坎（Jenny Durkan）下台。</p>
+<p>周二晚上，数百名抗议者冲击了<a href="https://www.ntdtv.com/gb/西雅图.htm">西雅图</a><a href="https://www.ntdtv.com/gb/市政厅.htm">市政厅</a>。<a href="https://www.ntdtv.com/gb/示威者.htm">示威者</a>们手举“黑人的命也是命”（Black Lives Matter）和“杜尔坎必须走”（Durkan must go）等标语，在该市女议员克沙玛•萨旺特（Kshama Sawant）的带领下，高呼口号，要求杜尔坎辞职。抗议者们逗留了一个多小时，直到晚上10点左右才离开市政厅。</p>
+<p>几天前，抗议者占领了该市的国会山（Capitol Hill）地区，这片市区涵盖6个街区，包括警察撤退后已停用的西雅图警察局东区分局。抗议者宣布在此成立“国会山<a href="https://www.ntdtv.com/gb/自治区.htm">自治区</a>”（Capitol Hill Autonomous Zone），并要求市长“撤警察资金”，否则便辞职下台。</p>
+</p>
+<blockquote class="twitter-tweet">
+<p dir="ltr" lang="en">Seattle police have ceded control of the Capitol Hill neighborhood to the protestors and abandoned their local precinct. Protestors have set up an autonomous zone they are calling ‘Free Capitol Hill’, and controlling who can come and who can go. <a href="https://t.co/RrkxfHFbpG">pic.twitter.com/RrkxfHFbpG</a></p>
+<p>— J. (@PresentWitness_) <a href="https://twitter.com/PresentWitness_/status/1270374737252737025?ref_src=twsrc%5Etfw">June 9, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>在西雅图警察局周一关闭东区分局后，国会山地区实际上已被执法部门放弃。</p>
+<p>在非裔美国人弗洛伊德（George Floyd）因明尼苏达州明尼阿波利斯市警察的逮捕而死亡后，西雅图也已连续12个晚上发生抗议活动。</p>
+<p>与全美许多大城市一样，西雅图的一些抗议活动也演变为骚乱。示威者向警察投掷玻璃瓶、石块等物品，警察被迫使用胡椒喷雾和催泪瓦斯驱散人群，以平息暴力。</p>
+<p>不过，自从警察两天前清场后，尽管示威仍在进行，但该市一直相对平静。周二晚在示威者占领市政厅期间，并没有发生暴力事件。</p>
+<p>警方表示，只有在接到911紧急电话时，他们才会做出反应。</p>
+<p>在极左翼的推动下，全美很多城市、尤其是左派占优势的地区都掀起了“撤警察资金”的运动，这令当地的民主党籍州长、市长们进退两难，甚至自食其果。西雅图只是其中之一。</p>
+<p>（记者李佳欣综合报导/责任编辑：东野）</p>
+网址转载：https://www.ntdtv.com/gb/2020/06/10/a102867880.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
+<hr><a name=49>
+<h1 align="center"><b>【新闻第一现场】卧底秘密拍摄揭Antifa残暴</b></h1>
+<div align="center"><img src="/usbliky-img/download-25-600x400 .jpg" width=600></div>
+<div align="center">卧底秘密拍摄揭安提法残暴</div><p>
+
+【大纪元2020年06月10日讯】亲临新闻现场，直击全球真相。您好，欢迎走进<a href="https://www.epochtimes.com/gb/tag/%E6%96%B0%E9%97%BB%E7%AC%AC%E4%B8%80%E7%8E%B0%E5%9C%BA.html">新闻第一现场</a>。美国近期发生的各地暴乱中，总是有“安提法（Antifa）”组织的身影。最近公布的一段秘密录像，曝光了安提法的暴力本质。</p>
+<p><center><iframe src="https://www.youtube.com/embed/gTogmlpHRVo" width="640" height="360" frameborder="0" allowfullscreen="allowfullscreen"></iframe></center></p>
+<h3>《卧底调查秘密拍摄 揭露Antifa直接煽动暴力》</h3>
+<p>美国非营利新闻组织“Project Veritas”近日发布了一段视频，一名全身黑衫的调查员，讲述了自己在某年7月卧底潜入秘密组织安提法（Antifa）的经历。</p>
+<p>俄勒冈州波特兰市的安提法成员，先用加密电子邮箱与他联系，用类似特工的方法和他见面。</p>
+<p>“Project Veritas”调查员：“他们让我穿上白衣服，拿一瓶水，到一间星巴克去，等另一个人来跟我接头。”</p>
+<p>见面之后，调查员被带到另一个地方接受面试，之后“潜在成员”就会被安排参加培训，成员的手机都会被要求放在其它地方。</p>
+<p>而在培训讲座中，安提法的成员更是毫不掩饰地教授制造和煽动暴力的手法，攻击和防御的技巧，以及如何降低自身的风险。</p>
+<p>安提法（Antifa）培训人员：“整件事的目标就是到那里去，尽可能安全地做一些危险的事。”</p>
+<p>“练习插眼睛，弄伤人的眼睛几乎不费什么力。”</p>
+<p>“试想着是在消灭你的敌人，不是要打出一记精彩的拳法，这不是拳击，也不是自由搏击，这是在消灭你的敌人。”</p>
+<p>美国司法部长巴尔（William Barr）在5月30日的新闻发布会上表示，“和平抗议的声音被劫持了⋯⋯在许多地方，暴力似乎是由无政府主义和极左翼极端主义团体策划、组织和推动的，他们使用类似‘安提法’的战术，其中许多人是从外州来的。”</p>
+<p>纽约警察局情报与反恐副局长米勒（John Miller）也表示，这些激进组织有自己的侦察员、军医，甚至提供了石头、瓶子和助燃剂。他们在有计划地采取暴力措施。</p>
+<p>《新闻第一现场》制作组</p>
+<p>责任编辑：李昊#</p>
+网址转载：https://www.epochtimes.com/gb/20/6/9/n12174010.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
+<hr><a name=48>
+<h1 align="center"><b>抗议仇警环境 纽约警察警告治安混乱后果</b></h1>
+<div align="center"><img src="/usbliky-img/5f6ac29386268521f9c2628f95370ea7-600x400.jpg" width=600></div>
+<div align="center">6月9日纽约州各执法人员工会集会，抗议纽约州仇警气氛，警告后果。（施萍／大纪元）</div><p>
+
+【大纪元2020年06月10日讯】（大纪元记者施萍美国<a href="https://www.epochtimes.com/gb/tag/%E7%BA%BD%E7%BA%A6.html">纽约</a>报导）在纽约州议会正在酝酿通过一系列制约警察的新法案同时，纽约市布碌崙昨日（6月9日）发生十分钟内七起枪击案件。与此同时，纽约州各执法人员工会与大批警察集会举行新闻发布会，抗议纽约州从州长、市长到议会众民选官员以及媒体营造出的仇警氛围以及妖魔化警察的做法。警察们警告，如果这样下去，社会治安将会继续恶化。</p>
+<h2>限制警察执法的后果</h2>
+<p><a href="https://www.epochtimes.com/gb/tag/%E7%BA%BD%E7%BA%A6.html">纽约</a><a href="https://www.epochtimes.com/gb/tag/%E8%AD%A6%E5%AF%9F%E5%B7%A5%E4%BC%9A.html">警察工会</a>BPA（Police Benevolent Association）主席林奇说，目前纽约的治安状况是2015年以来最差时期，杀人案和入室盗窃案都上升了近三倍。</p>
+<p>“为什么是现在？为什么在那么多专业的并有爱心的执法警官站在街头还会发生这些事情？”他说，答案很简单：“我们被制约住了。”</p>
+<figure id="attachment_12174493" style="width: 450px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/075c35adc1c7c6ee83afd58968e91772.jpg"><img class="size-medium wp-image-12174493" src="https://i.epochtimes.com/assets/uploads/2020/06/075c35adc1c7c6ee83afd58968e91772-450x338.jpg" alt="" width="450" height="338" /></a><figcaption class="wp-caption-text">BPA主席林奇要求州立法会与警察坐下来进行理性的讨论。（施萍／大纪元）</figcaption></figure>
+<p>林奇说，市政厅和州议会释放出来一个信息，要求“轻柔执法”（soft touch），罪犯也知道这个信息。</p>
+<p>“几分钟在不同的社区发生七起枪击案，问问你们自己，为什么他们不害怕？因为他们没有后果，没有警察，我们被制约住了……警察看上去很威武，却只是个摆设。”</p>
+<p>他说，“这也是为什么人们抗议时，暴徒们敢于打破房门，爬进窗户，拔出他们携带的武器。”但是，这些实施暴力、毁坏社区以及伤害警察的暴徒不但没有受到谴责，“警察却被当成了问题，被立法者们妖魔化，好像是我们打破了窗户，是我们引起了暴力，这真是太不像话了！”</p>
+<p>在5月25日明州黑人弗洛伊德死亡事件发生后，纽约市市民连续两周上街游行。一些民选官员提出限制锁喉、公布警察受处分记录，甚至欲废除保护警察个人信息的法律等提案；各地区检察官办公室纷纷发表对“轻罪”不起诉等声明。</p>
+<p>州长库默昨日对媒体说，“我们要通过全国最激进的改革和记录处分的透明性，禁止锁喉以及给总检察长特别检察官的权力。”</p>
+<h2>纽约议会欲废除第50-a法律</h2>
+<p>上个世纪七十年代，纽约州为了防止嫌疑犯辩护律师利用不相关信息对警察不利，制定了一条法律，保护警察个人信息不向公众公开，即50-a，这个法律也保护消防员以及狱警的隐私。现在纽约州议会正在讨论这个法律，准备投票废除50-a法。</p>
+<figure id="attachment_12174494" style="width: 450px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/762f93299899e3aab24138568afaab6f.jpg"><img class="size-medium wp-image-12174494" src="https://i.epochtimes.com/assets/uploads/2020/06/762f93299899e3aab24138568afaab6f-450x338.jpg" alt="" width="450" height="338" /></a><figcaption class="wp-caption-text">狱警工会主席胡萨姆丁反对撤销50-a法。（施萍／大纪元）</figcaption></figure>
+<p>“纽约市狱警工会”（NYC Corrections Officers Benevolent Association）主席胡萨姆丁（Elisas Husamudeen）在新闻发布会上说，就是这个法律不废除，都不足以保护狱警们，废除此法对警察就更不公平。</p>
+<p>“监狱警察们天天在监狱中受到攻击，我们每天打交道的帮派成员天天和监狱外的成员有沟通，我曾经在参议会上发言说，50-a不足以保护狱警和警察或者其他执法人员，尤其是在今天社交媒体的时代。”</p>
+<p>他说，“为什么我们的个人信息要对外公布？这是危险的。这不仅威胁到像我一样的狱警，还威胁到了我的家庭…… 我们应该受到保护，就像我们保护你们一样；如果你们不保护我们，我们也没有办法来保护你们！”</p>
+<div align="center"><img src="/usbliky-img/abbea3d824254191e974975c75c76f10-450x338.jpg" width=600></div>
+<div align="center">“纽约警察会议”主席威尔斯说，撤销50-a让警察无法执行任务。（施萍／大纪元）</div><p>
+<p>“纽约警察会议”（Police Conference of New York）主席威尔斯（Richard Wells）说，如果警察的隐私和人身安全得不到保护，让警察怎么去执行任务呢？</p>
+<p>“警察们不得不和公众接触，不管在什么情况下，每个人都会想，这个人可能会在民事或者刑事法庭上起诉我。是他们强迫警察这么想的，他们让我们与社区为敌。”他说，50-a当初制定的时候，不是为保护坏警察的，而是为了避免辩护律师用不相关的信息来为罪犯辩护。</p>
+<p>“比如一个强奸案子，辩护律师说，不对，你十年前对谁粗鲁了，你被指控了，虽然没有证据，但是材料在那里，律师盘问警察，然后强奸犯走出法庭，受害者在那看着这一切。这是50-a法制定的原因。现在却要取消这个法。”他说，其实警察是被层层审查的，“从警局内务部、到地区检察官办公室、到州总检察长、到联邦政府，层层审查。”</p>
+<p><iframe width="640" height="360" src="https://www.youtube.com/embed/0JR6ezQtWSE?feature=oembed" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></p>
+<p>昨天警察们要求，立法者须和他们坐下来讨论这些法律，让利益相关者都参与进来。</p>
+<p>“他们说要透明度，我们也希望这样。”林奇说，“<a href="https://www.epochtimes.com/gb/tag/%E6%92%A4%E8%B5%84.html">撤资</a>？是撤销警察局还是转移资金别用？不只是撤资的问题，是限制警察的问题，我们抓人DA（地区检察官）也不起诉……对社区有什么影响？街角没有警察对社区有什么影响？我们建议坐下来进行理性的讨论，如果我们可以让步，我们就让步。但是他们没有给我们和别人一样同等说话和询问的权利。”◇</p>
+<p>责任编辑：李悦#</p>
+网址转载：https://www.epochtimes.com/gb/20/6/10/n12174490.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
+<hr><a name=47>
+<h1 align="center"><b>保守派非裔勇敢说“不”遭报复 筹款网页被关</b></h1>
+<div align="center"><img src="/usbliky-img/f3e537b015da15573f4a84d4552ac092-600x400.png" width=600></div>
+<div align="center">华盛顿特区的非裔姑娘Nestride Yumga呛声“黑人命金贵”组织“虚伪”。 (网络视频截图)</div><p>
+
+【大纪元2020年06月09日讯】（大纪元记者施萍美国纽约报导）6月8日，明州非裔<a href="https://www.epochtimes.com/gb/tag/%E5%BC%97%E6%B4%9B%E4%BC%8A%E5%BE%B7.html">弗洛伊德</a>（George Floyd）案中警官肖文（Derek Chauvin）被以谋杀罪指控，法官判他保释条件为125万美元。同一天，弗洛伊德的公开纪念仪式在德州休士顿举行。和美国其它城市一样，纽约市昨天继续有抗议群众上街游行。</p>
+<figure id="12171891" style="width: 500px" class="wp-caption aligncenter"><img src="https://i.epochtimes.com/assets/uploads/2020/06/13a4c1a08d15fc06d9e50d720cb56f34-450x332.png" alt="川普总统转推欧文斯对媒体的采访。" width="500" /><figcaption class="wp-caption-text">川普总统转推欧文斯对媒体的采访。（川普推特截图）</figcaption></figure>
+<figure id="12171890" style="width: 500px" class="wp-caption aligncenter"><img src="https://i.epochtimes.com/assets/uploads/2020/06/e4b63162615ad159fbb43e66fb77fb8c-450x330.png" alt="黑人保守派活动家Candace Owens在youtube上面大胆评论目前的游行。" width="500" /><figcaption class="wp-caption-text">非裔保守派活动家Candace Owens在youtube上大胆评论目前的游行。（视频截图）</figcaption></figure>
+<p>另外，对轰轰烈烈的抗议活动公开发表反对意见的非裔活动家欧文斯（Candace Owens），因为她的言论遭到筹资网站的报复，后者关停了她的网页。</p>
+<p>5月25日，<a href="https://www.epochtimes.com/gb/tag/%E5%BC%97%E6%B4%9B%E4%BC%8A%E5%BE%B7.html">弗洛伊德</a>在明尼苏达州的明尼阿波利斯使用假钞时被举报，白人警察肖文赶到欲逮捕弗洛伊德。在执法过程中，警察用膝盖压住弗洛伊德的颈部达8分钟，后者被送医院后死亡。</p>
+<p>昨天肖文被控二级非故意谋杀罪、三级谋杀罪和三级故意杀人罪等，保释金125万美元或者有条件100万美元，条件包括交出武器、保证不接触弗洛伊德家人等。</p>
+<h2><strong>非裔活动家站出来说“不”</strong></h2>
+<p>6月4日保守派黑人活动家欧文斯在Youtube频道上发表视频声明，称“我不支持把弗洛伊德英雄化”，“拒绝将他当作烈士”以及说出左派媒体刻意不提的内容，即“他曾犯重罪、持枪抢劫、屡次入狱服刑”等实情。她因言论遭到报复，她在筹资网站GoFundMe上为自己生意筹款的一个网页被关掉。</p>
+<p>到昨天截稿为止，欧文斯的视频已经被点击了511万次，近5万个评论，其中大部分人表示同意她的观点。</p>
+<p>欧文斯说，弗洛伊德的尸检报告显示，他在被抓前吸食了毒品，神智恍惚。“从什么时候起，我们把罪犯奉为英雄成了一种时尚了？”她质问，“如今美国黑人文化已经破裂。”</p>
+<p>她还公布了一串统计数字说明了美国非裔人口的现状。她说，“占美国人口13%的黑人，在全美犯罪记录中占了50%；警察死在与黑人嫌犯发生冲突的概率是其它情况的18.5倍。”</p>
+<p>她还提及了芝加哥和巴尔的摩两个城市中的非裔社区的犯罪情况，那里的非裔天天在死亡，就因为他们是被非裔杀死的，却无人问津。</p>
+<h2>非裔女孩讽刺“黑人命金贵”组织虚伪</h2>
+<p>无独有偶，6月7日首都华盛顿特区的一个非裔女孩玉姆加（Nestride Yumga）也在一个游行队伍前提及芝加哥的非裔暴力犯罪，大声讽刺“黑人命金贵”组织（Black Lives Matter）的“虚伪”。</p>
+<p>“你们去芝加哥看看，那里的黑人天天死人，如果你们在乎黑人，你们应该在乎所有地方的黑人，你们为什么不去管他们？你们都是虚伪的人。”</p>
+<p>她说，“我要说：黑人杀黑人比任何人都厉害，你们对此心知肚明，你们才不在乎呢，你们在乎白人杀黑人，你们才是种族主义分子！”</p>
+<p>当现场游行的一个白人质问她，美国有没有种族歧视等制度性问题时，玉姆加说，“我就是黑人，你们说对黑人歧视，我说没有，我就是一个个体，没有人压迫我，我是自由的，我没有受到歧视，是你们强迫别人接受‘黑人受歧视’，这不是真的。而且‘暴力就是错误的’，就这么简单。”</p>
+<h2><strong>欧文斯因其言论遭报复</strong></h2>
+<p>欧文斯在阿拉巴马州的伯明罕市与他人有一家咖啡店，她在筹资网站GoFundMe上为生意筹资。在筹资已过20万美元时，这家网站关闭了欧文斯的网页。</p>
+<p>她在周日（6月7日）的推特上说，“在几小时内筹资达到205,000美元的时候，GoFundMe决定停掉我在阿拉巴马的Parkside咖啡屋的筹款活动。他们认为，给一个保守派的生意集资是“不宽容”，但是，他们说‘将’把筹到的资金还给咖啡馆……”</p>
+<p>筹资网站在声明中表示，欧文斯散布了“反对黑人社区的仇恨、歧视、不宽容以及谎言”，所以就封杀了她的网页。</p>
+<p>欧文斯对媒体表示，她的生意筹资活动“和任何不宽容与暴力都没有关系”。川普总统转发了欧文斯接受媒体访问的视频。</p>
+<p>针对各地民主党就此事要求给警察“撤资”的运动，欧文斯发推文指出，“那些民主党选民能明智地认识到，是一群有私人保安的富人在号召给贫困城市的警察撤资吗？能意识到他们正在为把自己的社区变得毫无防御能力而战斗吗？”◇</p>
+<p>责任编辑：李悦 </p>
+网址转载：https://www.epochtimes.com/gb/20/6/9/n12171886.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=46>
 <h1 align="center"><b>纽约华人金店遭“抗议”暴徒洗劫 全家被打成重伤</b></h1>
 <div align="center"><img src="/usbliky-img/09b94a5959e2d1f8b66f60df7c81a558-800x450.jpeg" width=600></div>
