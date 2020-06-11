@@ -10,7 +10,6 @@
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
@@ -33,7 +32,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【视频下载】(6月18日前有效) : https://bit.ly/37iq021
 
-🔥文昭谈古论今20200610第768期➤➤中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
+🔥【文昭谈古论今20200610第768期】➤➤中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
 
 【视频下载】 : https://bit.ly/3dN0W5w
 【视频免翻墙】 :https://is.gd/BI4MUF
