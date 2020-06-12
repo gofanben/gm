@@ -1,4 +1,6 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
+<div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
+
 </p>
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
@@ -22,6 +24,13 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（下集）
 
 【视频下载】(6月18日前有效)  :https://bit.ly/2UxhuqC
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center">2020.06.12 新闻评论下载</div><p>
+
+🔥天亮时分(政论天下第179集 20200610)➤➤谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声
+
+【视频下载】(6月19日前有效)  :https://bit.ly/3dUr4M3
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
