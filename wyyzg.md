@@ -59,7 +59,7 @@
 
 <hr><a name=113>
 <h1 align="center"><b>【瘟疫与中共】亲近中共 俄罗斯疫情严峻</b></h1>
-<div align="center"><img src="/wyyzg-img/GettyImages-1211583941-600x400" width=600></div>
+<div align="center"><img src="/wyyzg-img/GettyImages-1211583941-600x400.jpg" width=600></div>
 <div align="center">2020年5月2日，俄罗斯莫斯科，医务人员在中共病毒检测点附近拿着检测试剂盒。(YURI KADOBNOV/AFP via Getty Images)</div><p>
 
 【大纪元2020年06月11日讯】（大纪元记者舒华报导）<a href="https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92.html">中共病毒</a>（武汉肺炎）疫情在全球爆发初期，<a href="https://www.epochtimes.com/gb/tag/%E4%BF%84%E7%BD%97%E6%96%AF.html">俄罗斯</a>灾情发展尚属平缓，但近一个月以来，俄罗斯染疫人数陡然上升，至6月10日，确诊病例达到49.3万例，感染人数排在全球第三位，染疫人数日增近万，情势严峻。</p>
