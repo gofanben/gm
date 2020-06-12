@@ -28,6 +28,13 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
+🔥【今日点击】➤➤吉林/湖南/黑龙江现蝗虫大军 专家估7月或爆发增长
+
+【视频下载】(6月19日前有效)  :https://bit.ly/2UAhPcc
+
+🔥【今日点击】➤➤韩国瑜一路走来 验证什么叫命理与天命
+
+【视频下载】(6月19日前有效)  :https://bit.ly/3fbroWE
 
 🔥【新闻看点 李沐阳】➤➤高晓松评希特勒，寓意深刻？“新八国联军”来袭，官媒不忘扣帽子；川普不忍了，韩正危险了！澳洲强硬政策不下跪；遮天蔽日！数千亿蝗虫真的来了！南方洪灾破纪录，超过北京半年雨
 
