@@ -28,11 +28,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
-❗请使用火狐，google(chrome)浏览器。
+❗<b>请使用火狐，google(chrome)浏览器。</b>
 
-❗电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的
+❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
-🔥天亮时分(政论天下第180集 20200611)➤➤史上最强制裁名单,韩正等正国级高官在列;还有两人不能放过
+🔥天亮时分(政论天下第180集 20200611)➤➤👉史上最强制裁名单,韩正等正国级高官在列;还有两人不能放过
 
 【视频下载】(6月19日前有效)  :https://bit.ly/2XTZKHZ
 
