@@ -28,9 +28,16 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
+
+🔥【新闻看点 李沐阳】➤➤高晓松评希特勒，寓意深刻？“新八国联军”来袭，官媒不忘扣帽子；川普不忍了，韩正危险了！澳洲强硬政策不下跪；遮天蔽日！数千亿蝗虫真的来了！南方洪灾破纪录，超过北京半年雨
+
+【视频下载】(6月19日前有效)  :https://bit.ly/2Yn6QUu
+
+【视频免翻墙】:https://is.gd/0IrHiT
+
 🔥陈破空纵论天下➤➤事情大了！习近平这张照片真的刷屏了！日本盛传某人雅号。土共超限战：盗疫苗印假钞。巴西怒责世卫
 
-https://bit.ly/2B5jak7
+【视频下载】(6月19日前有效)  :https://bit.ly/2B5jak7
 
 🔥【中国禁闻6月11日完整版】➤➤中国南方11省水灾 桂林水库有垮坝危险；疫情下决胜小康社会 目标可否达成？应对中共威胁 美国会报告提史上最严制裁。
 
