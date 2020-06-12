@@ -2,12 +2,12 @@
 
  <a name=top><div align="center"><h1>美国非裔男之死酿冲突</h1></div>
 
-<div align="center"><h3><a href="https://bit.ly/2A4uPQb">相关视频下載 https://bit.ly/2A4uPQb</a></h3></div>
+<div align="center"><h3><a href="http://61.228.222.60/300">相关视频 http://61.228.222.60/300</a></h3></div>
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
 
-
+<a href =#51>西雅图“自治区”之乱 媒体揭背后共产主义因素</a><p>
 <a href =#50>西雅图示威者占警局宣自治 冲击市政厅逼市长下台</a><p>
 <a href =#49>【新闻第一现场】卧底秘密拍摄揭Antifa残暴</a><p>
 <a href =#48>抗议仇警环境 纽约警察警告治安混乱后果</a><p>
@@ -59,6 +59,51 @@
 <a href =#2>中共利用美非裔之死挑衅 白宫顾问回呛</a><p>
 <a href =#1>【纪元播报】美国骚乱 川普剑指幕后煽动者</a><p>
 
+<hr><a name=51>
+<h1 align="center"><b>西雅图“自治区”之乱 媒体揭背后共产主义因素</b></h1>
+<div align="center"><img src="/usbliky-img/Untitled-17-800x450.jpg" width=600></div>
+<div align="center">6月10日，一名暴乱分子手持枪支在西雅图所谓的“国会山自治区”入口处盘查过客。（David Ryder/Getty Images）</div><p>
+
+【新唐人北京时间2020年06月12日讯】美国西海岸的<a href="https://www.ntdtv.com/gb/西雅图.htm">西雅图</a>（Seattle）近日已成为关注焦点。该市不仅因黑人弗洛伊德之死引发了暴乱，甚至还将部分市区的控制权丢给了极端分子，出现一个反政府的“自治区”。根据一些媒体的报导，该事件背后明显有<a href="https://www.ntdtv.com/gb/共产主义.htm">共产主义</a>因素作祟。</p>
+<p>几天前，<a href="https://www.ntdtv.com/gb/极左翼.htm">极左翼</a>的“<a href="https://www.ntdtv.com/gb/反法运动.htm">反法运动</a>”（Antifa）好斗分子利用抗议和骚乱，占领了<a href="https://www.ntdtv.com/gb/西雅图.htm">西雅图</a>一片涵盖6个街区的市区，宣布成立所谓的“国会山自治区”（Capitol Hill Autonomous Zone），并要求市长撤掉警方资金。周二（6月9日）晚，他们又冲进市政厅，高呼要该市民主党籍市长詹妮•杜尔坎（Jenny Durkan）辞职。</p>
+</p>
+<blockquote class="twitter-tweet">
+<p dir="ltr" lang="en">Seattle <a href="https://twitter.com/MayorJenny?ref_src=twsrc%5Etfw">@MayorJenny</a> is allowing a dangerous situation to fester. <a href="https://twitter.com/hashtag/Antifa?src=hash&amp;ref_src=twsrc%5Etfw">#Antifa</a> militants have taken over &amp; created an “autonomous zone” in city w/their own rules. Police precinct abandoned. Antifa set up barricades to create a border. Calling for volunteers to provide armed guard. <a href="https://t.co/ksQI4NI5kP">pic.twitter.com/ksQI4NI5kP</a></p>
+<p>— Andy Ngô (@MrAndyNgo) <a href="https://twitter.com/MrAndyNgo/status/1270375353614123010?ref_src=twsrc%5Etfw">June 9, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>在这场将抗议转为暴乱、进而演成“起义”的闹剧中，融合了<a href="https://www.ntdtv.com/gb/极左翼.htm">极左翼</a>州长市长的软弱妥协、马克思主义市议员的煽动支持、左翼极端分子“<a href="https://www.ntdtv.com/gb/反法运动.htm">反法运动</a>”的暴力对抗，而这些都是<a href="https://www.ntdtv.com/gb/共产主义.htm">共产主义</a>及社会主义因素的延伸，使西雅图成为这次全美骚乱中最突出的代表。</p>
+<p>据西雅图当地媒体“KOMO News”6月11日报导，在“国会山自治区”宣布成立之前，西雅图警察局因收到大楼将被烧毁的威胁而主动放弃了其东区分局，因此无政府主义分子不费吹灰之力就占领了该地区。</p>
+<p>《城市日报》（City-Journal）报导，“反法运动”附属组织和极左翼的“约翰•布朗枪支俱乐部”（John Brown Gun Club）的武装分子控制了这一地区。</p>
+<p>许多照片显示，极端分子自划统治区后，设置路障搭建“边境”，并竖立标牌宣称，如果你要进入该区域，那么也就意味着“你现在要离开美国”。</p>
+<p>同时，“反法运动”武装分子还安排手持AR-15半自动步枪的卫兵进行巡逻，并控制该“解放”区的入口，盘查进出这一区域的居民。</p>
+<p>据加拿大保守派媒体“The Post Millennial”6月10日报导，虽然暴力骚乱和抢劫先前已摧毁了西雅图市中心和许多企业，但市议会的几名成员仍继续鼓励暴力，并呼吁撤掉警察局资金。</p>
+</p>
+<blockquote class="twitter-tweet">
+<p dir="ltr" lang="en">Brave. <a href="https://t.co/0AQuq413ZM">pic.twitter.com/0AQuq413ZM</a> <a href="https://t.co/dHPQmENQh9">https://t.co/dHPQmENQh9</a></p>
+<p>— Nathan Brand (@NathanBrandWA) <a href="https://twitter.com/NathanBrandWA/status/1266893327024164865?ref_src=twsrc%5Etfw">May 31, 2020</a></p></blockquote>
+<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>周二晚上领导示威者冲击市政厅的是该市女议员克沙玛•萨旺特（Kshama Sawant），她是一名马克思主义者，是美国一个托洛茨基主义（Trotskyist）政党“社会主义替代”（Socialist Alternative）的成员。她的口号很明确，要求市长杜尔坎下台。</p>
+<p>萨旺特有诽谤西雅图警察的历史，而且她在推特上支持骚乱。</p>
+<p>不仅如此，有好几个极左的市议员都赞扬暴乱者，特蕾莎•莫斯克达（Teresa Mosqueda）即是其一。她是“反法运动”的长期支持者，甚至给她的孩子穿上了“反法运动”的T恤。</p>
+<p>记录显示，暴徒们袭击警察，焚烧警车，甚至偷了两支警用AR-15步枪，后来被报导骚乱的“Q13 Fox”记者的一名保安发现。</p>
+</p>
+<blockquote class="twitter-tweet">
+<p dir="ltr" lang="en">I want to acknowledge that much of the violence and destruction, both here in Seattle and across the country, has been instigated and perpetuated by white men.</p>
+<p>— Mayor Jenny Durkan (@MayorJenny) <a href="https://twitter.com/MayorJenny/status/1267244230730113024?ref_src=twsrc%5Etfw">May 31, 2020</a></p></blockquote>
+<p><script async="" src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+<p>
+<p>西雅图对“反法运动”的暴力并不陌生。自2016年以来，该组织一直明显存在于西雅图，他们与当地的民主党领导人有联系。所有现任的市议员和市长都得到了由这些极端分子所控制的当地民主党的支持。</p>
+<p>骚乱和抢劫得到了西雅图市议会许多成员的支持。上周，在一次关于骚乱的视频会议上，社会主义市议员塔米•莫拉莱斯（Tammy Morales）说，当“每天都有黑人男女要死去”时，她不明白“为什么抢劫会更让人们困扰”。</p>
+<p>西雅图民主党籍市长杜尔坎的反应也有向暴乱者“投诚”的意味。她虽然谴责了暴乱和抢劫，但却在推特上写道：“我想承认，无论是在西雅图还是在全国范围内，很多暴力和破坏都是由白人煽动和持续实施的。”</p>
+<p>西雅图警察似乎接到了不逮捕抢劫者的命令。许多视频显示，他们对店面被毁无动于衷。市长发布了紧急命令，禁止在该地区使用武器，因此小企业主无法保护自己的生计。许多居民公开宣布打算搬出西雅图，因为政府无力保护他们，同时又不允许他们自己保护自己。</p>
+<p>“The Post Millennial”还报导称，西雅图当地的一名消息人士向该媒体透露，继西雅图警察局东分局向“反法运动”暴徒投降及市政厅被占领后，该市其它警察局也正成为目标，首当其冲的就是该市911呼叫中心所在地西雅图警察局西分局。有报导称，敏感材料和设备正被移出西区，所有分局的步入式大厅都被关闭，当地官员似乎正承认将该市更多的区域和警察分局移交给“反法运动”。</p>
+<p>报导称，这场起义似乎看不到尽头。西雅图已经向暴徒投降了。</p>
+<p>（记者李佳欣综合报导/责任编辑：东野）</p>
+网址转载：https://www.ntdtv.com/gb/2020/06/11/a102868873.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=50>
 <h1 align="center"><b>西雅图示威者占警局宣自治 冲击市政厅逼市长下台</b></h1>
 <div align="center"><img src="/usbliky-img/Untitled-13-800x450.jpg" width=600></div>
