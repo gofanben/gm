@@ -28,9 +28,17 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
+🔥【中国禁闻6月11日完整版】➤➤中国南方11省水灾 桂林水库有垮坝危险；疫情下决胜小康社会 目标可否达成？应对中共威胁 美国会报告提史上最严制裁。
+
+【视频下载】(6月19日前有效)  :https://bit.ly/2Al56Do
+
 🔥天亮时分(政论天下第179集 20200610)➤➤谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声
 
 【视频下载】(6月19日前有效)  :https://bit.ly/3dUr4M3
+
+【视频免翻墙】:https://is.gd/y5xjIr
+
+【视频免翻墙】:https://is.gd/qDybaZ
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
