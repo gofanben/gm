@@ -1,25 +1,9 @@
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="https://github.com/gofanben/gm/blob/master/whfy-img/whfy-1-2.jpg" width=800></a>
 
-<div align=center><h2>请收藏本网址，连上免翻视频即时IP https://git.io/souye </h2>
-
-<h2>免翻视频IP http://61.228.181.102/300 </h2></div>
+<div align=center><a href="https://bit.ly/3ezRQKo"><h3>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo</a></h3></div>
+ <div align=center>点击视频下載 https://bit.ly/2A4uPQb</div>	
 
 <table>
-
-<tr> <td>
-<h2>上天有好生之德<br>
-存善守德的人会得到上天庇佑<br>
-请珍惜救助的手<br>
-做明智的选择保平安<br>
-
-重要选择美好人生(已办理过勿再重复)  https://bit.ly/2KckVxj	<br></h2>
-<td></tr>
-
-<tr>
- <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.181.102/300 </b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr> 
-
 <tr>
  <td>
  <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，请点击翻牆网站  https://bit.ly/3asSXIA  下载 { 翻牆软件 }→找 { 大紀元網站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
@@ -31,7 +15,7 @@
 <a name=top>
 <div align="center"><img src="https://github.com/gofanben/gm/blob/master/goal-img/276bf89d79eeda65983db79b11430c87-600x400.jpg" width=640></div>
 
-<div align=center><h1><a href=https://git.io/souye>看更多真相</h1></a></div>
+<div align=center><h1><a href=https://git.io/souye>看更多真相 https://git.io/souye</h1></a></div>
 
 <a href="https://github.com/gofanben/gm/blob/master/epub/Mgrw.epub?raw=true"><h3 align=center>本文epub电子书下载</a></h3>
 
