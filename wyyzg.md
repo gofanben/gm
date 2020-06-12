@@ -7,7 +7,7 @@
 <div align="center"><h3><a href="https://bit.ly/2A4uPQb">最新评论、热门视频下載 https://bit.ly/2A4uPQb</a></h3></div>
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
-<div align="center"><h6><a href="https://bit.ly/2RQM1hX">看更多</h6></div>
+<div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</h3></div>
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg-1.md">下一頁</h6></div>
 
 
