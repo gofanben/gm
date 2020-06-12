@@ -28,6 +28,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
+🔥新聞拍案驚奇 大宇➤➤2047有新解！晓明打脸小平，“50年不变”悬了；中共曾军事威胁港英政府放弃民主化；北京添确诊；雷神山工人曝内幕；中国大洪水警告，148条河涨水，三峡危？东北湖南现蝗灾
+
+【视频下载】(6月19日前有效)  :https://bit.ly/30DlERB
+
 🔥【今日点击】➤➤吉林/湖南/黑龙江现蝗虫大军 专家估7月或爆发增长
 
 【视频下载】(6月19日前有效)  :https://bit.ly/2UAhPcc
