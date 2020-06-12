@@ -5,7 +5,7 @@
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="/zijiu-img/falundafagood.jpg" width=800>-->
  
 <div align=center><a href="https://bit.ly/3ezRQKo"><h3>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo</a></h3></div>
- <div align=center>点击视频 http://61.228.222.60/300</div>	 
+ <div align=center>点击视频下載 https://bit.ly/2A4uPQb</div>	 
  
 <a name=top>
  
