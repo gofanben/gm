@@ -36,6 +36,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【视频下载】(6月20日前有效)  :https://bit.ly/2zy3lSU
 
+🔥热点互动】➤➤推倒雕像，经典下架，“美国版文革”正在上演？大主教致信川普：这是善恶对决！美国会重磅提案制裁中共常委 | 唐靖远 萧恩
+
+【视频下载】(6月20日前有效)  :https://bit.ly/2B4eZW1
+
 🔥【新聞拍案驚奇 大宇】➤➤李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
 
 【视频免翻墙】:https://is.gd/dyXNHp
