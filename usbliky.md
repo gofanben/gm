@@ -83,12 +83,14 @@
 <p>《纽约邮报》（New York Post）6月11日发表社评文章，题目为“西雅图无法无天：城市让无政府主义者占领城市街区”（Lawless in Seattle: City lets anarchists seize downtown blocks）。</p>
 <p>文章一开始就指出，装备了武器的激进分子能够得以攻占西雅图的6个街区，是得到市政府官员支持。</p>
 <p>“<a href="https://www.epochtimes.com/gb/tag/%E9%BB%91%E5%91%BD%E8%B4%B5.html">黑命贵</a>”（Black Lives Matter）在西雅图的抗议活动从一开始就充斥着暴力。5月29日少部分抗议者砸毁市区国会山的一些商店的橱窗，包括Amazon Go、Old Navy、Nordstrom和Cheesecake Factory等一些品牌店。</p>
-<figure id="attachment_12184085" style="width: 600px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219247838-e1592104197706.jpg"><img class="size-large wp-image-12184085" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219247838-600x400.jpg" alt="" width="600" height="400" /></a><figcaption class="wp-caption-text">2020年6月10日，西雅图“国会山<a href="https://www.epochtimes.com/gb/tag/%E8%87%AA%E6%B2%BB%E5%8C%BA.html">自治区</a>”（CHAZ）内的抗议者在地上涂写“<a href="https://www.epochtimes.com/gb/tag/%E9%BB%91%E5%91%BD%E8%B4%B5.html">黑命贵</a>”。(David Ryder/Getty Images)</figcaption></figure>
+<div align="center"><img src="/usbliky-img/GettyImages-1219247838-600x400.jpg" width=600></div>
+<div align="center">2020年6月10日，西雅图“国会山自治区”（CHAZ）内的抗议者在地上涂写“黑命贵”。(David Ryder/Getty Images)</div><p>
 <p>抗议群体的暴力行动很快在第二天升级，除了数千人在警察总局外与警察对峙之外，砸毁商店、抢劫物品和纵火等暴行已经遍及整个西雅图市。</p>
 <p>当警察开始使用催泪弹对付暴力，女市长杜肯立即下了30天的禁令，称“不需要把催泪弹当作工具用在抗议集会上”。当Antifa抗议者积聚在市区的国会山附近的街区时，警察却做出了撤出警力的决定。</p>
 <p>6月9日当管辖国会山地区的西雅图东区警局（East Precinct）空城之后，Antifa抗议者占领了东区警局的六个街区，并宣布成立CHAZ自治区，声称脱离美国的管辖。</p>
 <p>抗议者在街区内扎设帐篷，用警察的铁马设置路障，不允许外面车辆进入；对街区居民进出检查证件，多家媒体影片新闻中可见多个持枪巡逻者。</p>
-<figure id="attachment_12184086" style="width: 600px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219247691-e1592104271418.jpg"><img class="size-large wp-image-12184086" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219247691-600x400.jpg" alt="" width="600" height="400" /></a><figcaption class="wp-caption-text">2020年6月10日，美国华盛顿州西雅图“国会山自治区”（CHAZ）入口处的路标和路障。(David Ryder/Getty Images)</figcaption></figure>
+<div align="center"><img src="/usbliky-img/GettyImages-1219247691-600x400.jpg" width=600></div>
+<div align="center">2020年6月10日，美国华盛顿州西雅图“国会山自治区”（CHAZ）入口处的路标和路障。(David Ryder/Getty Images)</div><p>
 <p>《纽约邮报》文章指Antifa组织的行动得到了女市长杜肯的纵容，尽管Antifa抗议者后来还到市政厅抗议要求杜肯下台。</p>
 <p>杜肯把Antifa抗议者的占领说成是社区聚会（Community Party）。她对记者说，每年夏季西雅图和国会山周边都要为举办派对和游行封路，因而不存在运作上的问题。</p>
 <h2>警察局长：强奸、抢劫等紧急呼救增三倍 警察无法到场</h2>
@@ -99,7 +101,8 @@
 <p>西雅图市议员竞选人阿里．霍夫曼（Ari Hoffman）在新闻网站“The Post Millennial”撰文说，被Antifa暴徒占领区的商家遭盘剥保护费。两名西雅图西区警局的警察对该网记者透露了一些细节，但条件是不能公开他们的姓名。</p>
 <p>其中一名以前在东区警局工作的警察说，“Antifa正在勒索国会山地区商家交保护费。”另外一名警察补充说，“他们对进出国会山地区的人员拦截搜身，并向商家索要500美元保护费。”</p>
 <p>霍夫曼的文章还提到，当前西雅图的警力只有中共病毒和发生Antifa暴乱前警力的60%。现在很多警察要求调到其它城市，也有的退休或者辞职，主要是警察被妖魔化，还得不到政府的支持。</p>
-<figure id="attachment_12184088" style="width: 600px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219041435-e1592104381131.jpg"><img class="size-large wp-image-12184088" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1219041435-600x400.jpg" alt="" width="600" height="400" /></a><figcaption class="wp-caption-text">2020年6月9日晚间的西雅图“国会山自治区”（CHAZ）。(David Ryder/Getty Images)</figcaption></figure>
+<div align="center"><img src="/usbliky-img/GettyImages-1219041435-600x400.jpg" width=600></div>
+<div align="center">2020年6月9日晚间的西雅图“国会山自治区”（CHAZ）。(David Ryder/Getty Images)</div><p>
 <h2>川普谴责政客不作为</h2>
 <p>长期调查Antifa组织的记者吴安迪（Andy Ngo，音译）在福克斯新闻（Fox News）采访中表示，华盛顿州和西雅图市的政客们为了自己的政治目的，对Antifa组织的行动采取配合和纵容的态度。</p>
 <p>华盛顿<a href="https://www.epochtimes.com/gb/tag/%E5%B7%9E%E9%95%BF%E8%8B%B1%E6%96%AF%E5%88%A9.html">州长英斯利</a>（Jay Inslee）10日在媒体会上表示自己对Antifa的占领和宣布自治不知情，他对现场记者说，“这对我是个新闻，我还没有收到可靠信息。”</p>
@@ -107,7 +110,8 @@
 <p>杜肯和英斯利并不认为他们的管理有任何问题，他们分别在推特上回击川普不要插手华盛顿州的事务。</p>
 <p>前述霍夫曼文章中引用一位不敢透露姓名的知情者的话称，Antifa组织的目标是占领更多的地区，可能预计市中心的西区警局也会被占领。政客们可能要把更多的地方让给Antifa，警察现在已经开始转移西区警局的重要文档和器材，关闭了警局大厅内步入式大堂。</p>
 <p>另有媒体报导，弗罗伊德之死只是提供了一个爆发点，Antifa组织蓄意攻占西雅图早在2019年11月份就开始计划了，目的是破坏大选、阻止川普总统连任。</p>
-<figure id="attachment_12184090" style="width: 600px" class="wp-caption aligncenter"><a href="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1208490946_cut-e1592104662452.jpg"><img class="size-large wp-image-12184090" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1208490946_cut-600x448.jpg" alt="" width="600" height="448" /></a><figcaption class="wp-caption-text">川普总统10日晚上谴责华盛顿<a href="https://www.epochtimes.com/gb/tag/%E5%B7%9E%E9%95%BF%E8%8B%B1%E6%96%AF%E5%88%A9.html">州长英斯利</a>（中）和西雅图市长杜肯（右一）不作为，要求他们恢复法律和秩序。图为2020年3月28日华盛顿州疫情发布会后。西雅图是中共病毒入侵美国的第一站。 (Karen Ducey/Getty Images)</figcaption></figure>
+<div align="center"><img src="/usbliky-img/GettyImages-1208490946_cut-600x448.jpg" width=600></div>
+<div align="center">川普总统10日晚上谴责华盛顿州长英斯利（中）和西雅图市长杜肯（右一）不作为，要求他们恢复法律和秩序。图为2020年3月28日华盛顿州疫情发布会后。西雅图是中共病毒入侵美国的第一站。 (Karen Ducey/Getty Images)</div><p>
 <h2>西雅图多次被中共首先选中 病毒也没错过</h2>
 <p>跟Antifa同样信奉共产主义和暴力革命的中共也把西雅图当作占领美国的第一站。</p>
 <p>中共对华盛顿州，其实主要是西雅图的喜爱从1970年代邓小平开始，延续四代领袖一直到习近平，他们每次访美的日程上都不会落下这个城市。</p>
