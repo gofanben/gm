@@ -1,6 +1,10 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
 
+❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+
+❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
 </p>
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
@@ -17,20 +21,31 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">预言破解</div><p>
 
-🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）
-
-【视频下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
-
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（下集）
 
 【视频下载】(6月18日前有效)  :https://bit.ly/2UxhuqC
 
+🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）
+
+【视频下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
+
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.13 新闻评论下载</div><p>
+<div align="center">2020.06.14 新闻评论下载</div><p>
 
 ❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
+🔥【新闻周刊】第736期（2020/6/13）➤➤<br>提要<br>非洲成疫情新热点 欧洲陆续开放边境;南涝北旱 瘟疫仍在 中共只报美国抗议;浙江油罐车大爆炸 近200人死伤;高雄市民高票罢免市长 罢韩在国际持续发酵
+
+【视频下载】(6月21日前有效)  :https://bit.ly/3cUsPHC
+
+🔥陈破空纵论天下➤➤美国拟制裁两名政治局常委？习近平窃喜！中国人取款遭限制。土共利用推特干了什么
+
+【视频下载】(6月21日前有效)  :https://bit.ly/2XZO86h
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center">2020.06.13 新闻评论下载</div><p>
 
 🔥【江峰漫谈20200612第188期】➤➤史上最强制裁名单：两名政治局常委韩正、汪洋，五名正省部级，港澳办夏宝龙、中联办骆惠宁、公安部长赵克志、疆藏书记在列
 
