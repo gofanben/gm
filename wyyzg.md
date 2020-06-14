@@ -143,6 +143,8 @@
 <div align="center"><img src="/wyyzg-img/60c22dae635292b9a446f36334b5c4d5-600x400.jpg" width=600></div>
 <div align="center">图为华尔街路标与纽约证券交易所。 （中央社）</div><p>
 
+【视频免翻墙】:https://is.gd/RsBqWx
+
 【大纪元2020年06月14日讯】大家好，欢迎关注<a href="https://www.epochtimes.com/gb/tag/%E6%96%B0%E9%97%BB%E7%9C%8B%E7%82%B9.html">新闻看点</a>，我是李沐阳。今天是6月13日星期六。</p>
 <p>今天的话题比较多，所以时间会长一些，但是好希望您能够看完。我们的第一个板块安排的是“<a href="https://www.epochtimes.com/gb/tag/%E7%97%85%E6%AF%92%E6%9C%89%E7%9C%BC%E7%9D%9B.html">病毒有眼睛</a>”，然后是几个重要的事，也有网友的爆料和一位在澳洲生活了十几年的朋友写来的一封信。</p>
 <p>下面就进入今天的第一板块，<a href="https://www.epochtimes.com/gb/tag/%E7%97%85%E6%AF%92%E6%9C%89%E7%9C%BC%E7%9D%9B.html">病毒有眼睛</a>：美国疫情为什么这么严重？</p>
