@@ -40,6 +40,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【视频下载】(6月22日前有效)  :https://bit.ly/3cYXkw1
 
+🔥<b>【严真点评】</b>➤➤外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名。北京疫情卷土重来，丰台启动战时机制。
+
+【视频下载】(6月22日前有效)  :https://bit.ly/37sfIwg
+
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
 
