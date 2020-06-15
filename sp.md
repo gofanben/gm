@@ -36,13 +36,33 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+
+🔥<b>【细语人生】</b>➤➤新的人生在兑现（第一集更新版）
+
+【下载】(6月22日前有效)  :https://bit.ly/2AtTiyK
+
+🔥<b>【今日点击】</b>➤➤中国科学家竟是解放军少校 大陆人想离美恐有难度
+🔥<b>【今日点击】</b>➤➤疫情卷土重来 北京又进入非常时期
+
+【下载】(6月22日前有效)  :https://bit.ly/3hp97HD
+
+🔥<b>天亮时分(政论天下第181集 20200614)</b>➤➤封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重
+
+【免翻墙】:https://is.gd/HueTFr
+
+【免翻墙】:https://is.gd/Etsl0f
+
+🔥<b>【新聞拍案驚奇 大宇】</b>➤➤【会员节目试看 12小时限时公开】瘟疫史话之二：天要变挡不了！崇祯强国梦 碎在瘟疫劫 | 欢迎加入大宇新闻拍案惊奇“会员” （2020.06.14）
+
+【下载】(6月22日前有效)  :https://bit.ly/3fqqXbq
+
 🔥<b>陈破空纵论天下</b>➤➤习近平紧张，为此事调集大量军警！浙江出大事。特朗普西点军校演讲引热议
 
-【视频下载】(6月22日前有效)  :https://bit.ly/3cYXkw1
+【下载】(6月22日前有效)  :https://bit.ly/3cYXkw1
 
 🔥<b>【严真点评】</b>➤➤外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名。北京疫情卷土重来，丰台启动战时机制。
 
-【视频下载】(6月22日前有效)  :https://bit.ly/37sfIwg
+【下载】(6月22日前有效)  :https://bit.ly/37sfIwg
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
@@ -180,13 +200,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【视频下载】(6月18日前有效)  :https://bit.ly/37j5MoI
 
-🔥<b>陈破空纵论天下</b>➤➤中印冲突，中方败退！原因神秘，习近平害怕一件事。多少个不准？中共进入崇祯时刻
-
-【视频下载】(6月18日前有效) : https://bit.ly/37iq021
-
 🔥<b>【文昭谈古论今20200610第768期】</b>➤➤中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
-
-【视频下载】 : https://bit.ly/3dN0W5w
 
 【视频免翻墙】 :https://is.gd/BI4MUF
 
@@ -194,14 +208,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
-
-🔥<b>【世界的十字路口】</b>➤➤北京出兵台湾，为何必败？中共改变美台战略，心战裂解社会；中国宣传抗疫有成，谭德塞为何闪躲？
-
-【视频下载】(6月17日前有效)  :https://bit.ly/37pVsLO
-
-🔥<b>【中国禁闻6月9日完整版】</b>➤➤中共限党员20条“不准” 三大信息解读；中共调整外宣口径 绝口不提或全力煽动。
-
-【视频下载】(6月17日前有效) :https://bit.ly/3f7SiyM
 
 🔥<b>新聞拍案驚奇 大宇</b>➤➤中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
@@ -221,10 +227,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【视频免翻墙】 : https://is.gd/P6Dr9u
 
-🔥<b>陈破空纵论天下</b>➤➤紧张时刻！习近平离京远走，密谋打倒李克强？王沪宁发动大批判。香港抗争一周年&nbsp;【声音档 26.9MB】
-
-【音頻下载】(6月17日前有效) : https://bit.ly/3dPDi8r
-
 🔥<b>文昭谈古论今20200606第767期</b>➤➤大亨一语惊人：中国11亿人无消费能力！幸存者偏差；习近平最怕的俄罗斯反水将到来？
 
 【视频免翻墙】 : https://is.gd/rOT1KM
@@ -240,10 +242,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 【视频免翻墙】 : https://is.gd/dqSZhE<br>
 【视频免翻墙】 : https://is.gd/WGxWNb<br>
 【视频免翻墙】 : https://is.gd/A0lijO
-
-🔥<b>陈破空纵论天下</b>➤➤争夺接班人！习近平最不喜欢的人，竟忽然现身梁家河。美国示威降温，北京大失所望&nbsp;【声音档 26.9MB】
-
-【音頻下载】(6月16日前有效) : https://bit.ly/2BFnE1d
 
 🔥<b>文昭谈古论今20200608第766期</b>➤➤李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
