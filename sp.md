@@ -30,6 +30,17 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 【视频下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center">2020.06.15 新闻评论下载</div><p>
+
+❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+
+❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
+🔥<b>陈破空纵论天下</b>➤➤习近平紧张，为此事调集大量军警！浙江出大事。特朗普西点军校演讲引热议
+
+【视频下载】(6月22日前有效)  :https://bit.ly/3cYXkw1
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
 
 ❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
