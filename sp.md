@@ -1,7 +1,7 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
 
-❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
@@ -32,16 +32,19 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.15 新闻评论下载</div><p>
 
-❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+❗【珍言真語】袁弓夷携手班农 推“天灭中共运动”
+
+【下载】(6月22日前有效)  :https://bit.ly/3hqXsI9
 
 🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版）
 
 【下载】(6月22日前有效)  :https://bit.ly/2AtTiyK
 
-🔥<b>【今日点击】</b>中国科学家竟是解放军少校 大陆人想离美恐有难度
+🔥<b>【今日点击】</b>中国科学家竟是解放军少校 大陆人想离美恐有难度<br>
 🔥<b>【今日点击】</b>疫情卷土重来 北京又进入非常时期
 
 【下载】(6月22日前有效)  :https://bit.ly/3hp97HD
@@ -67,7 +70,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
 
-❗<b>请使用火狐，google(chrome)浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
