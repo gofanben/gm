@@ -30,9 +30,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 【下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.16 新闻评论下载</div><p>
+
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
+🔥<b>【中国禁闻6月15日完整版】</b>北京疫情升级 恐有新的爆发点；中国南方洪灾严重 中共媒体视而不见；传蓬佩奥杨洁篪将会晤 党媒突捧中美友谊。
+
+下载 : https://bit.ly/2YFvj7B
 
 🔥<b>【热点互动】</b>香港知名实业家发力，推动美国将中共定为“犯罪集团”！与班农会面，联手灭共；中美夏威夷会晤：中共要退让但或许已经太晚 | 袁弓夷 萧恩
 
