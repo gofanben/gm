@@ -35,6 +35,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+🔥<b>【蕭茗看世界】</b>萧茗采访袁爸爸：中共误判华尔街能左右川普； 中美综合国力相差悬殊，真正干起来，中共无牌可打；班农和蓬佩奥真心帮香港
+
+下载 : https://bit.ly/3hyBnaQ
+
 🔥<b>【中国禁闻6月15日完整版】</b>北京疫情升级 恐有新的爆发点；中国南方洪灾严重 中共媒体视而不见；传蓬佩奥杨洁篪将会晤 党媒突捧中美友谊。
 
 下载 : https://bit.ly/2YFvj7B
