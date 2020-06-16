@@ -36,25 +36,26 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【陈破空纵论天下】重庆出事！陈敏尔反叛习近平？争夺接班人，习家军爆内讧。北京女高官坠楼
 
-【下载】 : https://bit.ly/2YwBhre
+下载 : https://bit.ly/2YwBhre
 
 🔥<b>【文昭谈古论今20200615第770期】北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
 
-【下载】 : https://bit.ly/30Kez1G
+下载 : https://bit.ly/30Kez1G
 
 🎯免翻牆1: https://is.gd/Cot6ux
+
 🎯免翻牆2: https://is.gd/NJYai8
 
 🔥<b>【新闻看点 李沐阳】</b>中共跪了？杨洁篪将访美，赵立坚态度放软； 3航母集结印太，美警告不怕开战；袁爸爸投入“灭共行动”；李克强藉口请辞习批准？北京成疫原地，几十万潜在携带者，市民疯狂抢购蔬菜潮！
 
-【下载】 :  https://bit.ly/2N3d6vq
+下载 :  https://bit.ly/2N3d6vq
 
 🎯免翻牆1: https://is.gd/DO3Zff
 
 【今日点击】北京再爆疫情 “武汉肺炎”变“北京肺炎”<br>
 【今日点击】巧合？李文亮儿子出生当天北京爆疫情
 
-【下载】 :   https://bit.ly/2YDjgaP
+下载 :   https://bit.ly/2YDjgaP
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.15 新闻评论下载</div><p>
