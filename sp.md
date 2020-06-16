@@ -34,6 +34,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+
+🔥<b>【新闻拍案惊奇 大宇】🆘20万人被“瞄准”，千人警力封锁，新发地市场暴感染潮！网友：七百确诊；外省也中招！北京甩锅欧洲，三文鱼喊冤；江苏核电站运行事件！可控？水利部：防洪工程或有黑天鹅，指三峡吗?
+
+下载 : https://bit.ly/3fnOMQQ
+
 🔥<b>【陈破空纵论天下】重庆出事！陈敏尔反叛习近平？争夺接班人，习家军爆内讧。北京女高官坠楼
 
 下载 : https://bit.ly/2YwBhre
