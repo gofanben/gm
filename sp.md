@@ -28,6 +28,23 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）
 
 【下载】(6月18日前有效)  :https://bit.ly/2MTiS2p
+
+<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+
+❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
+<div align="center">2020.06.17 新闻评论下载</div><p>
+
+🔥<b>【陈破空纵论天下】</b>半个北京沦陷！习家军高官罕见免职。党媒忽然唱好中美关系。中印冲突酿重大伤亡
+
+下载 : https://bit.ly/2BiWEUY
+
+🔥<b>【文昭谈古论今20200616第771期】</b>中印边境急升温，45年来最严重；中印之战会再现？被玩砸的重大战略
+
+下载 : https://bit.ly/3dalyUj
+
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.16 新闻评论下载</div><p>
 
