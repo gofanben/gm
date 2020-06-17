@@ -64,8 +64,8 @@
 
 
 <hr>
-<a name=1><span style=color:#0000FF><H2 align="center">《九评》编辑部：《共产主义的终极目的》序言</H2></span>
-<div align=center><div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/goal-img/1.jpg" width=640></div></div><p>
+<a name=1><span style=color:#0000FF><H2 align="center">《九评》编辑部：《共产主义的终极目的》序言</H2></div></span>
+<div align=center><IMG SRC="https://github.com/gofanben/gm/blob/master/goal-img/1.jpg" width=640></div><p>
 		<p>【大纪元2017年11月18日讯】在《九评共产党》发表13周年之际，《九评》编辑部发表新书《共产主义的终极目的》。大纪元从今天起将刊载全书内容。</p>
 <p>******<br />
 <strong>《共产主义的终极目的》序言</strong></p>
