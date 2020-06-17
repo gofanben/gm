@@ -2,16 +2,16 @@
 
 点击视频下載 https://bit.ly/3eUyoaw
 
+🔥网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
+ 
 http://61.228.213.39/300
 
 http://61.228.211.212/300
 
 http://61.228.181.4/310
 
- 网页若出现〝你的连现不是私人连线″，点→进阶，再点→继续前往...，就可以看到视频了。		
-
 <div align=center><a href="https://bit.ly/2RQM1hX"> 看更多真相 https://bit.ly/2RQM1hX </a></div><p>
-
+ 
 <div align="center"><a href="http://61.228.179.201/69"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/minjen.jpg" width=640></a>
  
 当天可用明见网ip
