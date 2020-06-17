@@ -37,6 +37,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.17 新闻评论下载</div><p>
 
+🔥<b>【今日焦点】</b>多地现鱼跃水面异象 重庆被淹 三峡大坝引关注 |震前动物预兆 |南方八省洪灾|重庆洪水
+
+下载 : https://bit.ly/2YGJ0mN
+
+🔥<b>【新聞拍案驚奇 大宇】朝鲜陈兵韩国边境！炸毁对话堡垒，金与正“打韩”立威？中印边境严重冲突，印20军人丧生，中共死伤是谜；乱局是阴谋？世卫：北京疫情是重大事件！三天内定走向，最多两周后或大爆发
+
+下载 : https://bit.ly/3ecKYli
+
 🔥<b>【中国禁闻6月16日完整版】</b>北京确诊破百 28社区封闭式管理；美国立卫生院开除54学者 千人计划再受挫；海归“小粉红”女硕士 惨遭灭门式打压。
 
 下载 : https://bit.ly/2ULsocv
@@ -175,18 +183,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.13 新闻评论下载</div><p>
 
-🔥<b>【江峰漫谈20200612第188期】</b>史上最强制裁名单：两名政治局常委韩正、汪洋，五名正省部级，港澳办夏宝龙、中联办骆惠宁、公安部长赵克志、疆藏书记在列
-
-【下载】(6月20日前有效)  :https://bit.ly/2UDerNN
-
-🔥<b>【中国禁闻6月12日完整版】</b>监控百姓钱包 中共推“大额现金管理”；诗人王藏被强抓 云南楚雄警方抢劫王妻；ZOOM变防火墙 听命中共 封杀纪念六四账号。
-
-【下载】(6月20日前有效)  :https://bit.ly/2zy3lSU
-
-🔥<b>【热点互动】</b>推倒雕像，经典下架，“美国版文革”正在上演？大主教致信川普：这是善恶对决！美国会重磅提案制裁中共常委 | 唐靖远 萧恩
-
-【下载】(6月20日前有效)  :https://bit.ly/2B4eZW1
-
 🔥<b>【新聞拍案驚奇 大宇】</b>李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
 
 【免翻墙】:https://is.gd/dyXNHp
@@ -206,10 +202,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥<b>【新闻看点 李沐阳】</b>推特大砍17万帐户；Zoom认听命中共；“工科神器”被禁用，哈工大叫苦连天；“地毯李”遇“城管习”？疫情造假9部曲！200辆军车将入港，中共要镇压？美芯片将本土化，“厉害国”怎么厉害？
 
 【免翻墙】:https://is.gd/HuRpcm
-
-🔥<b>【陈破空纵论天下】</b>习近平秘带此人外出，又要整人？清查海外关系，亲共分子悬了！各国加紧围猎土共
-
-【下载】(6月20日前有效)  :https://bit.ly/3hqQvGU
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
