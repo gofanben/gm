@@ -37,6 +37,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.17 新闻评论下载</div><p>
 
+🔥<b>【唐靖远快评】</b>北京疫情直追武汉？官媒高调报导背后两大谋划；中共为何派杨洁篪夏威夷“跪低”？中美会谈地点透玄机
+
+下载 : https://bit.ly/2N4OnH5
+
 🔥<b>【今日焦点】</b>多地现鱼跃水面异象 重庆被淹 三峡大坝引关注 |震前动物预兆 |南方八省洪灾|重庆洪水
 
 下载 : https://bit.ly/2YGJ0mN
