@@ -71,6 +71,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.17 新闻评论下载</div><p>
 
+🔥<b>【新闻看点 李沐阳】北京疫情大爆发，成武汉第二！世卫称疫情“重大”；朝鲜炸毁外交公馆，中朝双簧再开唱？美国审查EB-5签证，阻止中共党员获绿卡；强硬派看热闹，硬拱习近平；中印闹掰了，冲突63人死亡
+
+🎯免翻牆 : https://is.gd/X5OKhH
+
 🔥<b>【唐靖远快评】</b>北京疫情直追武汉？官媒高调报导背后两大谋划；中共为何派杨洁篪夏威夷“跪低”？中美会谈地点透玄机
 
 下载 : https://bit.ly/2N4OnH5
@@ -91,10 +95,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/2URRkPA
 
-🔥<b>【新闻看点 李沐阳】北京疫情大爆发，成武汉第二！世卫称疫情“重大”；朝鲜炸毁外交公馆，中朝双簧再开唱？美国审查EB-5签证，阻止中共党员获绿卡；强硬派看热闹，硬拱习近平；中印闹掰了，冲突63人死亡
-
-🎯免翻牆 : https://is.gd/X5OKhH
-
 🔥<b>【陈破空纵论天下】</b>半个北京沦陷！习家军高官罕见免职。党媒忽然唱好中美关系。中印冲突酿重大伤亡
 
 下载 : https://bit.ly/2BiWEUY
@@ -109,6 +109,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
+
+🔥<b>【文昭谈古论今20200615第770期】</b>北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
+
+下载 : https://bit.ly/30Kez1G
+
+🎯免翻牆1: https://is.gd/Cot6ux
+
+🎯免翻牆2: https://is.gd/NJYai8
 
 🔥<b>【蕭茗看世界】</b>萧茗采访袁爸爸：中共误判华尔街能左右川普； 中美综合国力相差悬殊，真正干起来，中共无牌可打；班农和蓬佩奥真心帮香港
 
@@ -134,14 +142,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/2YwBhre
 
-🔥<b>【文昭谈古论今20200615第770期】</b>北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
-
-下载 : https://bit.ly/30Kez1G
-
-🎯免翻牆1: https://is.gd/Cot6ux
-
-🎯免翻牆2: https://is.gd/NJYai8
-
 🔥<b>【新闻看点 李沐阳】</b>中共跪了？杨洁篪将访美，赵立坚态度放软； 3航母集结印太，美警告不怕开战；袁爸爸投入“灭共行动”；李克强藉口请辞习批准？北京成疫原地，几十万潜在携带者，市民疯狂抢购蔬菜潮！
 
 下载 :  https://bit.ly/2N3d6vq
@@ -160,6 +160,12 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+🔥<b>【天亮时分(政论天下第181集 20200614)】</b>封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重
+
+🎯免翻牆1:https://is.gd/HueTFr
+
+🎯免翻牆1:https://is.gd/Etsl0f
+
 🔥【珍言真語】袁弓夷携手班农 推“天灭中共运动”
 
 【下载】(6月22日前有效)  :https://bit.ly/3hqXsI9
@@ -172,12 +178,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥<b>【今日点击】</b>疫情卷土重来 北京又进入非常时期
 
 【下载】(6月22日前有效)  :https://bit.ly/3hp97HD
-
-🔥<b>【天亮时分(政论天下第181集 20200614)】</b>封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重
-
-【免翻墙】:https://is.gd/HueTFr
-
-【免翻墙】:https://is.gd/Etsl0f
 
 🔥<b>【新聞拍案驚奇 大宇】</b>【会员节目试看 12小时限时公开】瘟疫史话之二：天要变挡不了！崇祯强国梦 碎在瘟疫劫 | 欢迎加入大宇新闻拍案惊奇“会员” （2020.06.14）
 
@@ -204,43 +204,38 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【新闻看点 李沐阳】</b>美国明制裁暗开后门， $20亿军火送人情；华尔街大鳄养肥中共，向中共输血3万亿；丰台疫情“爆发式”，北京战时状态；6.12全港抗争百人同歌，白衫亮刀偷袭记者，黑衣男挺身相救受伤
 
-【免翻墙】:https://is.gd/RsBqWx
+🎯免翻牆1:https://is.gd/RsBqWx
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.13 新闻评论下载</div><p>
 
 🔥<b>【新聞拍案驚奇 大宇】</b>李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
 
-【免翻墙】:https://is.gd/dyXNHp
+🎯免翻牆1:https://is.gd/dyXNHp
 
 🔥<b>文昭談古論今20200612第769期-1</b>疫情重返北京，结束55天零确诊！习近平凝视巨坑成真；制裁中共政治局常委，美国另有终极大招
 
-【免翻墙】:https://is.gd/Cot6ux<br>
-【免翻墙】:https://is.gd/NJYai8<br>
-【免翻墙】:https://is.gd/HVc8qP<br>
-【免翻墙】:https://is.gd/Xa967r
-
-🔥<b>【今日点击】</b>【今日点击】郝海东谈儿子被解聘 美共和党提议制裁韩正和汪洋<br>
-🔥<b>【今日点击】</b>郝海东谈儿子被解聘 美共和党提议制裁韩正和汪洋
-
-【下载】(6月20日前有效)  :https://bit.ly/2MW2MFk
+🎯免翻牆1::https://is.gd/Cot6ux<br>
+🎯免翻牆2::https://is.gd/NJYai8<br>
+🎯免翻牆3::https://is.gd/HVc8qP<br>
+🎯免翻牆4::https://is.gd/Xa967r
 
 🔥<b>【新闻看点 李沐阳】</b>推特大砍17万帐户；Zoom认听命中共；“工科神器”被禁用，哈工大叫苦连天；“地毯李”遇“城管习”？疫情造假9部曲！200辆军车将入港，中共要镇压？美芯片将本土化，“厉害国”怎么厉害？
 
-【免翻墙】:https://is.gd/HuRpcm
+🎯免翻牆1:https://is.gd/HuRpcm
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
 🔥<b>【新闻看点 李沐阳】</b>高晓松评希特勒，寓意深刻？“新八国联军”来袭，官媒不忘扣帽子；川普不忍了，韩正危险了！澳洲强硬政策不下跪；遮天蔽日！数千亿蝗虫真的来了！南方洪灾破纪录，超过北京半年雨
 
-【免翻墙】:https://is.gd/0IrHiT
+🎯免翻牆1: https://is.gd/0IrHiT
 
 🔥<b>天亮时分(政论天下第179集 20200610)</b>谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声
 
-【免翻墙】:https://is.gd/y5xjIr
+🎯免翻牆1: https://is.gd/y5xjIr
 
-【免翻墙】:https://is.gd/qDybaZ
+🎯免翻牆2: https://is.gd/qDybaZ
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
@@ -248,67 +243,67 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【新闻看点 李沐阳】</b>汇丰下跪，蓬佩奥炮轰中共；习总加速师凝视大坑？61岁杨丽萍被“催生”？中共摸底海外关系？4年砸1900万美元宣传；美国吊销中企电信运营许可？安倍关注香港将主导G7声明
 
-【免翻墙】:https://is.gd/OTvT3W
+🎯免翻牆1: https://is.gd/OTvT3W
 
 🔥<b>【文昭谈古论今20200610第768期】</b>中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
 
-【免翻墙】 :https://is.gd/BI4MUF
+🎯免翻牆1: https://is.gd/BI4MUF
 
-【免翻墙】 :https://is.gd/giiXbq
+🎯免翻牆2: https://is.gd/giiXbq
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
 
 🔥<b>新聞拍案驚奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
-【免翻墙】 : https://is.gd/NmAd2x
+🎯免翻牆1:  https://is.gd/NmAd2x
 
 🔥<b>【新闻看点 李沐阳06.09】</b>任正非批中共“砸钱不行”，吃诚实豆沙包？世卫爆料：中共“重大拖延”；谭书记变谭总机，当机10秒；张晓明“杀气腾腾”，预示加大镇压力度？去年8月病毒已传播？哈佛2大证据
 
-【免翻墙】 : https://is.gd/BSEgOi
+🎯免翻牆1: https://is.gd/BSEgOi
 
 🔥<b>江峰时刻（江峰漫谈20200609第186期）</b>地摊经济，百姓的无奈与中共的谋算； 习李不是内斗而是携手左转，开启中共新闭关锁国时代；香港反送中一周年
 
-【免翻墙】 : https://is.gd/hV7xEn
+🎯免翻牆1:  https://is.gd/hV7xEn
 
-【免翻墙】 : https://is.gd/P6Dr9u
+🎯免翻牆1: https://is.gd/P6Dr9u
 
 🔥<b>文昭谈古论今20200606第767期</b>大亨一语惊人：中国11亿人无消费能力！幸存者偏差；习近平最怕的俄罗斯反水将到来？
 
-【免翻墙】 : https://is.gd/rOT1KM
+🎯免翻牆1:  https://is.gd/rOT1KM
 
-【免翻墙】 : https://is.gd/rOT1KM
+🎯免翻牆2: https://is.gd/rOT1KM
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.09 新闻评论下载</div><p>
 
 🔥<b>世界的十字路口 唐浩</b>哈佛研究：中国疫情10月已发生；反送中周年，全球抗共潮蔓延；揭密中共诡辩卸责五部曲（2020.6.9）
 
-【免翻墙】 : https://is.gd/LCj9Go<br>
-【免翻墙】 : https://is.gd/dqSZhE<br>
-【免翻墙】 : https://is.gd/WGxWNb<br>
-【免翻墙】 : https://is.gd/A0lijO
+🎯免翻牆1:  https://is.gd/LCj9Go<br>
+🎯免翻牆2:  https://is.gd/dqSZhE<br>
+🎯免翻牆3:  https://is.gd/WGxWNb<br>
+🎯免翻牆4:  https://is.gd/A0lijO
 
 🔥<b>文昭谈古论今20200608第766期</b>李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
-【免翻墙】 : https://is.gd/NtJ5Pn<br>
-【免翻墙】 : https://is.gd/6qmN4R
+🎯免翻牆1: https://is.gd/NtJ5Pn<br>
+🎯免翻牆2: https://is.gd/6qmN4R
 
 🔥<b>【新闻看点 李沐阳06.08】</b>中共新规定：党员的20个不准！中共抗疫白皮书，给自己立“贞节牌坊”？铁杆伊朗嘲笑中共确诊数；破坏美国研发疫苗，北京阻止病毒样本分享，南方8省洪灾严重，醴陵河水位日涨4米
 
-【免翻墙】 : https://is.gd/Rx9P1j
+🎯免翻牆1: https://is.gd/Rx9P1j
 
 🔥<b>新聞拍案驚奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
-【免翻墙】 : https://is.gd/jALCBg
+🎯免翻牆1: https://is.gd/jALCBg
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">精彩保留</div><p>
 
 🔥<b>政论天下第177集 20200604</b>👉郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?
 
-【免翻墙】: https://is.gd/okhG1X<br>
-【免翻墙】 : https://is.gd/QVnHzA
+🎯免翻牆1: https://is.gd/okhG1X<br>
+🎯免翻牆2:  https://is.gd/QVnHzA
 
 GitHub下载方式：<br>
 手机：对着擋按名稱长按下载连结；或點檔案名稱，再对着 View raw 长按下载连结<br>
