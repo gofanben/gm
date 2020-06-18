@@ -33,25 +33,35 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.18 新闻评论下载 (下载的有效期3天)</div><p>
 
-🔥<b>【今日焦点】</b>四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理 0618-jrjd.mp4 (9.77MB)
+🔥<b>江峰直播：</b>与袁弓夷先生谈谈中印战争、北朝鲜、和香港国安法 0618-jfmt.m4a
 
-下载 : https://bit.ly/2Nau2QO
+🎯免翻牆1:https://is.gd/sbQfcO
 
-🔥<b>【热点互动】</b>夏威夷密会双方各自表述：中共漫天要价？美方以静制动；北京疫情来势凶猛，官方运动式应对恐加速传播 | Jason 横河0618-rdhd.m4a
+🎯免翻牆1:https://is.gd/oMA40e
 
-下载 :https://bit.ly/2NaMZ5P
+下载 : https://bit.ly/2AEPjzs
 
 🔥<b>【新闻看点 李沐阳】</b>病毒攻入中南海，中南海大封锁！ 小区全封闭，市民断粮断菜，焚尸工全副武装，北京已成武汉？中印冲突王毅求和？600人肉搏6小时，印指挥官坠谷亡，伤亡数字成秘密！
 
 🎯免翻牆1:https://is.gd/XXk7T0
 
-🔥<b>【陈破空纵论天下】</b>中印激战，后果二比一！中方不敢提。炸平韩朝办公室，这个女人演的是哪一出    0618-chenpokong.mp4+0618-chenpokong.m4a
+🔥<b>【蕭茗看世界】</b>直播：袁弓夷談楊潔篪和彭培奧會面
+
+🎯免翻牆1:https://is.gd/ATecRh
+
+🎯免翻牆2:https://is.gd/QZlNwq
+
+🔥<b>【今日焦点】</b>四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理 0618-jrjd.mp4 (9.77MB)
+
+下载 : https://bit.ly/2Nau2QO
+
+🔥<b>【热点互动】</b>夏威夷密会双方各自表述：中共漫天要价？美方以静制动；北京疫情来势凶猛，官方运动式应对恐加速传播 | Jason 横河         0618-rdhd.m4a
+
+下载 :https://bit.ly/2NaMZ5P
+
+🔥<b>【陈破空纵论天下】</b>中印激战，后果二比一！中方不敢提。炸平韩朝办公室，这个女人演的是哪一出              0618-chenpokong.mp4+0618-chenpokong.m4a
 
 下载 : https://bit.ly/3fv89Yg
-
-🔥<b>江峰直播：</b>与袁弓夷先生谈谈中印战争、北朝鲜、和香港国安法 0618-jfmt.m4a
-
-下载 : https://bit.ly/2AEPjzs
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 
