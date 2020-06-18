@@ -31,7 +31,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
-<div align="center">2020.06.18 新闻评论下载 (下载有效期3天)</div><p>
+<div align="center">2020.06.18 新闻评论下载 (下载的有效期3天)</div><p>
+
+🔥<b>【今日焦点】</b>四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理 0618-jrjd.mp4 (9.77MB)
+
+下载 : https://bit.ly/2Nau2QO
 
 🔥<b>【热点互动】</b>夏威夷密会双方各自表述：中共漫天要价？美方以静制动；北京疫情来势凶猛，官方运动式应对恐加速传播 | Jason 横河0618-rdhd.m4a
 
@@ -41,7 +45,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🎯免翻牆1:https://is.gd/XXk7T0
 
-🔥<b>【陈破空纵论天下】</b>中印激战，后果二比一！中方不敢提。炸平韩朝办公室，这个女人演的是哪一出0618-chenpokong.mp4+0618-chenpokong.m4a
+🔥<b>【陈破空纵论天下】</b>中印激战，后果二比一！中方不敢提。炸平韩朝办公室，这个女人演的是哪一出    0618-chenpokong.mp4+0618-chenpokong.m4a
 
 下载 : https://bit.ly/3fv89Yg
 
