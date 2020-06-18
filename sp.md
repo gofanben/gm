@@ -51,6 +51,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🎯免翻牆2:https://is.gd/QZlNwq
 
+🔥<b>袁弓夷：中共氣數已盡 滅共才有出路</b> (MP4 4.57MB)
+
+下载 : https://bit.ly/2YOWFbB
+
 🔥<b>【今日焦点】</b>四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理 0618-jrjd.mp4 (9.77MB)
 
 下载 : https://bit.ly/2Nau2QO
