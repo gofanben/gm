@@ -17,7 +17,7 @@
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
 
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center">预言破解</div><p>
 
@@ -25,7 +25,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【下载】(6月25日前有效)  :https://bit.ly/3da4LRi
 
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
@@ -63,7 +63,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/3fv89Yg
 
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
 
