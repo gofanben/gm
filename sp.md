@@ -27,7 +27,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
