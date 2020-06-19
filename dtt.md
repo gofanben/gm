@@ -1,6 +1,6 @@
-<div align="center"><h1>2020.06.19 精选</h1></div>
+<div align="center"><h2>2020.06.19 精选</h2></div>
 
-<div align="center"><img src="/dtt-img/134.gif" width=880></div><p>
+<div align="center"><img src="/dtt-img/159.gif" width=880></div><p>
 
 <b>时代动荡不安，天灾人祸不断，这时的您请务必要多关心时事，这或许给您保住了生命和财产安全，所以给您精选几则国内看不到的重要讯息，希望您能花一点时间看看，希望和您一起渡过这危难时刻！</b>
 
@@ -10,7 +10,7 @@
 
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</h3></div>
 
-<div align="center"><img src="/dtt-img/134.gif" width=880></div><p>
+<div align="center"><img src="/dtt-img/159.gif" width=880></div><p>
 
 <a href =#1>水攻与狼牙棒 中印边境战更多细节曝光</a><p>
 <a href =#2>长江流域洪灾泛滥 专家谈三峡大坝隐患</a><p>
