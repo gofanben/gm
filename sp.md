@@ -31,16 +31,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
+安卓手机谷歌chrome浏览器 (6月21日前有效)   https://bit.ly/3hr2tR4
+
+安卓手机火狐浏览器  (6月21日前有效)  https://bit.ly/2B262MN
+
 <div align="center">2020.06.19 新闻评论下载 (下载的有效期3天)</div><p>
-
-
-安卓手机谷歌chrome浏览器  https://bit.ly/3hr2tR4
-
-安卓手机火狐浏览器  https://bit.ly/2B262MN
-
-🔥<b>【陈破空纵论天下】</b>北京疫情告急，习近平躲到外地？美中闭门谈判，美军基地下马威。中印两军格斗内幕 0619-chenpokong.m4a (27.2MB)
-
-下载 : https://bit.ly/3hJQxtC
 
 🔥<b>【新闻看点 李沐阳】</b>新发地5米一军警，北京西红门万人小区400感染；三峡大坝危险，宜昌以下快跑！中共士兵用狼牙棒杀人，印度国民反共情绪高涨；中共军机10天5侵台，中共海警船连续６５天挑衅日本
 
@@ -62,6 +57,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥<b>【今日点击】</b>黄小坤：宜昌以下跑 最后一次说 0619-2-jrdj.mp3 (11.3MB)
 
 下载 : https://bit.ly/3hFbExj
+
+🔥<b>【陈破空纵论天下】</b>北京疫情告急，习近平躲到外地？美中闭门谈判，美军基地下马威。中印两军格斗内幕 0619-chenpokong.m4a (27.2MB)
+
+下载 : https://bit.ly/3hJQxtC
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
