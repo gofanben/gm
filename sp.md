@@ -47,6 +47,12 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/3divKtM
 
+🔥<b>江峰漫谈20200619第191期</b>中印边境冲突升级到战争有多远？从七千人大会的毛刘斗到两会的习李乱；从尼赫鲁到莫迪，看来大家都准备好了。
+
+🎯免翻牆1: https://is.gd/2btMmn
+
+🎯免翻牆2: https://is.gd/5qt0re
+
 🔥<b>文昭谈古论今20200618第772期</b>杨洁篪、彭培奥交锋，中共要赔印度？人大常委会冲刺香港《国安法》；制裁韩正开辟权斗新局面 0619-wenzhao.m4a（18.2MB）
 
 下载 : https://bit.ly/37HFDjt
@@ -63,6 +69,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥<b>【陈破空纵论天下】</b>北京疫情告急，习近平躲到外地？美中闭门谈判，美军基地下马威。中印两军格斗内幕 0619-chenpokong.m4a (27.2MB)
 
 下载 : https://bit.ly/3hJQxtC
+
+🔥<b>天亮时分(政论天下第183集 20200618)</b>杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识?川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话? 0619-tlsf.m4a  (19.3MB)
+
+下载 : https://bit.ly/2NaAuaf
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
