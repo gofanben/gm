@@ -37,7 +37,9 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.19 新闻评论下载 (下载的有效期3天)</div><p>
 
-🔥<b>【新闻看点 李沐阳】</b>新发地5米一军警，北京西红门万人小区400感染；三峡大坝危险，宜昌以下快跑！中共士兵用狼牙棒杀人，印度国民反共情绪高涨；中共军机10天5侵台，中共海警船连续６５天挑衅日本
+🔥<b>【新闻看点 李沐阳】</b>新发地5米一军警，北京西红门万人小区400感染；三峡大坝危险，宜昌以下快跑！中共士兵用狼牙棒杀人，印度国民反共情绪高涨；中共军机10天5侵台，中共海警船连续６５天挑衅日本  0619-swkd.mp4 (33.7MB)
+
+下载 : https://bit.ly/2UZTZGV
 
 🎯免翻牆1:https://is.gd/zBJLLd
 
