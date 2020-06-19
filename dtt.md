@@ -4,7 +4,7 @@
 
 
 <div align="center"><h3><a href="https://bit.ly/2A4uPQb">最新评论、热门视频下載 https://bit.ly/2A4uPQb</a></h3></div>
-<div align="center"><h3><a href=https://git.io/swspip>(收藏)免翻入口 https://git.io/swspip</a></h3></div>
+<div align="center"><h3><a href=https://bit.ly/36t0F4K>(收藏)免翻入口 https://bit.ly/36t0F4K</a></h3></div>
 
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</h3></div>
 
@@ -180,7 +180,7 @@
 <blockquote class="twitter-tweet">
 <p dir="ltr" lang="en">It was not Ambassador Lighthizer’s fault (yesterday in Committee) in that perhaps I didn’t make myself clear, but the U.S. certainly does maintain a policy option, under various conditions, of a complete decoupling from China. Thank you!</p>
 <p>— Donald J. Trump (@realDonaldTrump) <a href="https://twitter.com/realDonaldTrump/status/1273706102023237633?ref_src=twsrc%5Etfw">June 18, 2020</a></p></blockquote>
-<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 <p>周三，美国贸易代表罗伯特·莱特希泽（Robert E. Lighthizer）在众议院筹款委员会的听证会上表示：“你认为可以坐下来，将美国经济与中国经济脱钩吗？”他说，“不，我认为这是几年前的政策选择。目前，我认为这不是一个合理的政策选择。”</p>
 <p>这是川普第二次透露和北京断绝关系的想法。</p>
 <p>5月14日，川普接受《福克斯商业》采访，谈到中国问题时，川普说：“我们可以做很多事情。”“我们可以切断（和中共的）所有关系。”</p>
@@ -216,13 +216,13 @@
 <p dir="ltr" lang="zh">三峡上游川渝洪水泛滥，小水库溃坝，三峡大坝危矣！<br />
 四川丹巴堰塞水库溃坝后的场景，整个村庄被毁！<a href="https://t.co/OLsGA5KTlX">pic.twitter.com/OLsGA5KTlX</a></p>
 <p>— 财经冷眼 (@caijinglengyan) <a href="https://twitter.com/caijinglengyan/status/1273258207377387521?ref_src=twsrc%5Etfw">June 17, 2020</a></p></blockquote>
-<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+</p>
 <h2><strong>传大陆专家：宜昌以下快跑</strong></h2>
 <p>17日，多名网民在推特上转发大陆知名专家黄小坤在朋友圈里的警告说：“宜昌以下跑，最后说一次！”</p>
 <blockquote class="twitter-tweet">
 <p dir="ltr" lang="zh"><a href="https://twitter.com/hashtag/%E4%B8%89%E5%B3%A1%E5%A4%A7%E5%9D%9D?src=hash&amp;ref_src=twsrc%5Etfw">#三峡大坝</a> 工学硕士学位，国家一级注册结构工程师，现任中国建筑科学研究院研究员、博士生导师，建研科技股份有限公司总工程师、研发中心主任黄小坤在朋友圈说：宜昌以下跑，最后说一次！ <a href="https://t.co/8vY50XCaew">pic.twitter.com/8vY50XCaew</a></p>
 <p>— 默默 (@zixinho17) <a href="https://twitter.com/zixinho17/status/1273212410556379137?ref_src=twsrc%5Etfw">June 17, 2020</a></p></blockquote>
-<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script></p>
+</p>
 <p>据悉，黄小坤获得三峡大坝工学硕士学位，国家一级注册结构工程师，现任中国建筑科学研究院研究员、博士生导师，建研科技股份有限公司总工程师、研发中心主任。</p>
 <h2><strong>王维洛：<a href="https://www.epochtimes.com/gb/tag/%E9%95%BF%E6%B1%9F.html">长江</a>下游人口密集 没地方逃</strong></h2>
 <p>就三峡大坝可能溃坝的问题，大纪元记者6月18日采访了著名三峡大坝问题专家、旅居德国的王维洛博士。</p>
@@ -285,7 +285,7 @@
 <blockquote class="twitter-tweet">
 <p dir="ltr" lang="zh">抛开意识形态，同样是条命，同样是遵命守卫领土，为何人家牺牲了能被哀悼纪念，甚至举国哀痛，中国士兵却连数字也不是？ <a href="https://t.co/B0Bz7kyKjI">https://t.co/B0Bz7kyKjI</a></p>
 <p>— 杨占青 (@yangzhanqing) <a href="https://twitter.com/yangzhanqing/status/1273681499536142336?ref_src=twsrc%5Etfw">June 18, 2020</a></p></blockquote>
-<p><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 <p>责任编辑：李缘</p>
 网址转载：https://www.epochtimes.com/gb/20/6/18/n12196307.htm
 
