@@ -34,6 +34,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center">2020.06.19 新闻评论下载 (下载的有效期3天)</div><p>
 
 
+安卓手机谷歌chrome浏览器  https://bit.ly/3hr2tR4
+
+安卓手机火狐浏览器  https://bit.ly/2B262MN
+
 🔥<b>【陈破空纵论天下】</b>北京疫情告急，习近平躲到外地？美中闭门谈判，美军基地下马威。中印两军格斗内幕 0619-chenpokong.m4a (27.2MB)
 
 下载 : https://bit.ly/3hJQxtC
@@ -48,7 +52,16 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>文昭谈古论今20200618第772期</b>杨洁篪、彭培奥交锋，中共要赔印度？人大常委会冲刺香港《国安法》；制裁韩正开辟权斗新局面 0619-wenzhao.m4a（18.2MB）
 
-下载 : 
+下载 : https://bit.ly/37HFDjt
+
+🎯免翻牆1: https://is.gd/pAHjTK
+
+🎯免翻牆2: https://is.gd/zJjkPp
+
+🔥<b>【今日点击】</b>中印边境冲突 中方有备而来 欲掩盖什么？G7联合声明反对港版国安法 英警告制裁 0619-1-jrdj.mp3 (11.3MB)<br>
+🔥<b>【今日点击】</b>黄小坤：宜昌以下跑 最后一次说 0619-2-jrdj.mp3 (11.3MB)
+
+下载 : https://bit.ly/3hFbExj
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -141,8 +154,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【文昭谈古论今20200615第770期】</b>北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
 
-下载 : https://bit.ly/30Kez1G
-
 🎯免翻牆1: https://is.gd/Cot6ux
 
 🎯免翻牆2: https://is.gd/NJYai8
@@ -167,20 +178,9 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/3cZzws0
 
-🔥<b>【陈破空纵论天下】</b>重庆出事！陈敏尔反叛习近平？争夺接班人，习家军爆内讧。北京女高官坠楼
-
-下载 : https://bit.ly/2YwBhre
-
 🔥<b>【新闻看点 李沐阳】</b>中共跪了？杨洁篪将访美，赵立坚态度放软； 3航母集结印太，美警告不怕开战；袁爸爸投入“灭共行动”；李克强藉口请辞习批准？北京成疫原地，几十万潜在携带者，市民疯狂抢购蔬菜潮！
 
-下载 :  https://bit.ly/2N3d6vq
-
 🎯免翻牆1: https://is.gd/DO3Zff
-
-【今日点击】北京再爆疫情 “武汉肺炎”变“北京肺炎”<br>
-【今日点击】巧合？李文亮儿子出生当天北京爆疫情
-
-下载 :   https://bit.ly/2YDjgaP
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.15 新闻评论下载</div><p>
@@ -222,14 +222,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
-❗<b>【天路漫游】</b>“黑人命贵”是一场摆放生命位置的美式文革闹剧，美国至暗时刻与您探讨生命的尊卑！| 拜登下跪 | 给黑人洗脚 | 中共土改 | 美国暴乱
-
-【下载】(6月21日前有效)  :https://bit.ly/2Ao4KMh
 
 🔥<b>【新闻看点 李沐阳】</b>美国明制裁暗开后门， $20亿军火送人情；华尔街大鳄养肥中共，向中共输血3万亿；丰台疫情“爆发式”，北京战时状态；6.12全港抗争百人同歌，白衫亮刀偷袭记者，黑衣男挺身相救受伤
 
