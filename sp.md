@@ -45,6 +45,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/3fHGQtU
 
+🔥<b>【今日点击】</b>中印边境冲突与杨洁篪赴美谈判时间完美吻合中国专收养孤儿训练成打手赴边境抗印军 0620-1-jrdj.mp3 11.2MB<br>
+🔥<b>【今日点击】</b>川普表示美中“完全脱钩”仍是政策选项 0620-2-jrdj.mp3 11.3MB
+
+下载 : https://bit.ly/3hJ2foz
+
+🔥<b>【陈破空纵论天下】</b>新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵 0620-chenpokong.m4a 27.3MB
+
+下载 : https://bit.ly/2UYYukU
 
 🔥<b>【新闻看点 李沐阳】</b>丰台瞒报中央震怒？全市启动一级战备；北大医院全封闭，地坛医院增千床；蓬佩奥寒酸招待，央视主播谩骂失误，杨洁篪躺着中枪；川普放狠话脱钩，全面进入新冷战；中共4年撒币7840亿美金
 
@@ -55,29 +63,23 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 https://bit.ly/2UZArmb
 
 🎯免翻牆1: https://is.gd/LXNP1N
+
 🎯免翻牆2: https://is.gd/In02IX
 
 🔥<b>【蕭茗看世界】</b>杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？
 
 🎯免翻牆1: https://is.gd/yBQ1yh
-🎯免翻牆2: https://is.gd/XR7NeW
 
+🎯免翻牆2: https://is.gd/XR7NeW
 
 🔥<b>江峰直播20200619完整版</b>江峰、萧若元网上对谈粤语直播（中文字幕）：中美夏威夷高层会谈互不退让，香港国安法急出，香港前途如何？美国准备最强制裁，西方准备难民方案，打得赢就打，打不赢就撤 
 
 这期节目有简体和繁体中文字幕（电脑上点CC，手机上点开右上角的3个竖点，选择字幕）。<br>
 这期节目免翻墙的短连结：<br>
+
 🎯免翻牆1: https://is.gd/QMNWyX
+
 🎯免翻牆2: https://is.gd/74U4S5
-
-🔥<b>【今日点击】</b>中印边境冲突与杨洁篪赴美谈判时间完美吻合中国专收养孤儿训练成打手赴边境抗印军 0620-1-jrdj.mp3 11.2MB<br>
-🔥<b>【今日点击】</b>川普表示美中“完全脱钩”仍是政策选项 0620-2-jrdj.mp3 11.3MB
-
-下载 : https://bit.ly/3hJ2foz
-
-🔥<b>【陈破空纵论天下】</b>新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵 0620-chenpokong.m4a 27.3MB
-
-下载 : https://bit.ly/2UYYukU
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
