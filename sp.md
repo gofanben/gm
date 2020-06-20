@@ -37,11 +37,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.20 新闻评论下载 (下载的有效期3天)</div><p>
 
-🔥<b>【世事关心】</b>大瘟疫中 中国人面临哪些身份危机？ 0620-ssgx.mp4  37.8MB
+🔥<b>【世事关心】</b>大瘟疫中 中国人面临哪些身份危机？ 0620-ssgx.mp4  (37.8MB)
 
 下载 : https://bit.ly/37Mp6uP
 
-🔥<b>【禁闻】</b>传三峡大坝危殆 专家指点逃生路 0620-ckjw-1.mp4  8.12MB
+🔥<b>【禁闻】</b>传三峡大坝危殆 专家指点逃生路 0620-ckjw-1.mp4  (8.12MB)
 
 下载 : https://bit.ly/3fHGQtU
 
@@ -53,16 +53,16 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🎯免翻牆1: https://is.gd/4bQrjk
 
-🔥<b>【热点互动】</b>中印冲突更多惨烈细节曝光！中方使用狼牙棒，蓄意伏击；印度全民愤怒，中印关系走向如何？夏威夷会晤后蓬佩奥强硬表态：这是在自由和暴政之间的选择 | 唐靖远 赵培 0620-rdhd.m4a 40.6MB
+🔥<b>【热点互动】</b>中印冲突更多惨烈细节曝光！中方使用狼牙棒，蓄意伏击；印度全民愤怒，中印关系走向如何？夏威夷会晤后蓬佩奥强硬表态：这是在自由和暴政之间的选择 | 唐靖远 赵培 0620-rdhd.m4a (40.6MB)
 
 下载 : https://bit.ly/3di8MTJ
 
 🔥<b>【今日点击】</b>中印边境冲突与杨洁篪赴美谈判时间完美吻合中国专收养孤儿训练成打手赴边境抗印军 0620-1-jrdj.mp3 11.2MB<br>
-🔥<b>【今日点击】</b>川普表示美中“完全脱钩”仍是政策选项 0620-2-jrdj.mp3 11.3MB
+🔥<b>【今日点击】</b>川普表示美中“完全脱钩”仍是政策选项 0620-2-jrdj.mp3 (11.3MB)
 
 下载 : https://bit.ly/3hJ2foz
 
-🔥<b>【陈破空纵论天下】</b>新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵 0620-chenpokong.m4a 27.3MB
+🔥<b>【陈破空纵论天下】</b>新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵 0620-chenpokong.m4a (27.3MB)
 
 下载 : https://bit.ly/2UYYukU
 
