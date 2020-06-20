@@ -53,6 +53,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🎯免翻牆1: https://is.gd/4bQrjk
 
+🔥<b>【思想领袖】</b>莱顿：美国面临中共科技威胁 0620-sxlx.mp4 (22.7MB)
+
+下载 : https://bit.ly/3ejpnI9
+
 🔥<b>【热点互动】</b>中印冲突更多惨烈细节曝光！中方使用狼牙棒，蓄意伏击；印度全民愤怒，中印关系走向如何？夏威夷会晤后蓬佩奥强硬表态：这是在自由和暴政之间的选择 | 唐靖远 赵培 0620-rdhd.m4a (40.6MB)
 
 下载 : https://bit.ly/3di8MTJ
