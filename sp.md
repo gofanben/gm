@@ -8,7 +8,7 @@
 </p>
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
-<div align="center"><img src="/sp-img/14730498588876552608.png" width=600></div>
+
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
@@ -35,6 +35,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【MP4下载，59.4MB】(6月25日前有效)  :https://bit.ly/3da4LRi
 
+<hr>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
@@ -44,6 +45,18 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 安卓手机谷歌chrome浏览器 (6月21日前有效)   https://bit.ly/3hr2tR4
 
 安卓手机火狐浏览器  (6月21日前有效)  https://bit.ly/2B262MN
+
+<div align="center">2020.06.21 新闻评论下载 (下载的有效期3天)</div><p>
+
+🔥<b>【陈破空纵论天下】</b>利用疫情，此人想当副主席？习近平亲自隐瞒：共军正副指挥官遭印军... 0621-chenpokong.m4a (27.1MB)
+
+下载 :  https://bit.ly/37QIVBk
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
+
+❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
 <div align="center">2020.06.20 新闻评论下载 (下载的有效期3天)</div><p>
 
