@@ -63,6 +63,14 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
 
+🔥<b>【严真点评】</b>外交部大实话：美中高层会谈不欢而散，欧洲欲将中共告上国际法庭。
+
+🎯免翻牆1: https://bit.ly/2UQNk1J
+
+🔥<b>时事小品_657</b>期躺枪的三文鱼
+
+🎯免翻牆1: https://bit.ly/2UQNk1J
+
 🔥<b>【Jason快评】</b>军机扰台，国安法细则出台，审判加国公民...总加速师，一个机会也不放过？ 0621-jason.m4a (21.4MB)
 
 下载  :  https://bit.ly/2YSU7Jn
