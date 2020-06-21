@@ -53,9 +53,23 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🎯免翻牆1: https://is.gd/j6w0t8
 
 
+🔥<b>天亮时分</b>📣香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)
+
+🎯免翻牆1: https://is.gd/KYk1G8
+
+🎯免翻牆2: https://is.gd/hq86Bq
+
+📣这里还给大家提供一个自带翻墙功能的希望之声手机App,适用于所有安卓系统的手机（所有的中国手机品牌，以及三星，LG等非iPhone手机）。，安装后即可使用。用这个App可以收听收看天亮时分的节目。
+
+下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
+
+🔥<b>【Jason快评】</b>军机扰台，国安法细则出台，审判加国公民...总加速师，一个机会也不放过？ 0621-jason.m4a (21.4MB)
+
+下载  :  https://bit.ly/2YSU7Jn
+
 🔥<b>【新闻周刊】第737期</b>抗恶法！港人三罢公投 市民：这一刻要出来;北京成新武汉 多省市受影响 疫情已南移;台湾公布港人救援方案 专责办公室七一成立;中共病毒致45.8万人亡 巴西1百万人确诊 0621_xwzk.mp4 (57.4MB)
 
-下载 :  https://bit.ly/2YRF3f6
+下载  :  https://bit.ly/2YRF3f6
 
 🔥<b>【今日点击】</b>港版国安法能在港实施吗？ 0621-jrdj.mp3 (11.3MB)
 
