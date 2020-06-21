@@ -53,7 +53,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🎯免翻牆1: https://is.gd/j6w0t8
 
 
-🔥<b>天亮时分</b>📣香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)
+🔥<b>【天亮时分】</b>📣香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)
 
 🎯免翻牆1: https://is.gd/KYk1G8
 
