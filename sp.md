@@ -47,7 +47,21 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
 
-<div align="center">2020.06.22 新闻评论下载 (下载的有效期3天)</div><p>
+📣这里还给大家提供一个自带翻墙功能的希望之声手机App,适用于所有安卓系统的手机（所有的中国手机品牌，以及三星，LG等非iPhone手机）。，安装后即可使用。用这个App可以收听收看天亮时分的节目。
+
+下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
+
+▲破网软件 (6月25日前有效) : 
+自由门安卓版4.2	https://bit.ly/3dcfNFA<br>
+无界 安卓版 4.8	        https://bit.ly/2Y98muA<br>
+环门 安卓版 036	https://bit.ly/2AJzBCU<br>
+Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
+自由门电脑版 7.83 （6月4日)	https://bit.ly/2ABaSkp<br>
+无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
+爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
+Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
+
+<div align="center"><b>2020.06.22 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 <div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
 
@@ -81,10 +95,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🎯免翻牆1: https://is.gd/KYk1G8
 
 🎯免翻牆2: https://is.gd/hq86Bq
-
-📣这里还给大家提供一个自带翻墙功能的希望之声手机App,适用于所有安卓系统的手机（所有的中国手机品牌，以及三星，LG等非iPhone手机）。，安装后即可使用。用这个App可以收听收看天亮时分的节目。
-
-下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
 
 🔥<b>【严真点评】</b>外交部大实话：美中高层会谈不欢而散，欧洲欲将中共告上国际法庭。
 
