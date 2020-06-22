@@ -49,6 +49,12 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.22 新闻评论下载 (下载的有效期3天)</div><p>
 
+<div align="center"><img src="/sp-img/0622132323.jpg.jpg" width=450></div>
+
+党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
+
+下载 : https://bit.ly/37NGmzG
+
 🔥<b>【中国禁闻6月21日完整版】</b>北京疫情延烧 多省医疗队紧急入京；中共免除非洲国家债务 专家揭背后真相；港版国安法细节曝光 颠覆香港司法独立。 0622_ckjw.mp4 (60.4MB)
 
 下载 : https://bit.ly/3hOa38v
