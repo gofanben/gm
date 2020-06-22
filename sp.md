@@ -49,7 +49,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">2020.06.22 新闻评论下载 (下载的有效期3天)</div><p>
 
-<div align="center"><img src="/sp-img/0622132323.jpg.jpg" width=450></div>
+<div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
 
 党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
 
