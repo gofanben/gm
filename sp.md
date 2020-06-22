@@ -59,6 +59,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 (6月26日前有效) :https://bit.ly/3hOa38v
 
+🔥<b>【新聞拍案驚奇 大宇】</b>邓小平“呼吁”打倒中共！港国安法：特首港警成太保，设“东厂西厂”；湖北援北京防疫；阻出京特急通知！共机再侵台领空，俄卖武器给印度；地质灾害预警，网议三峡逃命攻略；夏至日环食
+
+🎯免翻牆1: https://is.gd/KZjdcN
+
 🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
 
 下载 : https://bit.ly/314BIMo
