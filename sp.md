@@ -52,7 +52,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载 : https://bit.ly/314BIMo
 
-<hr>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center">2020.06.21 新闻评论下载 (下载的有效期3天)</div><p>
