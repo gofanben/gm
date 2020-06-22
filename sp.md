@@ -53,11 +53,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
 
-下载 : https://bit.ly/37NGmzG
+下载 (6月26日前有效) : https://bit.ly/37NGmzG
 
 🔥<b>【中国禁闻6月21日完整版】</b>北京疫情延烧 多省医疗队紧急入京；中共免除非洲国家债务 专家揭背后真相；港版国安法细节曝光 颠覆香港司法独立。 0622_ckjw.mp4 (60.4MB)
 
-下载 : https://bit.ly/3hOa38v
+下载 (6月26日前有效) :https://bit.ly/3hOa38v
 
 🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
 
