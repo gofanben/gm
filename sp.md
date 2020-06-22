@@ -65,7 +65,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
 
-党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
+🔥<b>【禁闻】</b>党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
 
 下载 (6月26日前有效) : https://bit.ly/37NGmzG
 
@@ -77,7 +77,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻牆1: https://is.gd/KZjdcN
 
-【今日点击】港版国安法草案出炉 港警变二等公民 0622-jrdj.mp3 (11.3MB)
+🔥<b>【今日点击】</b>港版国安法草案出炉 港警变二等公民 0622-jrdj.mp3 (11.3MB)
 
 下载 : https://bit.ly/2AMTtW1
 
