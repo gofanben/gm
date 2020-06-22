@@ -42,9 +42,18 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
-安卓手机谷歌chrome浏览器 (6月21日前有效)   https://bit.ly/3hr2tR4
+安卓手机谷歌chrome浏览器 (6月29日前有效)   https://bit.ly/2V5crxI
 
-安卓手机火狐浏览器  (6月21日前有效)  https://bit.ly/2B262MN
+安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
+
+<div align="center">2020.06.22 新闻评论下载 (下载的有效期3天)</div><p>
+
+🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
+
+下载 : https://bit.ly/314BIMo
+
+<hr>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center">2020.06.21 新闻评论下载 (下载的有效期3天)</div><p>
 
@@ -231,18 +240,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥<b>袁弓夷：中共氣數已盡 滅共才有出路</b> 0618-ygy.mp4  (4.57MB)
 
 下载 : https://bit.ly/2YOWFbB
-
-🔥<b>【今日焦点】</b>四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理 0618-jrjd.mp4 (9.77MB)
-
-下载 : https://bit.ly/2Nau2QO
-
-🔥<b>【热点互动】</b>夏威夷密会双方各自表述：中共漫天要价？美方以静制动；北京疫情来势凶猛，官方运动式应对恐加速传播 | Jason 横河         0618-rdhd.m4a
-
-下载 :https://bit.ly/2NaMZ5P
-
-🔥<b>【陈破空纵论天下】</b>中印激战，后果二比一！中方不敢提。炸平韩朝办公室，这个女人演的是哪一出              0618-chenpokong.mp4+0618-chenpokong.m4a
-
-下载 : https://bit.ly/3fv89Yg
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
