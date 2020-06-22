@@ -36,7 +36,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【MP4下载，59.4MB】(6月25日前有效)  :https://bit.ly/3da4LRi
 
-<hr>
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
@@ -51,7 +51,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
 
-▲破网软件 (6月25日前有效) : 
+▲破网软件 (6月25日前有效) : <br>
 自由门安卓版4.2	https://bit.ly/3dcfNFA<br>
 无界 安卓版 4.8	        https://bit.ly/2Y98muA<br>
 环门 安卓版 036	https://bit.ly/2AJzBCU<br>
@@ -60,7 +60,7 @@ Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
 无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
 Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
-
+<hr>
 <div align="center"><b>2020.06.22 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 <div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
@@ -76,6 +76,10 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🔥<b>【新聞拍案驚奇 大宇】</b>邓小平“呼吁”打倒中共！港国安法：特首港警成太保，设“东厂西厂”；湖北援北京防疫；阻出京特急通知！共机再侵台领空，俄卖武器给印度；地质灾害预警，网议三峡逃命攻略；夏至日环食
 
 🎯免翻牆1: https://is.gd/KZjdcN
+
+【今日点击】港版国安法草案出炉 港警变二等公民 0622-jrdj.mp3 (11.3MB)
+
+下载 : https://bit.ly/2AMTtW1
 
 🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
 
