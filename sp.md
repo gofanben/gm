@@ -9,6 +9,7 @@
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
 
+<div align="center"><img src="/sp-img/14730498588876552608.png" width=600></div>
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
@@ -47,6 +48,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
 
 <div align="center">2020.06.22 新闻评论下载 (下载的有效期3天)</div><p>
+
+【中国禁闻6月21日完整版】北京疫情延烧 多省医疗队紧急入京；中共免除非洲国家债务 专家揭背后真相；港版国安法细节曝光 颠覆香港司法独立。 0622_ckjw.mp4 (60.4MB)
+
+下载 : https://bit.ly/3hOa38v
 
 🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
 
