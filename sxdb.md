@@ -4,8 +4,19 @@
 <a href =#1>王维洛：三峡库区居民更危险 现在赶紧逃</a><p>
 <a href =#2>【拍案惊奇】长江流域黄色预警 大洪水袭重庆</a><p>
 <a href =#3>三峡库区水位持续上涨 已超防洪水位2米</a><p>
+<a href =#4>三峡大坝上游急撤4万人 綦江水位急涨淹两层楼</a><p>
 
+<hr><a name=4>
+<h1 align="center"><b>三峡大坝上游急撤4万人 綦江水位急涨淹两层楼</b></h1>
+<div align="center"><img src="/sxdb-img/914035f97a0dae4389ce48071befdddc-800x450.jpg" width=600></div>
+<div align="center">三峡大坝上游綦江流域出现1940年来最大的洪水，綦江五岔站最高水位达10至11米。当地4万人紧急转移。 (视频截图)</div><p>
 
+【新唐人北京时间2020年06月23日讯】中国南方洪灾持续扩大。22日，重庆再发布<a href="https://www.ntdtv.com/gb/洪水.htm">洪水</a>红色预警，<a href="https://www.ntdtv.com/gb/三峡大坝.htm">三峡大坝</a>上游<a href="https://www.ntdtv.com/gb/綦江流域.htm">綦江流域</a>出现1940年以来最大<a href="https://www.ntdtv.com/gb/洪水.htm">洪水</a>，綦江五岔站最高水位达10至11米，当地4万人紧急转移。而贵州山洪爆发街道成瀑布，滚滚洪水<a href="https://www.ntdtv.com/gb/淹没.htm">淹没</a>农田及<a href="https://www.ntdtv.com/gb/房屋.htm">房屋</a>，6个县被淹没，民众生死不明。</p>
+<p>重庆市水文监测总站22日12时左右发布洪水红色预警，受降雨影响，预计<a href="https://www.ntdtv.com/gb/綦江流域.htm">綦江流域</a>重庆段未来8小时内将出现全线洪水，重庆江津区綦江五岔站最高水位将超过保证水位（200.51米）5.7至6.3米左右，涨幅约10至11米。<br />
+</p>
+网址转载：https://www.ntdtv.com/gb/2020/06/23/a102877206.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=1>
 <h1 align="center"><b>王维洛：三峡库区居民更危险 现在赶紧逃</b></h1>
 <div align="center"><img src="/sxdb-img/1601270356121459-600x400.jpg" width=600></div>
