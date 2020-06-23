@@ -63,6 +63,20 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 <hr>
 <div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+🔥<b>天亮时分</b>直播:与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）📣&nbsp;&nbsp;&nbsp;
+0623-tlsf.mp4+m4a &nbsp;&nbsp;&nbsp; (221MB)
+
+下载 : https://bit.ly/3fQYoUq
+
+🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  25.5MB
+
+下载 : https://bit.ly/2BraGnL
+
+🔥<b>文昭谈古论今20200622第774期</b>重庆接1940以来最大洪水，三峡“黑天鹅”还有第二只；《国安法》或虎头蛇尾，拖习帝下台？
+&nbsp;&nbsp;&nbsp; 0623-wenzhao.m4a &nbsp;&nbsp;&nbsp;  (19.7MB)
+
+下载 : https://bit.ly/2Vb6nDY
+
 🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
 
 下载 : https://bit.ly/3etPjku
