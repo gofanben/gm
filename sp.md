@@ -138,6 +138,12 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <hr>
 
+印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
+
+下载 : https://bit.ly/2Vawqv8
+
+<hr>
+
 🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  &nbsp;&nbsp;&nbsp; 25.5MB
 
 下载 : https://bit.ly/2BraGnL
