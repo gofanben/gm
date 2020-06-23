@@ -68,14 +68,13 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
 
-<div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
-
-
 印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
 
 下载 : https://bit.ly/2Vawqv8
 
 <hr>
+
+<div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
 
 🔥<b>【天亮时分】</b>📣直播:与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）📣&nbsp;&nbsp;&nbsp;
 0623-tlsf.mp4+m4a &nbsp;&nbsp;&nbsp; (221MB)
