@@ -1,6 +1,7 @@
 
 <div align="center"><h2>精彩保留</h2></div><p>
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版）
 
@@ -14,7 +15,7 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-🔥<b>政论天下第177集 20200604</b>👉郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?
+🔥<b>【政论天下第177集 20200604】</b>👉郝海东宣读新中国联邦宣言；香港维园31年不灭的烛光；也说中共还能撑多久?
 
 🎯免翻牆1: https://is.gd/okhG1X<br>
 🎯免翻牆2:  https://is.gd/QVnHzA
