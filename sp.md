@@ -81,9 +81,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/2CoCBVN
 
-<div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
-
 <hr>
+
+<div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
 
 🔥<b>【新闻看点 李沐阳】</b>📣三峡大坝危殆，当局提前甩锅；綦江水位超6米，重庆发红色预警；豆腐渣严重渗漏，泥沙下来全玩完；王维洛四点忠告自救！要求习下台，鲁扬许志永被捕；王全璋被用酷刑，中国脊梁掩面痛哭 📣
 
