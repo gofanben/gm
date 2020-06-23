@@ -83,6 +83,12 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><img src="/sp-img/0623-crossed.jpg" width=450></div>
 
+印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
+
+下载 : https://bit.ly/2Vawqv8
+
+<hr>
+
 🔥<b>【世界的十字路口 唐浩】</b>大洪水猛扑鱼米之乡，中国粮食告急；沉睡50万年，东北火山苏醒充电；“超限战”是什么？ &nbsp;&nbsp;&nbsp; 0623-crossroads.mp4 &nbsp;&nbsp;&nbsp; 27MB
 
 下载 : https://bit.ly/3hSYsVz
@@ -135,12 +141,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 💎《推背图》云“有一军人身带弓” 是袁弓夷？ 9:57<br>
 💎美三航母群堵中国门口 马斯克“星链”会推“墙”吗 10:31<br>
 💎新拍互动 14:03
-
-<hr>
-
-印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
-
-下载 : https://bit.ly/2Vawqv8
 
 <hr>
 
