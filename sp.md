@@ -22,7 +22,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">预言破解</div><p>
 
-🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黃小坤喊話的背後是.... 2020預言兌現中<br>
+🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黄小坤喊话的背后是.... 2020预言兑现中<br>
 🔥🈲<b>【脑洞vs黑洞08】</b>第二波疫情提前爆发？中南海变疫区？2020预言兑现中<br>
 🔥🈲<b>【脑洞vs黑洞03】</b>预言示警：大灾难伴随政局变迁，灾难中什么人能留下来？如何抉择？怎样选边站？<br>
 🔥🈲<b>【脑洞VS黑洞02】</b>2020年 赊刀人再现 惊悚预言 正在兑现 寥寥几句 细思极恐  <br>
@@ -70,15 +70,47 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/3fQYoUq
 
-🎯免翻牆1: https://is.gd/G8srgK
+🎯免翻墙1: https://is.gd/G8srgK
 
-🎯免翻牆2: https://is.gd/n8dMpX
+🎯免翻墙2: https://is.gd/n8dMpX
+
+🔥<b>【热点互动】</b>专访王维洛：三峡大坝出事的风险有多高？导致溃坝3大因素，三峡大坝基本占全！大坝几无防洪功能：保重庆还是保武汉？民众如何自保 &nbsp;&nbsp;&nbsp; 0623-rdhd.m4a &nbsp;&nbsp;&nbsp; 41.5MB
+
+下载 : https://bit.ly/2CoCBVN
 
 <div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
 
 🔥<b>【新闻看点 李沐阳】</b>📣三峡大坝危殆，当局提前甩锅；綦江水位超6米，重庆发红色预警；豆腐渣严重渗漏，泥沙下来全玩完；王维洛四点忠告自救！要求习下台，鲁扬许志永被捕；王全璋被用酷刑，中国脊梁掩面痛哭 📣
 
-🎯免翻牆1: https://is.gd/uagZ3Y
+🎯免翻墙1: https://is.gd/uagZ3Y
+
+01:52 綦江水位超过保证水位5.7-6.3米左右<br>
+02:52 三峡水位昨已超防洪限制2米，当局提前甩锅<br>
+04:02 三峡大坝之外，还有两大威胁<br>
+05:20 从黄小坤到王维洛，专家频频预警<br>
+06:03 三峡工程不防洪<br>
+07:38 三峡工程不好<br>
+09:17 三峡有严重渗漏，比洪水更甚的是泥沙<br>
+11:01 王维洛的四点忠告<br>
+12:19 曾要求习下台，鲁扬被逮捕<br>
+15:12 “中国脊梁”落泪了<br>
+—member—<br>
+18:31 美国警方在西雅图遭遇的阻碍<br>
+20:36 没有种族歧视 而是恐怖份子在作乱<br>
+24:28 谁在纵容西雅图变成犯罪天堂？<br>
+
+🔥<b>【新闻拍案惊奇 大宇】</b> 📣长江黄色预警！上游多支流暴涨，三峡泄洪；重庆綦江80年未遇大水；北京10万人检疫；称国安法虎头蛇尾，黎智英会遇刺？袁弓夷推动中共非法；美三航母堵中国门口；马斯克星链能推墙吗 📣
+
+🎯免翻墙1: https://is.gd/OHSIKi
+
+💎80年最大洪水袭重庆 民房漂流铁路变形 1:07<br>
+💎上游洪水严重 三峡水位超标 长江流域黄色预警 3:09<br>
+💎病毒传入中共核工业大院 10万邮企员工排队核检 5:29<br>
+💎黎智英称国安法将“虎头蛇尾” 受内斗牵制 7:15<br>
+💎袁爸指国安法“凌迟”港人斗志 在美推“灭共”法案 8:45<br>
+💎《推背图》云“有一军人身带弓” 是袁弓夷？ 9:57<br>
+💎美三航母群堵中国门口 马斯克“星链”会推“墙”吗 10:31<br>
+💎新拍互动 14:03
 
 🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  &nbsp;&nbsp;&nbsp; 25.5MB
 
@@ -93,9 +125,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/2Vb6nDY
 
-🎯免翻牆1: https://is.gd/UCY5Kp
+🎯免翻墙1: https://is.gd/UCY5Kp
 
-🎯免翻牆2: https://is.gd/QLIeWm
+🎯免翻墙2: https://is.gd/QLIeWm
 
 🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
 
@@ -115,9 +147,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 (6月26日前有效) :https://bit.ly/3hOa38v
 
-🔥<b>【新聞拍案驚奇 大宇】</b>邓小平“呼吁”打倒中共！港国安法：特首港警成太保，设“东厂西厂”；湖北援北京防疫；阻出京特急通知！共机再侵台领空，俄卖武器给印度；地质灾害预警，网议三峡逃命攻略；夏至日环食
+🔥<b>【新闻拍案惊奇 大宇】</b>邓小平“呼吁”打倒中共！港国安法：特首港警成太保，设“东厂西厂”；湖北援北京防疫；阻出京特急通知！共机再侵台领空，俄卖武器给印度；地质灾害预警，网议三峡逃命攻略；夏至日环食
 
-🎯免翻牆1: https://is.gd/KZjdcN
+🎯免翻墙1: https://is.gd/KZjdcN
 
 🔥<b>【今日点击】</b>港版国安法草案出炉 港警变二等公民 &nbsp;&nbsp;&nbsp; 0622-jrdj.mp3 &nbsp;&nbsp;&nbsp;  (11.3MB)
 
@@ -133,21 +165,21 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【新闻看点 李沐阳】</b>📣长安街空前戒严，疫情之外有大戏；中共有疫苗先给非洲，加码送600亿？非洲乐当小白鼠！德医为中共培训“刽子手”；大众汽车送钱给江绵恒，两任总理迎合江泽民，默克尔怎么走？
 
-🎯免翻牆1: https://is.gd/j6w0t8
+🎯免翻墙1: https://is.gd/j6w0t8
 
 🔥<b>【天亮时分】</b>📣香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)
 
-🎯免翻牆1: https://is.gd/KYk1G8
+🎯免翻墙1: https://is.gd/KYk1G8
 
-🎯免翻牆2: https://is.gd/hq86Bq
+🎯免翻墙2: https://is.gd/hq86Bq
 
 🔥<b>【严真点评】</b>外交部大实话：美中高层会谈不欢而散，欧洲欲将中共告上国际法庭。
 
-🎯免翻牆1: https://bit.ly/2UQNk1J
+🎯免翻墙1: https://bit.ly/2UQNk1J
 
 🔥<b>时事小品_657</b>期躺枪的三文鱼
 
-🎯免翻牆1: https://bit.ly/2UQNk1J
+🎯免翻墙1: https://bit.ly/2UQNk1J
 
 🔥<b>【Jason快评】</b>军机扰台，国安法细则出台，审判加国公民...总加速师，一个机会也不放过？ 0621-jason.m4a (21.4MB)
 
@@ -181,13 +213,13 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/3fHGQtU
 
-🔥<b>【新聞拍案驚奇 大宇】</b>战时三峡是“巨型水炮”，中国四成大坝危险！北京万人排长龙检疫，压垮医院出人命，地坛添床上千；运动式防疫是政治秀？会白开！蓬佩奥：中共没改；川普再喊决裂；郝海东受访：亲历反送中
+🔥<b>【新闻拍案惊奇 大宇】</b>战时三峡是“巨型水炮”，中国四成大坝危险！北京万人排长龙检疫，压垮医院出人命，地坛添床上千；运动式防疫是政治秀？会白开！蓬佩奥：中共没改；川普再喊决裂；郝海东受访：亲历反送中
 
-🎯免翻牆1: https://is.gd/xq5wbT
+🎯免翻墙1: https://is.gd/xq5wbT
 
 🔥<b>【新闻看点 李沐阳】</b>丰台瞒报中央震怒？全市启动一级战备；北大医院全封闭，地坛医院增千床；蓬佩奥寒酸招待，央视主播谩骂失误，杨洁篪躺着中枪；川普放狠话脱钩，全面进入新冷战；中共4年撒币7840亿美金
 
-🎯免翻牆1: https://is.gd/4bQrjk
+🎯免翻墙1: https://is.gd/4bQrjk
 
 🔥<b>【思想领袖】</b>莱顿：美国面临中共科技威胁 0620-sxlx.mp4 (22.7MB)
 
@@ -206,28 +238,28 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/2UYYukU
 
-🔥<b>（文昭談古論今20200619第773期</b>三峽「吹哨人」發警告，宜昌以下有多險？洪災中三個面向看三峽大壩之危 &nbsp;&nbsp;&nbsp; 0620-wenzhao.m4a &nbsp;&nbsp;&nbsp; (16.6MB)
+🔥<b>（文昭谈古论今20200619第773期</b>三峡“吹哨人”发警告，宜昌以下有多险？洪灾中三个面向看三峡大坝之危 &nbsp;&nbsp;&nbsp; 0620-wenzhao.m4a &nbsp;&nbsp;&nbsp; (16.6MB)
 
 下载 : https://bit.ly/2UZArmb
 
-🎯免翻牆1: https://is.gd/LXNP1N
+🎯免翻墙1: https://is.gd/LXNP1N
 
-🎯免翻牆2: https://is.gd/In02IX
+🎯免翻墙2: https://is.gd/In02IX
 
-🔥<b>【蕭茗看世界】</b>杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？
+🔥<b>【萧茗看世界】</b>杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？
 
-🎯免翻牆1: https://is.gd/yBQ1yh
+🎯免翻墙1: https://is.gd/yBQ1yh
 
-🎯免翻牆2: https://is.gd/XR7NeW
+🎯免翻墙2: https://is.gd/XR7NeW
 
 🔥<b>江峰直播20200619完整版</b>江峰、萧若元网上对谈粤语直播（中文字幕）：中美夏威夷高层会谈互不退让，香港国安法急出，香港前途如何？美国准备最强制裁，西方准备难民方案，打得赢就打，打不赢就撤 
 
 这期节目有简体和繁体中文字幕（电脑上点CC，手机上点开右上角的3个竖点，选择字幕）。<br>
 这期节目免翻墙的短连结：<br>
 
-🎯免翻牆1: https://is.gd/QMNWyX
+🎯免翻墙1: https://is.gd/QMNWyX
 
-🎯免翻牆2: https://is.gd/74U4S5
+🎯免翻墙2: https://is.gd/74U4S5
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -241,23 +273,23 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/2UZTZGV
 
-🎯免翻牆1:https://is.gd/zBJLLd
+🎯免翻墙1:https://is.gd/zBJLLd
 
-🔥<b>【新聞拍案驚奇 大宇】</b>川普通共？3点证博尔顿错了；三峡宜昌以下，多少地方有险？再“封城”，北京隔离党校也住满；夏威夷会，中共声明两处耍流氓；人大开审国安法！共军打印军，狠毒冷兵器！印度吁与台湾联手 0619-swpnjq.mp4 (57.2MB)
+🔥<b>【新闻拍案惊奇 大宇】</b>川普通共？3点证博尔顿错了；三峡宜昌以下，多少地方有险？再“封城”，北京隔离党校也住满；夏威夷会，中共声明两处耍流氓；人大开审国安法！共军打印军，狠毒冷兵器！印度吁与台湾联手 0619-swpnjq.mp4 (57.2MB)
 
-🎯免翻牆1:https://bit.ly/2YNysm3
+🎯免翻墙1:https://bit.ly/2YNysm3
 
 🔥<b>江峰漫谈20200619第191期</b>中印边境冲突升级到战争有多远？从七千人大会的毛刘斗到两会的习李乱；从尼赫鲁到莫迪，看来大家都准备好了。
 
-🎯免翻牆1: https://is.gd/2btMmn
+🎯免翻墙1: https://is.gd/2btMmn
 
-🎯免翻牆2: https://is.gd/5qt0re
+🎯免翻墙2: https://is.gd/5qt0re
 
 🔥<b>文昭谈古论今20200618第772期</b>杨洁篪、彭培奥交锋，中共要赔印度？人大常委会冲刺香港《国安法》；制裁韩正开辟权斗新局面 0619-wenzhao.m4a（18.2MB）
 
-🎯免翻牆1: https://is.gd/pAHjTK
+🎯免翻墙1: https://is.gd/pAHjTK
 
-🎯免翻牆2: https://is.gd/zJjkPp
+🎯免翻墙2: https://is.gd/zJjkPp
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -269,21 +301,21 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>江峰直播：</b>与袁弓夷先生谈谈中印战争、北朝鲜、和香港国安法 0618-jfmt.m4a
 
-🎯免翻牆1:https://is.gd/sbQfcO
+🎯免翻墙1:https://is.gd/sbQfcO
 
-🎯免翻牆1:https://is.gd/oMA40e
+🎯免翻墙1:https://is.gd/oMA40e
 
 下载 : https://bit.ly/2AEPjzs
 
 🔥<b>【新闻看点 李沐阳】</b>病毒攻入中南海，中南海大封锁！ 小区全封闭，市民断粮断菜，焚尸工全副武装，北京已成武汉？中印冲突王毅求和？600人肉搏6小时，印指挥官坠谷亡，伤亡数字成秘密！
 
-🎯免翻牆1:https://is.gd/XXk7T0
+🎯免翻墙1:https://is.gd/XXk7T0
 
-🔥<b>【蕭茗看世界】</b>直播：袁弓夷談楊潔篪和彭培奧會面
+🔥<b>【萧茗看世界】</b>直播：袁弓夷谈杨洁篪和彭培奥会面
 
-🎯免翻牆1:https://is.gd/ATecRh
+🎯免翻墙1:https://is.gd/ATecRh
 
-🎯免翻牆2:https://is.gd/QZlNwq
+🎯免翻墙2:https://is.gd/QZlNwq
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -291,7 +323,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【新闻看点 李沐阳】北京疫情大爆发，成武汉第二！世卫称疫情“重大”；朝鲜炸毁外交公馆，中朝双簧再开唱？美国审查EB-5签证，阻止中共党员获绿卡；强硬派看热闹，硬拱习近平；中印闹掰了，冲突63人死亡
 
-🎯免翻牆 : https://is.gd/X5OKhH
+🎯免翻墙 : https://is.gd/X5OKhH
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.16 新闻评论下载</div><p>
@@ -302,13 +334,13 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【文昭谈古论今20200615第770期】</b>北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
 
-🎯免翻牆1: https://is.gd/Cot6ux
+🎯免翻墙1: https://is.gd/Cot6ux
 
-🎯免翻牆2: https://is.gd/NJYai8
+🎯免翻墙2: https://is.gd/NJYai8
 
 🔥<b>【新闻看点 李沐阳】</b>中共跪了？杨洁篪将访美，赵立坚态度放软； 3航母集结印太，美警告不怕开战；袁爸爸投入“灭共行动”；李克强藉口请辞习批准？北京成疫原地，几十万潜在携带者，市民疯狂抢购蔬菜潮！
 
-🎯免翻牆1: https://is.gd/DO3Zff
+🎯免翻墙1: https://is.gd/DO3Zff
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.15 新闻评论下载</div><p>
@@ -319,47 +351,47 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【天亮时分(政论天下第181集 20200614)】</b>封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重
 
-🎯免翻牆1:https://is.gd/HueTFr
+🎯免翻墙1:https://is.gd/HueTFr
 
-🎯免翻牆1:https://is.gd/Etsl0f
+🎯免翻墙1:https://is.gd/Etsl0f
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
 
 🔥<b>【新闻看点 李沐阳】</b>美国明制裁暗开后门， $20亿军火送人情；华尔街大鳄养肥中共，向中共输血3万亿；丰台疫情“爆发式”，北京战时状态；6.12全港抗争百人同歌，白衫亮刀偷袭记者，黑衣男挺身相救受伤
 
-🎯免翻牆1:https://is.gd/RsBqWx
+🎯免翻墙1:https://is.gd/RsBqWx
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.13 新闻评论下载</div><p>
 
-🔥<b>【新聞拍案驚奇 大宇】</b>李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
+🔥<b>【新闻拍案惊奇 大宇】</b>李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
 
-🎯免翻牆1:https://is.gd/dyXNHp
+🎯免翻墙1:https://is.gd/dyXNHp
 
-🔥<b>文昭談古論今20200612第769期-1</b>疫情重返北京，结束55天零确诊！习近平凝视巨坑成真；制裁中共政治局常委，美国另有终极大招
+🔥<b>文昭谈古论今20200612第769期-1</b>疫情重返北京，结束55天零确诊！习近平凝视巨坑成真；制裁中共政治局常委，美国另有终极大招
 
-🎯免翻牆1::https://is.gd/Cot6ux<br>
-🎯免翻牆2::https://is.gd/NJYai8<br>
-🎯免翻牆3::https://is.gd/HVc8qP<br>
-🎯免翻牆4::https://is.gd/Xa967r
+🎯免翻墙1::https://is.gd/Cot6ux<br>
+🎯免翻墙2::https://is.gd/NJYai8<br>
+🎯免翻墙3::https://is.gd/HVc8qP<br>
+🎯免翻墙4::https://is.gd/Xa967r
 
 🔥<b>【新闻看点 李沐阳】</b>推特大砍17万帐户；Zoom认听命中共；“工科神器”被禁用，哈工大叫苦连天；“地毯李”遇“城管习”？疫情造假9部曲！200辆军车将入港，中共要镇压？美芯片将本土化，“厉害国”怎么厉害？
 
-🎯免翻牆1:https://is.gd/HuRpcm
+🎯免翻墙1:https://is.gd/HuRpcm
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.12 新闻评论下载</div><p>
 
 🔥<b>【新闻看点 李沐阳】</b>高晓松评希特勒，寓意深刻？“新八国联军”来袭，官媒不忘扣帽子；川普不忍了，韩正危险了！澳洲强硬政策不下跪；遮天蔽日！数千亿蝗虫真的来了！南方洪灾破纪录，超过北京半年雨
 
-🎯免翻牆1: https://is.gd/0IrHiT
+🎯免翻墙1: https://is.gd/0IrHiT
 
 🔥<b>天亮时分(政论天下第179集 20200610)</b>谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声
 
-🎯免翻牆1: https://is.gd/y5xjIr
+🎯免翻墙1: https://is.gd/y5xjIr
 
-🎯免翻牆2: https://is.gd/qDybaZ
+🎯免翻墙2: https://is.gd/qDybaZ
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.11 新闻评论下载</div><p>
@@ -367,62 +399,62 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【新闻看点 李沐阳】</b>汇丰下跪，蓬佩奥炮轰中共；习总加速师凝视大坑？61岁杨丽萍被“催生”？中共摸底海外关系？4年砸1900万美元宣传；美国吊销中企电信运营许可？安倍关注香港将主导G7声明
 
-🎯免翻牆1: https://is.gd/OTvT3W
+🎯免翻墙1: https://is.gd/OTvT3W
 
 🔥<b>【文昭谈古论今20200610第768期】</b>中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
 
-🎯免翻牆1: https://is.gd/BI4MUF
+🎯免翻墙1: https://is.gd/BI4MUF
 
-🎯免翻牆2: https://is.gd/giiXbq
+🎯免翻墙2: https://is.gd/giiXbq
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.10 新闻评论下载</div><p>
 
-🔥<b>新聞拍案驚奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
+🔥<b>新闻拍案惊奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
-🎯免翻牆1:  https://is.gd/NmAd2x
+🎯免翻墙1:  https://is.gd/NmAd2x
 
 🔥<b>【新闻看点 李沐阳06.09】</b>任正非批中共“砸钱不行”，吃诚实豆沙包？世卫爆料：中共“重大拖延”；谭书记变谭总机，当机10秒；张晓明“杀气腾腾”，预示加大镇压力度？去年8月病毒已传播？哈佛2大证据
 
-🎯免翻牆1: https://is.gd/BSEgOi
+🎯免翻墙1: https://is.gd/BSEgOi
 
 🔥<b>江峰时刻（江峰漫谈20200609第186期）</b>地摊经济，百姓的无奈与中共的谋算； 习李不是内斗而是携手左转，开启中共新闭关锁国时代；香港反送中一周年
 
-🎯免翻牆1:  https://is.gd/hV7xEn
+🎯免翻墙1:  https://is.gd/hV7xEn
 
-🎯免翻牆1: https://is.gd/P6Dr9u
+🎯免翻墙1: https://is.gd/P6Dr9u
 
 🔥<b>文昭谈古论今20200606第767期</b>大亨一语惊人：中国11亿人无消费能力！幸存者偏差；习近平最怕的俄罗斯反水将到来？
 
-🎯免翻牆1:  https://is.gd/rOT1KM
+🎯免翻墙1:  https://is.gd/rOT1KM
 
-🎯免翻牆2: https://is.gd/rOT1KM
+🎯免翻墙2: https://is.gd/rOT1KM
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.09 新闻评论下载</div><p>
 
 🔥<b>世界的十字路口 唐浩</b>哈佛研究：中国疫情10月已发生；反送中周年，全球抗共潮蔓延；揭密中共诡辩卸责五部曲（2020.6.9）
 
-🎯免翻牆1:  https://is.gd/LCj9Go<br>
-🎯免翻牆2:  https://is.gd/dqSZhE<br>
-🎯免翻牆3:  https://is.gd/WGxWNb<br>
-🎯免翻牆4:  https://is.gd/A0lijO
+🎯免翻墙1:  https://is.gd/LCj9Go<br>
+🎯免翻墙2:  https://is.gd/dqSZhE<br>
+🎯免翻墙3:  https://is.gd/WGxWNb<br>
+🎯免翻墙4:  https://is.gd/A0lijO
 
 🔥<b>文昭谈古论今20200608第766期</b>李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
 
-🎯免翻牆1: https://is.gd/NtJ5Pn<br>
-🎯免翻牆2: https://is.gd/6qmN4R
+🎯免翻墙1: https://is.gd/NtJ5Pn<br>
+🎯免翻墙2: https://is.gd/6qmN4R
 
 🔥<b>【新闻看点 李沐阳06.08】</b>中共新规定：党员的20个不准！中共抗疫白皮书，给自己立“贞节牌坊”？铁杆伊朗嘲笑中共确诊数；破坏美国研发疫苗，北京阻止病毒样本分享，南方8省洪灾严重，醴陵河水位日涨4米
 
-🎯免翻牆1: https://is.gd/Rx9P1j
+🎯免翻墙1: https://is.gd/Rx9P1j
 
-🔥<b>新聞拍案驚奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
+🔥<b>新闻拍案惊奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
-🎯免翻牆1: https://is.gd/jALCBg
+🎯免翻墙1: https://is.gd/jALCBg
 
 GitHub下载方式：<br>
-手机：对着擋按名稱长按下载连结；或點檔案名稱，再对着 View raw 长按下载连结<br>
+手机：对着挡按名称长按下载连结；或点档案名称，再对着 View raw 长按下载连结<br>
 桌机：点档案，再点 View raw，或对着 View raw 右键另存为..
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/0605-tlsf.mp4"> 0605-tlsf.mp4</a>
@@ -437,7 +469,7 @@ GitHub下载方式：<br>
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/AI.jpg" width=600></div>
-<div align="center">人工智能：入侵人類計劃 AI: THE PLAN TO INVADE HUMANITY</div><p>
+<div align="center">人工智能：入侵人类计划 AI: THE PLAN TO INVADE HUMANITY</div><p>
 
 人工智能：入侵人类计划
 
