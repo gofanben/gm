@@ -14,7 +14,7 @@
 6. 户外用品，如帐篷、充电宝、打火机等。</p>
 <div align="center"><img src="/sxdb-img/maxresdefault.jpg" width=600></div>
 <div class="video_fit_container"><iframe width="764" height="430" class="video_frame" src="https://www.youtube.com/embed/jc69i9gBssE?wmode=transparent&#038;wmode=opaque" allowfullscreen></iframe>
-</div>
+</div></p>
 <p>财经评论人士“财经冷眼”6月21日发布视频分析，三峡可能溃坝的4大原因：</p>
 <p>1、因三峡上游水库溃坝而成多米诺骨牌，冲垮三峡。<br />
 2、类似汶川一样的大地震。<br />
@@ -23,7 +23,7 @@
 <p>他表示，如果三峡大坝溃坝，往高处跑和准备救生装置，是两条必须要做的事情，当然还要准备一些干粮，有了这三样，活下去的概率就大得多。</p>
 <div align="center"><img src="/sxdb-img/hqdefault.jpg" width=600></div>
 <div class="video_fit_container"><iframe width="764" height="430" class="video_frame" src="https://www.youtube.com/embed/ywbCCR9noJM?wmode=transparent&#038;wmode=opaque" allowfullscreen></iframe>
-</div>
+</div></p>
 <p>另外，王维洛还建议三峡附近的老百姓，学会像日本人一样准备逃生包，“你们家的房产证什么的，放到逃命的包里。不要洪水下来的时候，你再去找房产证放在什么地方，没时间了。”</p>
 <p>他说，“长江中下游的人对洪水是有经验的，好多人家都是有船的，家里值钱的东西不摆在一楼，摆在二楼的。比较有经验，洪水来的时候把你老的门窗全部打开，让洪水流过去，那里就不大。如果不这样做，你家的房子可就被洪水冲垮了。”</p>
 <p>不过，他也提醒说，“三峡溃坝不光是带来水灾，还有20—30亿立方米的泥沙。泥沙下来的破坏力比洪水要厉害。第一拨洪水下来的时候你要能挡过去了，你就活下来了，但是泥沙下来整个生态就破坏了。也许长江就被堵住了，再下来水往哪里流就不知道了。</p>
