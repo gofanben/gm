@@ -22,6 +22,10 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">预言破解</div><p>
 
+🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）
+
+【MP4+MP3下载，142MB】(6月30日前有效)  : https://bit.ly/2NsEa7j
+
 🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黄小坤喊话的背后是.... 2020预言兑现中<br>
 🔥🈲<b>【脑洞vs黑洞08】</b>第二波疫情提前爆发？中南海变疫区？2020预言兑现中<br>
 🔥🈲<b>【脑洞vs黑洞03】</b>预言示警：大灾难伴随政局变迁，灾难中什么人能留下来？如何抉择？怎样选边站？<br>
@@ -32,9 +36,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【M4a下载， 65.6MB】(6月27日前有效)  : https://bit.ly/2NcC8YS
 
-🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）（下集）
-
-【MP4下载，59.4MB】(6月25日前有效)  :https://bit.ly/3da4LRi
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">精彩保留</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
