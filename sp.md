@@ -24,9 +24,9 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）
 
-<hr>
-
 【MP4+MP3下载，142MB】(6月30日前有效)  : https://bit.ly/2NsEa7j
+
+<hr>
 
 🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黄小坤喊话的背后是.... 2020预言兑现中<br>
 🔥🈲<b>【脑洞vs黑洞08】</b>第二波疫情提前爆发？中南海变疫区？2020预言兑现中<br>
