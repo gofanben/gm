@@ -63,10 +63,22 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 <hr>
 <div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+<div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
+
 🔥<b>【天亮时分】</b>📣直播:与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）📣&nbsp;&nbsp;&nbsp;
 0623-tlsf.mp4+m4a &nbsp;&nbsp;&nbsp; (221MB)
 
 下载 : https://bit.ly/3fQYoUq
+
+🎯免翻牆1: https://is.gd/G8srgK
+
+🎯免翻牆2: https://is.gd/n8dMpX
+
+<div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
+
+🔥<b>【新闻看点 李沐阳】</b>三峡大坝危殆，当局提前甩锅；綦江水位超6米，重庆发红色预警；豆腐渣严重渗漏，泥沙下来全玩完；王维洛四点忠告自救！要求习下台，鲁扬许志永被捕；王全璋被用酷刑，中国脊梁掩面痛哭
+
+🎯免翻牆1: https://is.gd/uagZ3Y
 
 🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  &nbsp;&nbsp;&nbsp; 25.5MB
 
@@ -80,6 +92,10 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 &nbsp;&nbsp;&nbsp; 0623-wenzhao.m4a &nbsp;&nbsp;&nbsp;  (19.7MB)
 
 下载 : https://bit.ly/2Vb6nDY
+
+🎯免翻牆1: https://is.gd/UCY5Kp
+
+🎯免翻牆2: https://is.gd/QLIeWm
 
 🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
 
