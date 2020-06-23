@@ -13,8 +13,6 @@
 
 【大纪元2020年06月23日讯】（大纪元记者骆亚采访报导）目前大陆全面进入汛期，<a href="https://www.epochtimes.com/gb/tag/%E4%B8%89%E5%B3%A1%E5%A4%A7%E5%9D%9D.html">三峡大坝</a>安全问题再成为各界关注的话题。近日，三峡库区水位接近147米，超出<a href="https://www.epochtimes.com/gb/tag/%E9%98%B2%E6%B4%AA.html">防洪</a>限制水位近2米，中共水利官员暗示三峡大坝面临的风险，包括防不住洪水、失事等。</p>
 <p>著名国土规划专家、《三峡工程三十六计》作者<a href="https://www.epochtimes.com/gb/tag/%E7%8E%8B%E7%BB%B4%E6%B4%9B.html">王维洛</a>表示希望通过媒体，让三峡库区民众知道，一旦<a href="https://www.epochtimes.com/gb/tag/%E4%B8%89%E5%B3%A1%E5%A4%A7%E5%9D%9D.html">三峡大坝</a>溃坝，三峡库区的居民比三峡大坝下游的民众处境更危险，现在逃，还有地方逃。</p>
-<div align="center"><img src="/sxdb-img/XXX" width=600></div>
-<div align="center">XXX</div><p>
 <h2 class="p1"><span class="s1"><span class="s1"><b>三峡水库已超<a href="https://www.epochtimes.com/gb/tag/%E9%98%B2%E6%B4%AA.html">防洪</a>水位近</b></span><span class="s2"><b>2</b></span><span class="s1"><b>米</b></span></span></h2>
 <p>6月8日，中共多家媒体还引述三峡集团的消息称，在长江主汛期来临前夕，三峡大坝提前腾出了221.5亿立方米，并宣称三峡工程将在汛期发挥巨大防洪作用。不料半月不到，三峡大坝告急。</p>
 <p>据《央视财经》6月21日报导，受到近日强降雨影响，三峡水库持续上涨。6月20日，三峡大坝入库流量增加至每秒26,500立方米，相比19日的每秒20,500立方米，增加了每秒6000立方米。目前库区水位接近147米，超出防洪限制水位近2米。</p>
