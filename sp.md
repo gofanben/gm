@@ -61,11 +61,19 @@ Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
 Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 <hr>
+<div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
+
+下载 : https://bit.ly/3etPjku
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><b>2020.06.22 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 <div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
 
-🔥<b>【禁闻】</b>党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 0622-sxdb.mp4 (4.40MB)
+🔥<b>【禁闻】</b>党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 &nbsp;&nbsp;&nbsp; 0622-sxdb.mp4 &nbsp;&nbsp;&nbsp; (4.40MB)
 
 下载 (6月26日前有效) : https://bit.ly/37NGmzG
 
@@ -77,11 +85,11 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻牆1: https://is.gd/KZjdcN
 
-🔥<b>【今日点击】</b>港版国安法草案出炉 港警变二等公民 0622-jrdj.mp3 (11.3MB)
+🔥<b>【今日点击】</b>港版国安法草案出炉 港警变二等公民 &nbsp;&nbsp;&nbsp; 0622-jrdj.mp3 &nbsp;&nbsp;&nbsp;  (11.3MB)
 
 下载 : https://bit.ly/2AMTtW1
 
-🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 0622-chenpokong.m4a (27.4MB)
+🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 &nbsp;&nbsp;&nbsp; 0622-chenpokong.m4a &nbsp;&nbsp;&nbsp; (27.4MB)
 
 下载 : https://bit.ly/314BIMo
 
@@ -92,7 +100,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🔥<b>【新闻看点 李沐阳】</b>📣长安街空前戒严，疫情之外有大戏；中共有疫苗先给非洲，加码送600亿？非洲乐当小白鼠！德医为中共培训“刽子手”；大众汽车送钱给江绵恒，两任总理迎合江泽民，默克尔怎么走？
 
 🎯免翻牆1: https://is.gd/j6w0t8
-
 
 🔥<b>【天亮时分】</b>📣香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)
 
@@ -165,7 +172,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 下载 : https://bit.ly/2UYYukU
 
-🔥<b>（文昭談古論今20200619第773期</b>三峽「吹哨人」發警告，宜昌以下有多險？洪災中三個面向看三峽大壩之危 0620-wenzhao.m4a 16.6MB
+🔥<b>（文昭談古論今20200619第773期</b>三峽「吹哨人」發警告，宜昌以下有多險？洪災中三個面向看三峽大壩之危 &nbsp;&nbsp;&nbsp; 0620-wenzhao.m4a &nbsp;&nbsp;&nbsp; (16.6MB)
 
 下载 : https://bit.ly/2UZArmb
 
@@ -190,10 +197,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
 <div align="center">2020.06.19 新闻评论下载 (下载的有效期3天)</div><p>
 
 【瘟疫与中共】新泽西-美国制药（二）&nbsp;0619-wyyzg.mp4 (9.68MB)
@@ -208,8 +211,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>【新聞拍案驚奇 大宇】</b>川普通共？3点证博尔顿错了；三峡宜昌以下，多少地方有险？再“封城”，北京隔离党校也住满；夏威夷会，中共声明两处耍流氓；人大开审国安法！共军打印军，狠毒冷兵器！印度吁与台湾联手 0619-swpnjq.mp4 (57.2MB)
 
-下载 : https://bit.ly/3divKtM
-
 🎯免翻牆1:https://bit.ly/2YNysm3
 
 🔥<b>江峰漫谈20200619第191期</b>中印边境冲突升级到战争有多远？从七千人大会的毛刘斗到两会的习李乱；从尼赫鲁到莫迪，看来大家都准备好了。
@@ -220,24 +221,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🔥<b>文昭谈古论今20200618第772期</b>杨洁篪、彭培奥交锋，中共要赔印度？人大常委会冲刺香港《国安法》；制裁韩正开辟权斗新局面 0619-wenzhao.m4a（18.2MB）
 
-下载 : https://bit.ly/37HFDjt
-
 🎯免翻牆1: https://is.gd/pAHjTK
 
 🎯免翻牆2: https://is.gd/zJjkPp
-
-🔥<b>【今日点击】</b>中印边境冲突 中方有备而来 欲掩盖什么？G7联合声明反对港版国安法 英警告制裁 0619-1-jrdj.mp3 (11.3MB)<br>
-🔥<b>【今日点击】</b>黄小坤：宜昌以下跑 最后一次说 0619-2-jrdj.mp3 (11.3MB)
-
-下载 : https://bit.ly/3hFbExj
-
-🔥<b>【陈破空纵论天下】</b>北京疫情告急，习近平躲到外地？美中闭门谈判，美军基地下马威。中印两军格斗内幕 0619-chenpokong.m4a (27.2MB)
-
-下载 : https://bit.ly/3hJQxtC
-
-🔥<b>天亮时分(政论天下第183集 20200618)</b>杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识?川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话? 0619-tlsf.m4a  (19.3MB)
-
-下载 : https://bit.ly/2NaAuaf
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -265,15 +251,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻牆2:https://is.gd/QZlNwq
 
-🔥<b>袁弓夷：中共氣數已盡 滅共才有出路</b> 0618-ygy.mp4  (4.57MB)
-
-下载 : https://bit.ly/2YOWFbB
-
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
 <div align="center">2020.06.17 新闻评论下载</div><p>
 
@@ -310,14 +288,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🎯免翻牆1:https://is.gd/HueTFr
 
 🎯免翻牆1:https://is.gd/Etsl0f
-
-🔥【珍言真語】袁弓夷携手班农 推“天灭中共运动”
-
-【下载】(6月22日前有效)  :https://bit.ly/3hqXsI9
-
-🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版）
-
-【下载】(6月22日前有效)  :https://bit.ly/2AtTiyK
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center">2020.06.14 新闻评论下载</div><p>
@@ -416,14 +386,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🔥<b>新聞拍案驚奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
 
 🎯免翻牆1: https://is.gd/jALCBg
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">精彩保留</div><p>
-
-🔥<b>政论天下第177集 20200604</b>👉郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久?
-
-🎯免翻牆1: https://is.gd/okhG1X<br>
-🎯免翻牆2:  https://is.gd/QVnHzA
 
 GitHub下载方式：<br>
 手机：对着擋按名稱长按下载连结；或點檔案名稱，再对着 View raw 长按下载连结<br>
