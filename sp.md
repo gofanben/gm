@@ -36,7 +36,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【MP4下载，59.4MB】(6月25日前有效)  :https://bit.ly/3da4LRi
 
-
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
@@ -60,7 +59,9 @@ Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
 无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
 Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
-<hr>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 <div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
@@ -74,37 +75,42 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻墙2: https://is.gd/n8dMpX
 
- <hr #0000ff>
- 
+<hr>
+
 🔥<b>【热点互动】</b> 📣专访王维洛：三峡大坝出事的风险有多高？导致溃坝3大因素，三峡大坝基本占全！大坝几无防洪功能：保重庆还是保武汉？民众如何自保 &nbsp;&nbsp;&nbsp; 0623-rdhd.m4a &nbsp;&nbsp;&nbsp; 41.5MB 📣
 
 下载 : https://bit.ly/2CoCBVN
 
- <hr #0000ff>
 <div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
+
+<hr>
 
 🔥<b>【新闻看点 李沐阳】</b>📣三峡大坝危殆，当局提前甩锅；綦江水位超6米，重庆发红色预警；豆腐渣严重渗漏，泥沙下来全玩完；王维洛四点忠告自救！要求习下台，鲁扬许志永被捕；王全璋被用酷刑，中国脊梁掩面痛哭 📣
 
+<a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12205008.md#1">💎阅读文字</a>
+
 🎯免翻墙1: https://is.gd/uagZ3Y
 
-01:52 綦江水位超过保证水位5.7-6.3米左右<br>
-02:52 三峡水位昨已超防洪限制2米，当局提前甩锅<br>
-04:02 三峡大坝之外，还有两大威胁<br>
-05:20 从黄小坤到王维洛，专家频频预警<br>
-06:03 三峡工程不防洪<br>
-07:38 三峡工程不好<br>
-09:17 三峡有严重渗漏，比洪水更甚的是泥沙<br>
-11:01 王维洛的四点忠告<br>
-12:19 曾要求习下台，鲁扬被逮捕<br>
-15:12 “中国脊梁”落泪了<br>
+💎01:52 綦江水位超过保证水位5.7-6.3米左右<br>
+💎02:52 三峡水位昨已超防洪限制2米，当局提前甩锅<br>
+💎04:02 三峡大坝之外，还有两大威胁<br>
+💎05:20 从黄小坤到王维洛，专家频频预警<br>
+💎06:03 三峡工程不防洪<br>
+💎07:38 三峡工程不好<br>
+💎09:17 三峡有严重渗漏，比洪水更甚的是泥沙<br>
+💎11:01 王维洛的四点忠告<br>
+💎12:19 曾要求习下台，鲁扬被逮捕<br>
+💎15:12 “中国脊梁”落泪了<br>
 —member—<br>
-18:31 美国警方在西雅图遭遇的阻碍<br>
-20:36 没有种族歧视 而是恐怖份子在作乱<br>
-24:28 谁在纵容西雅图变成犯罪天堂？<br>
+💎18:31 美国警方在西雅图遭遇的阻碍<br>
+💎20:36 没有种族歧视 而是恐怖份子在作乱<br>
+💎24:28 谁在纵容西雅图变成犯罪天堂？<br>
 
- <hr #0000ff>
- 
+<hr>
+
 🔥<b>【新闻拍案惊奇 大宇】</b> 📣长江黄色预警！上游多支流暴涨，三峡泄洪；重庆綦江80年未遇大水；北京10万人检疫；称国安法虎头蛇尾，黎智英会遇刺？袁弓夷推动中共非法；美三航母堵中国门口；马斯克星链能推墙吗 📣
+
+<a href="https://github.com/xa240/djy/blob/master/gb/20/6/23/n12205562.md#1">💎阅读文字</a>
 
 下载 : https://bit.ly/2V7xzUn
 
@@ -119,13 +125,19 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 💎美三航母群堵中国门口 马斯克“星链”会推“墙”吗 10:31<br>
 💎新拍互动 14:03
 
+<hr>
+
 🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  &nbsp;&nbsp;&nbsp; 25.5MB
 
 下载 : https://bit.ly/2BraGnL
 
+<hr>
+
 🔥<b>【今日点击】</b>长江三峡大坝无法防洪？万一溃堤大水直冲上海&nbsp;&nbsp;&nbsp; 0623-jrdj.mp3 &nbsp;&nbsp;&nbsp; 7.89MB
 
 下载 : https://bit.ly/383LRe1
+
+<hr>
 
 🔥<b>【文昭谈古论今20200622第774期】</b>重庆接1940以来最大洪水，三峡“黑天鹅”还有第二只；《国安法》或虎头蛇尾，拖习帝下台？
 &nbsp;&nbsp;&nbsp; 0623-wenzhao.m4a &nbsp;&nbsp;&nbsp;  (19.7MB)
@@ -135,6 +147,8 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🎯免翻墙1: https://is.gd/UCY5Kp
 
 🎯免翻墙2: https://is.gd/QLIeWm
+
+<hr>
 
 🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
 
