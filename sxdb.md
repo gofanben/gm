@@ -2,6 +2,9 @@
 
 
 <div align="center"><img src="/sxdb-img/100315184200789.jpg" width=600></div>
+
+<div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
+
 <div align="center">旅居德国著名国土规划专家、《三峡工程36计》一书作者王维洛博士。（大纪元）</div><p>
 
 <p>著名国土规划专家、《三峡工程三十六计》作者王维洛也希望通过媒体让三峡库区民众知道，一旦<a href="https://www.ntdtv.com/gb/三峡大坝.htm">三峡大坝</a><a href="https://www.ntdtv.com/gb/溃坝.htm">溃坝</a>，三峡库区的居民比三峡大坝下游的民众处境更危险，现在逃，还有地方逃。</p>
