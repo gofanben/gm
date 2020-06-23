@@ -70,13 +70,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
 
-
-<div align="center"><img src="/sp-img/0623-crossed.jpg" width=450></div>
-
-🔥<b>【世界的十字路口 唐浩】</b>大洪水猛扑鱼米之乡，中国粮食告急；沉睡50万年，东北火山苏醒充电；“超限战”是什么？ &nbsp;&nbsp;&nbsp; 0623-crossroads.mp4 &nbsp;&nbsp;&nbsp; 27MB
-
-下载 : https://bit.ly/3hSYsVz
-
 🔥<b>【天亮时分】</b>📣直播:与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）📣&nbsp;&nbsp;&nbsp;
 0623-tlsf.mp4+m4a &nbsp;&nbsp;&nbsp; (221MB)
 
@@ -87,6 +80,13 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🎯免翻墙2: https://is.gd/n8dMpX
 
 <hr>
+
+<div align="center"><img src="/sp-img/0623-crossed.jpg" width=450></div>
+
+🔥<b>【世界的十字路口 唐浩】</b>大洪水猛扑鱼米之乡，中国粮食告急；沉睡50万年，东北火山苏醒充电；“超限战”是什么？ &nbsp;&nbsp;&nbsp; 0623-crossroads.mp4 &nbsp;&nbsp;&nbsp; 27MB
+
+下载 : https://bit.ly/3hSYsVz
+
 
 🔥<b>【热点互动】</b> 📣专访王维洛：三峡大坝出事的风险有多高？导致溃坝3大因素，三峡大坝基本占全！大坝几无防洪功能：保重庆还是保武汉？民众如何自保 &nbsp;&nbsp;&nbsp; 0623-rdhd.m4a &nbsp;&nbsp;&nbsp; 41.5MB 📣
 
