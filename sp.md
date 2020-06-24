@@ -68,6 +68,10 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><b>2020.06.24 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+🔥<b>【唐靖远快评】</b>四处点火，中共想干什么？中共所有系统都在按照一个战略行事；习近平对“危机”只看懂一半 &nbsp;&nbsp;&nbsp; 0624-tjy.m4a &nbsp;&nbsp;&nbsp; 21.2MB
+
+下载 : https://bit.ly/3dtARr9
+
 【中国禁闻6月23日完整版】四川突发洪水预警 三峡大坝上游更危险；北京疫情继续延烧 中共高层行踪诡异；揭秘中共酷刑系列之一：掐刑。 &nbsp;&nbsp;&nbsp; 0624_ckjw.mp3 &nbsp;&nbsp;&nbsp; 22.9MB
 
 下载 : https://bit.ly/3fPAIzZ
@@ -348,29 +352,6 @@ GitHub下载方式：<br>
 <a href="https://github.com/gofanben/gm/blob/master/git-download/%E3%80%9064%E9%87%8D%E6%92%AD%E3%80%91%E5%85%AD%C2%B7%E5%9B%9B%E7%B4%80%E9%8C%84%E7%89%87%E3%80%8A%E5%85%AD%E6%9C%88%E7%9A%84%E9%BB%91%E5%A4%9C%E3%80%8B.mp4?raw=true"> 《【64重播】六·四纪录片《六月的黑夜》》.mp4</a>
 
 <a href="https://github.com/gofanben/gm/blob/master/git-download/%E3%80%9064%E9%87%8D%E6%92%AD%E3%80%91%E5%85%AD%C2%B7%E5%9B%9B%E7%B4%80%E9%8C%84%E7%89%87%E3%80%8A%E5%85%AD%E6%9C%88%E7%9A%84%E9%BB%91%E5%A4%9C%E3%80%8B.mp3?raw=true"> 《【64重播】六·四纪录片《六月的黑夜》》.mp3</a>
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center"><img src="/sp-img/AI.jpg" width=600></div>
-<div align="center">人工智能：入侵人类计划 AI: THE PLAN TO INVADE HUMANITY</div><p>
-
-人工智能：入侵人类计划
-
-The AI Organization Chinese Channel
-人工智能组织中文频道
-
-地球上的每个人都非常的特别。这部影片从推特抄送给川普总统，促使五角大楼和总统公布了他们手上的飞碟（UFO）档案。
-
-人工智能（AI）生物技术的不正当使用导致瘟疫大流行，致力保护人类免遭劫难是我的使命。 
-
-本片的制作是出于利他的目的。当今国与国之间剑拔弩张，不负责任的人滥用生物技术，如果观众能理解影片的内容，全世界会有众多生命免受威胁。
-
-“人工智能：入侵人类计划”，这究竟是虚构小说，还是暗藏着保护人类的信息？塞瑞斯（Cyrus A. Parsa）如何在几个月前就预知瘟疫和封城，还将此计划的实施阶段写在书中的呢？
-
-这部电影的制作，不偏向特定的阶层、种族、性别、性取向、宗教、公司或政党。它表明，作为人类的我们需要走到一起，如果不敞开心扉，让我们自己变得更良善、更理性、更冷静、更谨慎、更加支持彼此，潜在的重大危险将会来临。
-
-官方网站https://theaiorganization.com
-
-【视频】 : <br>
 
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
