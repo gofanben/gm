@@ -68,6 +68,10 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><b>2020.06.24 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+【中国禁闻6月23日完整版】四川突发洪水预警 三峡大坝上游更危险；北京疫情继续延烧 中共高层行踪诡异；揭秘中共酷刑系列之一：掐刑。 &nbsp;&nbsp;&nbsp; 0624_ckjw.mp3 &nbsp;&nbsp;&nbsp; 22.9MB
+
+下载 : https://bit.ly/3fPAIzZ
+
 🔥<b>【文昭谈古论今20200623第775期】</b>韩正和汪洋免于制裁？抖音用户搅黄川普造势大会，新型网军威力惊人
 
 🎯免翻墙1: https://is.gd/UCc8pf
@@ -367,5 +371,6 @@ The AI Organization Chinese Channel
 官方网站https://theaiorganization.com
 
 【视频】 : <br>
+
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
