@@ -124,8 +124,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 <hr>
 
 🔥<b>【今日点击】</b>美勒令凤凰卫视旗下电视台 48小时内停播 &nbsp;&nbsp;&nbsp; 0624-1-jrdj.mp3 &nbsp;&nbsp;&nbsp; 11.3MB
+🔥<b>【今日点击】</b>疫情未过又来水灾 习李哪去了？ &nbsp;&nbsp;&nbsp; 0624-2-jrdj.mp3 &nbsp;&nbsp;&nbsp;  11.1MB
 
-下载 : https://bit.ly/3eu3zcF
+下载 : https://bit.ly/3fSRe24
 
 <hr>
 
@@ -230,7 +231,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 下载 :  https://bit.ly/2YswcSi
 
 🔥<b>【今日点击】</b>长江三峡大坝无法防洪？万一溃堤大水直冲上海&nbsp;&nbsp;&nbsp; 0623-jrdj.mp3 &nbsp;&nbsp;&nbsp; 7.89MB
-
 下载 : https://bit.ly/383LRe1
 
 <hr>
