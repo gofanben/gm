@@ -13,7 +13,7 @@
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
-【下载】(6月24日前有效) : https://bit.ly/2NhNifj
+【下载】(7月2日前有效) : https://bit.ly/3ewvWHp
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
@@ -63,6 +63,21 @@ Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
 无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
 Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.06.25 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+
+🔥<b>【陈破空纵论天下】</b>北京大疫，习近平躲起來！301医院异常通告。高层集体消失。用伏击对谈判，脑壳停留在满清时代
+
+https://bit.ly/2ZayzIk
+
+🔥<b>文昭谈古论今20200624第776期】</b中共辟谣301医院，政治局常委已疏散避难？三峡考验高潮未到、长江洪水厉害在后面（）
+
+🎯免翻墙1: https://is.gd/cdI6uI
+
+🎯免翻墙2: https://is.gd/8HbjbO
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
