@@ -90,12 +90,14 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><img src="/sp-img/0624-tjyj.jpg" width=450></div>
 
-
 🔥<b>【唐靖远快评】</b>四处点火，中共想干什么？中共所有系统都在按照一个战略行事；习近平对“危机”只看懂一半 &nbsp;&nbsp;&nbsp; 0624-tjy.m4a &nbsp;&nbsp;&nbsp; 21.2MB
 
 下载 : https://bit.ly/3dtARr9
 
 <hr>
+
+<div align="center"><img src="/sp-img/0624-tlsf.jpg" width=450></div>
+
 🔥<b>【天亮时分】</b>七常委行踪异常,也说“习帝下台不是梦”;三峡大坝还能撑多久?香港国安法将于6月30日通过(政论天下第186集 20200623)天亮时分 &nbsp;&nbsp;&nbsp; 0624-tlsf.m4a &nbsp;&nbsp;&nbsp; 22.9MB
 
 下载 :https://bit.ly/2CuFpAM
