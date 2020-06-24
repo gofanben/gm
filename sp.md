@@ -68,6 +68,12 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center"><b>2020.06.24 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+<div align="center"><img src="/sp-img/0624-xwpngq.jpg" width=450></div>
+
+🔥<b>【新聞拍案驚奇 大宇】</b>证据！北京层层封锁瘟疫消息；病毒变异传染力增9倍；7常委紧急避疫！连5天长江暴雨，三峡续受威胁，武汉南京鱼跃出水；沈阳成都传巨响，消息屏蔽，武器试验？香港《愿荣光》作者新曲
+
+🎯免翻墙1: https://is.gd/Jt56Ar
+
 🔥<b>【唐靖远快评】</b>四处点火，中共想干什么？中共所有系统都在按照一个战略行事；习近平对“危机”只看懂一半 &nbsp;&nbsp;&nbsp; 0624-tjy.m4a &nbsp;&nbsp;&nbsp; 21.2MB
 
 下载 : https://bit.ly/3dtARr9
