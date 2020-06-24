@@ -38,7 +38,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 【M4a下载， 65.6MB】(6月27日前有效)  : https://bit.ly/2NcC8YS
 
-<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">精彩保留</a></div><p>
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -63,6 +63,28 @@ Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
 无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
 Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.06.24 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+🔥<b>【文昭谈古论今20200623第775期】</b>韩正和汪洋免于制裁？抖音用户搅黄川普造势大会，新型网军威力惊人
+
+🎯免翻墙1: https://is.gd/UCc8pf
+
+🎯免翻墙2: https://is.gd/AbyfCx
+
+🔥<b>【今日点击】</b>美勒令凤凰卫视旗下电视台 48小时内停播 &nbsp;&nbsp;&nbsp; 0624-1-jrdj.mp3 &nbsp;&nbsp;&nbsp; 11.3MB
+
+下载 : https://bit.ly/3eu3zcF
+
+🔥<b>【新闻看点 李沐阳】</b>七常委集体消失，北京上演空城计？北京病毒传染力爆增9倍；成都沈阳震天诡异巨响，居民吓呆，热搜招封杀！中共欧盟各说各话，谈不拢；重庆发布“红色预警”，紧急疏散10万人
+
+🎯免翻墙1: https://is.gd/GuM5qo
+
+🔥<b>【陈破空纵论天下】</b>完整内幕：习近平密令攻击，共军大败！印度防长突抵俄罗斯。中欧峰会失败。党媒在美遭围歼 &nbsp;&nbsp;&nbsp; 0624-chenpokong.m4a &nbsp;&nbsp;&nbsp; 30.4MB
+
+下载 : https://bit.ly/2VbF10I
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -215,14 +237,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻墙2: https://is.gd/hq86Bq
 
-🔥<b>【严真点评】</b>外交部大实话：美中高层会谈不欢而散，欧洲欲将中共告上国际法庭。
-
-🎯免翻墙1: https://bit.ly/2UQNk1J
-
-🔥<b>时事小品_657</b>期躺枪的三文鱼
-
-🎯免翻墙1: https://bit.ly/2UQNk1J
-
 🔥<b>【Jason快评】</b>军机扰台，国安法细则出台，审判加国公民...总加速师，一个机会也不放过？ 0621-jason.m4a (21.4MB)
 
 下载  :  https://bit.ly/2YSU7Jn
@@ -307,16 +321,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 <div align="center">2020.06.19 新闻评论下载 (下载的有效期3天)</div><p>
 
-【瘟疫与中共】新泽西-美国制药（二）&nbsp;0619-wyyzg.mp4 (9.68MB)
-
-下载 : https://bit.ly/3dj7nw6
-
-🔥<b>【新闻看点 李沐阳】</b>新发地5米一军警，北京西红门万人小区400感染；三峡大坝危险，宜昌以下快跑！中共士兵用狼牙棒杀人，印度国民反共情绪高涨；中共军机10天5侵台，中共海警船连续６５天挑衅日本  0619-swkd.mp4 (33.7MB)
-
-下载 : https://bit.ly/2UZTZGV
-
-🎯免翻墙1:https://is.gd/zBJLLd
-
 🔥<b>【新闻拍案惊奇 大宇】</b>川普通共？3点证博尔顿错了；三峡宜昌以下，多少地方有险？再“封城”，北京隔离党校也住满；夏威夷会，中共声明两处耍流氓；人大开审国安法！共军打印军，狠毒冷兵器！印度吁与台湾联手 0619-swpnjq.mp4 (57.2MB)
 
 🎯免翻墙1:https://bit.ly/2YNysm3
@@ -326,172 +330,6 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 🎯免翻墙1: https://is.gd/2btMmn
 
 🎯免翻墙2: https://is.gd/5qt0re
-
-🔥<b>【文昭谈古论今20200618第772期】</b>杨洁篪、彭培奥交锋，中共要赔印度？人大常委会冲刺香港《国安法》；制裁韩正开辟权斗新局面 0619-wenzhao.m4a（18.2MB）
-
-🎯免翻墙1: https://is.gd/pAHjTK
-
-🎯免翻墙2: https://is.gd/zJjkPp
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
-<div align="center">2020.06.18 新闻评论下载 (下载的有效期3天)</div><p>
-
-🔥<b>【江峰直播】：</b>与袁弓夷先生谈谈中印战争、北朝鲜、和香港国安法 0618-jfmt.m4a
-
-🎯免翻墙1:https://is.gd/sbQfcO
-
-🎯免翻墙1:https://is.gd/oMA40e
-
-🔥<b>【新闻看点 李沐阳】</b>病毒攻入中南海，中南海大封锁！ 小区全封闭，市民断粮断菜，焚尸工全副武装，北京已成武汉？中印冲突王毅求和？600人肉搏6小时，印指挥官坠谷亡，伤亡数字成秘密！
-
-🎯免翻墙1:https://is.gd/XXk7T0
-
-🔥<b>【萧茗看世界】</b>直播：袁弓夷谈杨洁篪和彭培奥会面
-
-🎯免翻墙1:https://is.gd/ATecRh
-
-🎯免翻墙2:https://is.gd/QZlNwq
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-<div align="center">2020.06.17 新闻评论下载</div><p>
-
-🔥<b>【新闻看点 李沐阳】北京疫情大爆发，成武汉第二！世卫称疫情“重大”；朝鲜炸毁外交公馆，中朝双簧再开唱？美国审查EB-5签证，阻止中共党员获绿卡；强硬派看热闹，硬拱习近平；中印闹掰了，冲突63人死亡
-
-🎯免翻墙 : https://is.gd/X5OKhH
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.16 新闻评论下载</div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
-🔥<b>【文昭谈古论今20200615第770期】</b>北京与武汉“战疫”反其道而行？“新发地”市场成漩涡；习近平全局决策的基础坍塌；三处极不正常
-
-🎯免翻墙1: https://is.gd/Cot6ux
-
-🎯免翻墙2: https://is.gd/NJYai8
-
-🔥<b>【新闻看点 李沐阳】</b>中共跪了？杨洁篪将访美，赵立坚态度放软； 3航母集结印太，美警告不怕开战；袁爸爸投入“灭共行动”；李克强藉口请辞习批准？北京成疫原地，几十万潜在携带者，市民疯狂抢购蔬菜潮！
-
-🎯免翻墙1: https://is.gd/DO3Zff
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.15 新闻评论下载</div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
-🔥<b>【天亮时分(政论天下第181集 20200614)】</b>封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重
-
-🎯免翻墙1:https://is.gd/HueTFr
-
-🎯免翻墙1:https://is.gd/Etsl0f
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.14 新闻评论下载</div><p>
-
-🔥<b>【新闻看点 李沐阳】</b>美国明制裁暗开后门， $20亿军火送人情；华尔街大鳄养肥中共，向中共输血3万亿；丰台疫情“爆发式”，北京战时状态；6.12全港抗争百人同歌，白衫亮刀偷袭记者，黑衣男挺身相救受伤
-
-🎯免翻墙1:https://is.gd/RsBqWx
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.13 新闻评论下载</div><p>
-
-🔥<b>【新闻拍案惊奇 大宇】</b>李克强又说实话，涉2亿人温饱；党染指私人存款；中共开查国民海外关系；网友“道贺”李文亮；微博禁评新规；二次爆发警讯，北京新病例带毒踏六大集市；香港惊魂一幕！郝海东：共党退出
-
-🎯免翻墙1:https://is.gd/dyXNHp
-
-🔥<b>文昭谈古论今20200612第769期-1</b>疫情重返北京，结束55天零确诊！习近平凝视巨坑成真；制裁中共政治局常委，美国另有终极大招
-
-🎯免翻墙1::https://is.gd/Cot6ux<br>
-🎯免翻墙2::https://is.gd/NJYai8<br>
-🎯免翻墙3::https://is.gd/HVc8qP<br>
-🎯免翻墙4::https://is.gd/Xa967r
-
-🔥<b>【新闻看点 李沐阳】</b>推特大砍17万帐户；Zoom认听命中共；“工科神器”被禁用，哈工大叫苦连天；“地毯李”遇“城管习”？疫情造假9部曲！200辆军车将入港，中共要镇压？美芯片将本土化，“厉害国”怎么厉害？
-
-🎯免翻墙1:https://is.gd/HuRpcm
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.12 新闻评论下载</div><p>
-
-🔥<b>【新闻看点 李沐阳】</b>高晓松评希特勒，寓意深刻？“新八国联军”来袭，官媒不忘扣帽子；川普不忍了，韩正危险了！澳洲强硬政策不下跪；遮天蔽日！数千亿蝗虫真的来了！南方洪灾破纪录，超过北京半年雨
-
-🎯免翻墙1: https://is.gd/0IrHiT
-
-🔥<b>天亮时分(政论天下第179集 20200610)</b>谭书记给了习近平沉默的一击;认清美国骚乱背后的五只黑手;沉默的大多数必须发声
-
-🎯免翻墙1: https://is.gd/y5xjIr
-
-🎯免翻墙2: https://is.gd/qDybaZ
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.11 新闻评论下载</div><p>
-
-
-🔥<b>【新闻看点 李沐阳】</b>汇丰下跪，蓬佩奥炮轰中共；习总加速师凝视大坑？61岁杨丽萍被“催生”？中共摸底海外关系？4年砸1900万美元宣传；美国吊销中企电信运营许可？安倍关注香港将主导G7声明
-
-🎯免翻墙1: https://is.gd/OTvT3W
-
-🔥<b>【文昭谈古论今20200610第768期】</b>中共核武跃升世界第三，美军一项科技让“东风17”成浮云；还有更多等着“造反”的郝海东
-
-🎯免翻墙1: https://is.gd/BI4MUF
-
-🎯免翻墙2: https://is.gd/giiXbq
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.10 新闻评论下载</div><p>
-
-🔥<b>新闻拍案惊奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
-
-🎯免翻墙1:  https://is.gd/NmAd2x
-
-🔥<b>【新闻看点 李沐阳06.09】</b>任正非批中共“砸钱不行”，吃诚实豆沙包？世卫爆料：中共“重大拖延”；谭书记变谭总机，当机10秒；张晓明“杀气腾腾”，预示加大镇压力度？去年8月病毒已传播？哈佛2大证据
-
-🎯免翻墙1: https://is.gd/BSEgOi
-
-🔥<b>江峰时刻（江峰漫谈20200609第186期）</b>地摊经济，百姓的无奈与中共的谋算； 习李不是内斗而是携手左转，开启中共新闭关锁国时代；香港反送中一周年
-
-🎯免翻墙1:  https://is.gd/hV7xEn
-
-🎯免翻墙1: https://is.gd/P6Dr9u
-
-🔥<b>文昭谈古论今20200606第767期</b>大亨一语惊人：中国11亿人无消费能力！幸存者偏差；习近平最怕的俄罗斯反水将到来？
-
-🎯免翻墙1:  https://is.gd/rOT1KM
-
-🎯免翻墙2: https://is.gd/rOT1KM
-
-<div align="center"><img src="/sp-img/220.gif" width=880></div><p>
-<div align="center">2020.06.09 新闻评论下载</div><p>
-
-🔥<b>世界的十字路口 唐浩</b>哈佛研究：中国疫情10月已发生；反送中周年，全球抗共潮蔓延；揭密中共诡辩卸责五部曲（2020.6.9）
-
-🎯免翻墙1:  https://is.gd/LCj9Go<br>
-🎯免翻墙2:  https://is.gd/dqSZhE<br>
-🎯免翻墙3:  https://is.gd/WGxWNb<br>
-🎯免翻墙4:  https://is.gd/A0lijO
-
-🔥<b>文昭谈古论今20200608第766期</b>李克强被蔡奇、王沪宁“围剿”，只剩一条路；习近平开始另类“庚子赔款”：停77国债务
-
-🎯免翻墙1: https://is.gd/NtJ5Pn<br>
-🎯免翻墙2: https://is.gd/6qmN4R
-
-🔥<b>【新闻看点 李沐阳06.08】</b>中共新规定：党员的20个不准！中共抗疫白皮书，给自己立“贞节牌坊”？铁杆伊朗嘲笑中共确诊数；破坏美国研发疫苗，北京阻止病毒样本分享，南方8省洪灾严重，醴陵河水位日涨4米
-
-🎯免翻墙1: https://is.gd/Rx9P1j
-
-🔥<b>新闻拍案惊奇 大宇</b>中共克隆军人、武警维稳台湾、投香港催泪弹有阴谋？多项爆料！哈佛解密：武汉医院“停车场”和“百度”含疫情真相；张文宏称第二波更猛；中共十步令病毒散全球；反送中周年
-
-🎯免翻墙1: https://is.gd/jALCBg
 
 GitHub下载方式：<br>
 手机：对着挡按名称长按下载连结；或点档案名称，再对着 View raw 长按下载连结<br>
@@ -529,10 +367,5 @@ The AI Organization Chinese Channel
 官方网站https://theaiorganization.com
 
 【视频】 : <br>
-https://is.gd/rddLzV <br>
-https://is.gd/7OLEUd<br>
-https://is.gd/oDh1bw <br>
-https://is.gd/g5zlbP<br>
-https://is.gd/2mUTDR
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
