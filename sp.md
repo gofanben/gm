@@ -134,6 +134,8 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 
 🎯免翻墙1: https://is.gd/GuM5qo
 
+🎯免翻牆2: https://bit.ly/nowall0623
+
 <hr>
 
 🔥<b>【陈破空纵论天下】</b>完整内幕：习近平密令攻击，共军大败！印度防长突抵俄罗斯。中欧峰会失败。党媒在美遭围歼 &nbsp;&nbsp;&nbsp; 0624-chenpokong.m4a &nbsp;&nbsp;&nbsp; 30.4MB
