@@ -96,6 +96,16 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
 下载 : https://bit.ly/3dtARr9
 
 <hr>
+🔥<b>【天亮时分】</b>七常委行踪异常,也说“习帝下台不是梦”;三峡大坝还能撑多久?香港国安法将于6月30日通过(政论天下第186集 20200623)天亮时分 &nbsp;&nbsp;&nbsp; 0624-tlsf.m4a &nbsp;&nbsp;&nbsp; 22.9MB
+
+下载 :https://bit.ly/2CuFpAM
+<hr>
+
+🔥<b>【江峰漫谈20200624第193期】</b>乱世之作——博尔顿新书揭“川普与习近平交易，称习为300年中国伟大领袖？轻视抛弃台湾香港？” ：真伪之争之我见 &nbsp;&nbsp;&nbsp; 0624-jfmt.m4a &nbsp;&nbsp;&nbsp; 27.8MB
+
+下载 :https://bit.ly/2NoLSPV
+
+<hr>
 
 【中国禁闻6月23日完整版】四川突发洪水预警 三峡大坝上游更危险；北京疫情继续延烧 中共高层行踪诡异；揭秘中共酷刑系列之一：掐刑。 &nbsp;&nbsp;&nbsp; 0624_ckjw.mp3 &nbsp;&nbsp;&nbsp; 22.9MB
 
