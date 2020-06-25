@@ -54,15 +54,13 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
 
-▲破网软件 (6月25日前有效) : <br>
-自由门安卓版4.2	https://bit.ly/3dcfNFA<br>
-无界 安卓版 4.8	        https://bit.ly/2Y98muA<br>
-环门 安卓版 036	https://bit.ly/2AJzBCU<br>
-Skype 安卓版 8.60	https://bit.ly/2ABaSkp<br>
-自由门电脑版 7.84 （6月28日前有效)	https://bit.ly/3hIvjfM<br>
-无界 电脑版 19.02	https://bit.ly/2zEDqsy<br>
-爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2YDKJZW<br>
-Skype 电脑版 最新	https://bit.ly/2Yha25t<br>
+▲翻墙软件下载：https://github.com/fanqiangla/1
+
+▲自由上网方法：https://git.io/v9999
+
+▲自由门电脑版 7.84 （6月28日前有效)	https://bit.ly/3hIvjfM
+
+Skype 电脑版 最新	https://bit.ly/2Yha25t
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
