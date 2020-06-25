@@ -1,13 +1,13 @@
-<div align="center"><a href="http://61.228.189.23/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
+<div align="center"><a href="http://61.228.178.168/300"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a>
 
 🔥网页若出现〝你的连现不是私人连线〃，点→进阶，再点→继续前往...，就可以看到视频了。<br>
 🔥目前大陸封锁网路速度，请耐心等候或先下载，或早上、离峰时刻使用。IP网址时效只有一天。
  
-http://61.228.189.23/300
+http://61.228.178.168/300
 
-http://61.228.208.35/300
+http://61.228.214.184/300
 
-http://61.228.180.169/310
+http://61.228.215.193/310
 
 🔥点击视频下載 https://bit.ly/3eUyoaw
 
@@ -19,9 +19,9 @@ http://61.228.180.169/310
 
 http://61.228.188.70/69
 
-http://61.228.186.15/69
+http://61.228.210.252/69
 
-http://61.228.216.217/69
+http://61.228.216.61/69
 
 为持续能看到真实信息，请記下明见网即时ip索取信箱：mingjianweb@gmail.com，並下载「无界浏览」与「自由门」「神州明见」等破网工具
 
