@@ -50,17 +50,20 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
 
-📣这里还给大家提供一个自带翻墙功能的希望之声手机App,适用于所有安卓系统的手机（所有的中国手机品牌，以及三星，LG等非iPhone手机）。，安装后即可使用。用这个App可以收听收看天亮时分的节目。
-
-下载  (6月28日前有效)  :  https://bit.ly/3fKGy5O
-
+▲翻墙软件下载：<br>
+自由门安卓版4.2	https://bit.ly/2NuMyDt<br>
+无界 安卓版 4.8	https://bit.ly/2BaL1Qt<br>
+环门 安卓版 036	https://bit.ly/2A8LcLI<br>
+希望之声手机App	https://bit.ly/2BeAnrM<br>
+Skype 安卓版 8.61	https://bit.ly/382lbKl<br>
+------------------------	<br>
+自由门电脑版 7.86 （6月26日)	https://bit.ly/3eENaSY<br>
+无界 电脑版 19.02	https://bit.ly/3dGPJ5T<br>
+爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/3fX0dzo<br>
+Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 ▲翻墙软件下载：https://github.com/fanqiangla/1
-
 ▲自由上网方法：https://git.io/v9999
 
-▲自由门电脑版 7.84 （6月28日前有效)	https://bit.ly/3hIvjfM
-
-Skype 电脑版 最新	https://bit.ly/2Yha25t
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -348,13 +351,9 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t
 
 <div align="center">2020.06.20 新闻评论下载 (下载的有效期3天)</div><p>
 
-🔥<b>【世事关心】</b>大瘟疫中 中国人面临哪些身份危机？ 0620-ssgx.mp4  (37.8MB)
+🔥<b>【世事关心】</b>�大瘟疫中 中国人面临哪些身份危机？� 0620-ssgx.mp4  (37.8MB)
 
-下载 : https://bit.ly/37Mp6uP
-
-🔥<b>【禁闻】</b>传三峡大坝危殆 专家指点逃生路 0620-ckjw-1.mp4  (8.12MB)
-
-下载 : https://bit.ly/3fHGQtU
+下载 : https://bit.ly/2BDdsX6
 
 🔥<b>【新闻拍案惊奇 大宇】</b>战时三峡是“巨型水炮”，中国四成大坝危险！北京万人排长龙检疫，压垮医院出人命，地坛添床上千；运动式防疫是政治秀？会白开！蓬佩奥：中共没改；川普再喊决裂；郝海东受访：亲历反送中
 
@@ -364,26 +363,7 @@ Skype 电脑版 最新	https://bit.ly/2Yha25t
 
 🎯免翻墙1: https://is.gd/4bQrjk
 
-🔥<b>【思想领袖】</b>莱顿：美国面临中共科技威胁 0620-sxlx.mp4 (22.7MB)
-
-下载 : https://bit.ly/3ejpnI9
-
-🔥<b>【热点互动】</b>中印冲突更多惨烈细节曝光！中方使用狼牙棒，蓄意伏击；印度全民愤怒，中印关系走向如何？夏威夷会晤后蓬佩奥强硬表态：这是在自由和暴政之间的选择 | 唐靖远 赵培 0620-rdhd.m4a (40.6MB)
-
-下载 : https://bit.ly/3di8MTJ
-
-🔥<b>【今日点击】</b>中印边境冲突与杨洁篪赴美谈判时间完美吻合中国专收养孤儿训练成打手赴边境抗印军 0620-1-jrdj.mp3 11.2MB<br>
-🔥<b>【今日点击】</b>川普表示美中“完全脱钩”仍是政策选项 0620-2-jrdj.mp3 (11.3MB)
-
-下载 : https://bit.ly/3hJ2foz
-
-🔥<b>【陈破空纵论天下】</b>新书轰动！川普的是与非。习近平亲戚牵涉其中。闭门谈判，美中激烈争吵 0620-chenpokong.m4a (27.3MB)
-
-下载 : https://bit.ly/2UYYukU
-
 🔥<b>【文昭谈古论今20200619第773期】</b>三峡“吹哨人”发警告，宜昌以下有多险？洪灾中三个面向看三峡大坝之危 &nbsp;&nbsp;&nbsp; 0620-wenzhao.m4a &nbsp;&nbsp;&nbsp; (16.6MB)
-
-下载 : https://bit.ly/2UZArmb
 
 🎯免翻墙1: https://is.gd/LXNP1N
 
