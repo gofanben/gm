@@ -68,6 +68,9 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.06.26 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+<b>【世界的十字路口 唐浩】</b>为中共卖命，海外特务下场凄凉；揭密中共外宣渗透五大手法；人生十字路口：该不该出国留学？ &nbsp;&nbsp;&nbsp; 0626-crossroads.mp4 &nbsp;&nbsp;&nbsp; 42.2MB
+下载 : https://bit.ly/3ezvvw4
+
 【中国禁闻6月25日完整版】中印冲突细节曝光 印方更强硬；疫情掩护下强拆 北京昌平对荣誉中产下手；揭秘中共酷刑系列之三：水刑。&nbsp;&nbsp;&nbsp; 0626_ckjw.mp4 &nbsp;&nbsp;&nbsp; 51.6MB
 
 下载 : https://bit.ly/3eBO4iV
