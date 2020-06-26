@@ -61,7 +61,7 @@ Skype 安卓版 8.61	https://bit.ly/382lbKl<br>
 无界 电脑版 19.02	https://bit.ly/3dGPJ5T<br>
 爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/3fX0dzo<br>
 Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
-▲翻墙软件下载：https://github.com/fanqiangla/1
+▲翻墙软件下载：https://github.com/fanqiangla/1<br>
 ▲自由上网方法：https://git.io/v9999
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
