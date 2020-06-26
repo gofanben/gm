@@ -64,6 +64,13 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 ▲翻墙软件下载：https://github.com/fanqiangla/1
 ▲自由上网方法：https://git.io/v9999
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.06.25 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+🔥<b>【新闻看点 李沐阳】</b>解放军操控清单出炉，中共“被拉清单”；北京冠状冰雹，武汉疫后洪水，“共产党下课”声此起彼伏；小粉红回国无门，现实中没有战狼；三峡危急中共丧事喜办；多国弃用华为，中共开启新冷战
+
+🎯免翻牆1: https://is.gd/q4vWWN
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
