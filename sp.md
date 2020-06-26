@@ -66,7 +66,7 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><b>2020.06.25 新闻评论下载 (下载的有效期3天)</b></div><p>
+<div align="center"><b>2020.06.26 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 🔥<b>【江峰漫谈20200626第195期】</b>习近平是斯大林的继承者”！美国首次公开指中共领袖为暴君；《香港问责法》急出台撑香港抗争者制裁中港官员；谁还要救孟晚舟？ &nbsp;&nbsp;&nbsp; 0626-jfmt.m4a &nbsp;&nbsp;&nbsp; 26.8MB
 
