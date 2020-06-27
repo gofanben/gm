@@ -68,6 +68,14 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.06.27 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+🔥<b>【世事关心】</b>袁弓夷：将中共在美定为犯罪组织 &nbsp;&nbsp;&nbsp; 0627-ssgx.mp4 &nbsp;&nbsp;&nbsp; 64.1MB
+
+下载：https://bit.ly/2VF3qft
+
+🔥<b>【世界的十字路口 唐浩】</b>香港自治法将通过，川普对中共更强硬？危机来不停，解密中共四招脱身术 &nbsp;&nbsp;&nbsp;  0627-crossroads.mp4 &nbsp;&nbsp;&nbsp;  19.8MB
+
+下载：https://bit.ly/3g4rjol
+
 🔥<b>【热点互动】</b>误判中共90年！美终于觉醒全面反击，重磅制裁将接踵而来；中共又要用贸易协议应对《香港自治法》？北京疫情真相被官方严控，病毒变异加速传播 | 唐靖远 萧恩  &nbsp;&nbsp;&nbsp; 0627-rdhd.m4a &nbsp;&nbsp;&nbsp; 40.7MB
 
 下载：https://bit.ly/2Zhkzg7
