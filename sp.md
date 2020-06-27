@@ -97,6 +97,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 下载 : https://bit.ly/3dAnqWn
 
+🔥<b>【文昭谈古论今20200626第777期】</b>公安也要降薪了！？决战七一，美国《香港自治法案》火速推出、启动必杀技，划下中美脱钩时间大限 &nbsp;&nbsp;&nbsp;  0627-wenzhao.m4a  &nbsp;&nbsp;&nbsp;  15.9MB
+
+下载 : https://bit.ly/2NB6Jjf
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><b>2020.06.26 新闻评论下载 (下载的有效期3天)</b></div><p>
@@ -112,10 +116,6 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 🔥<b>【江峰漫谈20200626第195期】</b>习近平是斯大林的继承者”！美国首次公开指中共领袖为暴君；《香港问责法》急出台撑香港抗争者制裁中港官员；谁还要救孟晚舟？ &nbsp;&nbsp;&nbsp; 0626-jfmt.m4a &nbsp;&nbsp;&nbsp; 26.8MB
 
 下载 : https://bit.ly/380djcv
-
-🔥<b>【文昭谈古论今20200626第777期】</b>公安也要降薪了！？决战七一，美国《香港自治法案》火速推出、启动必杀技，划下中美脱钩时间大限 &nbsp;&nbsp;&nbsp;  0627-wenzhao.m4a  &nbsp;&nbsp;&nbsp;  15.9MB
-
-下载 : https://bit.ly/2NB6Jjf
 
 🔥<b>【新聞拍案驚奇 大宇】</b>江水越过武汉堤防，暴雨连7月威胁三峡，湖北六百水库超限！制裁国安法、瘟疫索赔，川普9月火力全开？民阵号召七一游行，盼人多；共军研核动力航母，美不怯开战，称百年大错是误判中共
 
