@@ -93,6 +93,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 💎21:24 被悄悄非法置换的人生<br>
 💎24:31 腐败的中共教育制度<br>
 
+🔥<b>【陈破空纵论天下】</b>真的分手了？彭丽媛联名引猜疑！习近平报复红二代。美国鉴定：他是斯大林的继承人 &nbsp;&nbsp;&nbsp; 0627-chenpokong.m4a &nbsp;&nbsp;&nbsp; 31MB
+
+下载 : https://bit.ly/3dAnqWn
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><b>2020.06.26 新闻评论下载 (下载的有效期3天)</b></div><p>
@@ -109,6 +113,9 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 下载 : https://bit.ly/380djcv
 
+🔥<b>【文昭谈古论今20200626第777期】</b>公安也要降薪了！？决战七一，美国《香港自治法案》火速推出、启动必杀技，划下中美脱钩时间大限 &nbsp;&nbsp;&nbsp;  0627-wenzhao.m4a  &nbsp;&nbsp;&nbsp;  15.9MB
+
+下载 : https://bit.ly/2NB6Jjf
 
 🔥<b>【新聞拍案驚奇 大宇】</b>江水越过武汉堤防，暴雨连7月威胁三峡，湖北六百水库超限！制裁国安法、瘟疫索赔，川普9月火力全开？民阵号召七一游行，盼人多；共军研核动力航母，美不怯开战，称百年大错是误判中共
 
@@ -390,21 +397,6 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 🎯免翻墙2: https://is.gd/hq86Bq
 
-🔥<b>【Jason快评】</b>军机扰台，国安法细则出台，审判加国公民...总加速师，一个机会也不放过？ 0621-jason.m4a (21.4MB)
-
-下载  :  https://bit.ly/2YSU7Jn
-
-🔥<b>【新闻周刊第737期】</b>抗恶法！港人三罢公投 市民：这一刻要出来;北京成新武汉 多省市受影响 疫情已南移;台湾公布港人救援方案 专责办公室七一成立;中共病毒致45.8万人亡 巴西1百万人确诊 0621_xwzk.mp4 (57.4MB)
-
-下载  :  https://bit.ly/2YRF3f6
-
-🔥<b>【今日点击】</b>港版国安法能在港实施吗？ 0621-jrdj.mp3 (11.3MB)
-
-下载 :  https://bit.ly/37OHR0G
-
-🔥<b>【陈破空纵论天下】</b>利用疫情，此人想当副主席？习近平亲自隐瞒：共军正副指挥官遭印军... 0621-chenpokong.m4a (27.1MB)
-
-下载 :  https://bit.ly/37QIVBk
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
