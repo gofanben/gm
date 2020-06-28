@@ -66,6 +66,20 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><b>2020.06.28 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+🔥<b>【天亮时分】(政论天下第187集 20200627)</b>杨洁篪暗示蓬佩奥,中共已无牌可打;美国国安安全顾问吹响灭共号角;参议院通过制裁决定,中共灭亡参考伊拉克模式
+
+🎯免翻牆1: https://is.gd/MIlfSE
+
+🎯免翻牆2: https://is.gd/3Oim87
+
+🔥<b>【陈破空纵论天下】</b>这个名女人突然病倒，对习近平打击很大？她的精彩故事。中国向美国输出神秘物件。中印大战或一触即发 &nbsp;&nbsp;&nbsp;  0628-chenpokong.m4a &nbsp;&nbsp;&nbsp;  26MB
+
+下载：https://bit.ly/2NBLRIw
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><b>2020.06.27 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 🔥<b>【世事关心】</b>袁弓夷：将中共在美定为犯罪组织 &nbsp;&nbsp;&nbsp; 0627-ssgx.mp4 &nbsp;&nbsp;&nbsp; 64.1MB
@@ -82,7 +96,7 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 🔥<b>【新聞拍案驚奇 大宇】</b>没淹武汉先淹重庆，三峡蓄洪一大弱点！上游水坝一样险；国安法到，中共内定“留港不留人”，以贸易胁迫美国；军车入港带神秘设备，手机相机失灵；北京警察不够用，扩招维稳军！叶钊颖骂共
 
-🎯免翻牆1:https://is.gd/F2jFME
+🎯免翻牆1: https://is.gd/F2jFME
 
 💎由“大楚国外事部” 谈到李锐之逝 0:45<br>
 💎 #李锐 黄万里之子女谈三峡 江泽民是总后台 3:52<br>
@@ -407,10 +421,6 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 下载 : https://bit.ly/2AMTtW1
 
-🔥<b>【陈破空纵论天下】</b>三峡大坝悬！宜昌以下跑？习近平扑压反习声浪。川普竞选造势，中国公司做手脚 &nbsp;&nbsp;&nbsp; 0622-chenpokong.m4a &nbsp;&nbsp;&nbsp; (27.4MB)
-
-下载 : https://bit.ly/314BIMo
-
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center">2020.06.21 新闻评论下载 (下载的有效期3天)</div><p>
@@ -424,7 +434,6 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 🎯免翻墙1: https://is.gd/KYk1G8
 
 🎯免翻墙2: https://is.gd/hq86Bq
-
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
