@@ -10,7 +10,6 @@
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</h3></div>
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg-1.md">下一頁</h6></div>
 
-
 <a href =#a1>【特稿】越亲中共疫情越重 防疫有良方(置顶)</a><p>
 <a href =#133>【瘟疫与中共】智利为何疫情严重</a><p>
 <a href =#132>【瘟疫与中共】秘鲁疫情陡然飙升的背后</a><p>
