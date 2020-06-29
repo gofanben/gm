@@ -66,11 +66,23 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><b>2020.06.29 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+【中国禁闻6月28日完整版】宜昌大水淹城 市民称与三峡泄洪有关；小粉红被困海外 哀叹：没有战狼来救我；揭秘中共酷刑系列之五：龙抱柱 苏秦背剑。 &nbsp;&nbsp;&nbsp; 0629_ckjw.mp4 &nbsp;&nbsp;&nbsp; 60.2MB
+
+下载 :  https://bit.ly/2YEdNSp
+
+🔥<b>【陈破空纵论天下】</b>前总理突然亮相，证实高层分裂！习近平得罪了所有人。那个女人终于撒手 &nbsp;&nbsp;&nbsp; 0629-chenpokong.m4a &nbsp;&nbsp;&nbsp; 32.1MB
+
+下载 :  https://bit.ly/3dNULxu
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><b>2020.06.28 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 🔥<b>【新闻看点 李沐阳】</b>中共病毒火箭窜升，北京染疫两万五？死亡超两千？误信宣传迁居北京，遇SARS惊魂逃命经历；巴西染疫赶超美国！蝗虫群又将入侵，背后原因几何？水倒灌宜昌被淹，车被砸女子获救
 
-🎯免翻牆1:https://is.gd/pVTiSq
+🎯免翻牆1: https://is.gd/pVTiSq
 
 🔥<b>【天亮时分】(政论天下第187集 20200627)</b>杨洁篪暗示蓬佩奥,中共已无牌可打;美国国安安全顾问吹响灭共号角;参议院通过制裁决定,中共灭亡参考伊拉克模式
 
@@ -155,6 +167,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 下载 : https://bit.ly/3ezvvw4
 
+🎯免翻牆1: https://is.gd/6k05HA
+
+🎯免翻牆2: https://is.gd/N1mi99
+
 【中国禁闻6月25日完整版】中印冲突细节曝光 印方更强硬；疫情掩护下强拆 北京昌平对荣誉中产下手；揭秘中共酷刑系列之三：水刑。&nbsp;&nbsp;&nbsp; 0626_ckjw.mp4 &nbsp;&nbsp;&nbsp; 51.6MB
 
 下载 : https://bit.ly/3eBO4iV
@@ -188,6 +204,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 🔥<b>【世界的十字路口 唐浩】</b>习近平等人行踪怪异，有人染疫？美中开战机率有多高？美国反击大外宣，中共为何跳脚？
 
 下载 : https://bit.ly/3i0g56c
+
+🎯免翻牆1:  https://is.gd/VL5Rbq
+
+🎯免翻牆2:  https://is.gd/kghfdw
 
 🔥<b>【江峰漫谈20200625第194期】</b>“星链上网，全家下岗”从中共恐惧看马斯克星链计划推翻防火墙就在眼前；北京疫情的三文鱼经验：美国大豆即将带毒？
 
@@ -324,6 +344,9 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 下载 : https://bit.ly/3hSYsVz
 
+🎯免翻墙1: https://is.gd/WwEjlo
+
+🎯免翻墙2: https://is.gd/vnzQ6r
 
 🔥<b>【热点互动】</b> 📣专访王维洛：三峡大坝出事的风险有多高？导致溃坝3大因素，三峡大坝基本占全！大坝几无防洪功能：保重庆还是保武汉？民众如何自保 &nbsp;&nbsp;&nbsp; 0623-rdhd.m4a &nbsp;&nbsp;&nbsp; 41.5MB 📣
 
@@ -373,57 +396,20 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <hr>
 
-🔥<b>【中国禁闻6月22日完整版】</b>三峡大坝上下游均告急 大灾难中如何逃生；被“刁难”的老人们 健康码还健康吗；澳洲智库：中共大规模采集男性DNA样本。&nbsp;&nbsp;&nbsp; 0623_ckjw.mp3  &nbsp;&nbsp;&nbsp; 25.5MB
-
-下载 : https://bit.ly/2BraGnL
-
-<hr>
-
-🔥<b>【今日点击】</b>曾求助习近平？纳瓦罗：川普是历来对中共最强硬的总统 &nbsp;&nbsp;&nbsp; 0623-2-jrdj.mp3 &nbsp;&nbsp;&nbsp; 10.5MB
-
-下载 :  https://bit.ly/2YswcSi
-
-🔥<b>【今日点击】</b>长江三峡大坝无法防洪？万一溃堤大水直冲上海&nbsp;&nbsp;&nbsp; 0623-jrdj.mp3 &nbsp;&nbsp;&nbsp; 7.89MB
-下载 : https://bit.ly/383LRe1
-
-<hr>
-
 🔥<b>【文昭谈古论今20200622第774期】</b>重庆接1940以来最大洪水，三峡“黑天鹅”还有第二只；《国安法》或虎头蛇尾，拖习帝下台？
 &nbsp;&nbsp;&nbsp; 0623-wenzhao.m4a &nbsp;&nbsp;&nbsp;  (19.7MB)
-
-下载 : https://bit.ly/2Vb6nDY
 
 🎯免翻墙1: https://is.gd/UCY5Kp
 
 🎯免翻墙2: https://is.gd/QLIeWm
 
-<hr>
-
-🔥<b>【陈破空纵论天下】</b>忽然军警密布，北京又出事了？印度大举增兵！俄罗斯大规模军演直指中国。欧盟要把中共控上国际法庭&nbsp;&nbsp;&nbsp;0623-chenpokong.m4a &nbsp;&nbsp;&nbsp; (30.5MB)
-
-下载 : https://bit.ly/3etPjku
-
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><b>2020.06.22 新闻评论下载 (下载的有效期3天)</b></div><p>
 
-<div align="center"><img src="/sp-img/0622132323.jpg" width=450></div>
-
-🔥<b>【禁闻】</b>党媒承认，三峡库区水位超出防洪限制2米；专家提醒三峡以下的民众，尽快规划好逃跑路线，并准备好逃生包。 &nbsp;&nbsp;&nbsp; 0622-sxdb.mp4 &nbsp;&nbsp;&nbsp; (4.40MB)
-
-下载 (6月26日前有效) : https://bit.ly/37NGmzG
-
-🔥<b>【中国禁闻6月21日完整版】</b>北京疫情延烧 多省医疗队紧急入京；中共免除非洲国家债务 专家揭背后真相；港版国安法细节曝光 颠覆香港司法独立。 0622_ckjw.mp4 (60.4MB)
-
-下载 (6月26日前有效) :https://bit.ly/3hOa38v
-
 🔥<b>【新闻拍案惊奇 大宇】</b>邓小平“呼吁”打倒中共！港国安法：特首港警成太保，设“东厂西厂”；湖北援北京防疫；阻出京特急通知！共机再侵台领空，俄卖武器给印度；地质灾害预警，网议三峡逃命攻略；夏至日环食
 
 🎯免翻墙1: https://is.gd/KZjdcN
-
-🔥<b>【今日点击】</b>港版国安法草案出炉 港警变二等公民 &nbsp;&nbsp;&nbsp; 0622-jrdj.mp3 &nbsp;&nbsp;&nbsp;  (11.3MB)
-
-下载 : https://bit.ly/2AMTtW1
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
