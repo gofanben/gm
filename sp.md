@@ -68,7 +68,13 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.06.29 新闻评论下载 (下载的有效期3天)</b></div><p>
 
-【中国禁闻6月28日完整版】宜昌大水淹城 市民称与三峡泄洪有关；小粉红被困海外 哀叹：没有战狼来救我；揭秘中共酷刑系列之五：龙抱柱 苏秦背剑。 &nbsp;&nbsp;&nbsp; 0629_ckjw.mp4 &nbsp;&nbsp;&nbsp; 60.2MB
+🔥<b>天亮时分(政论天下第188集 20200628)</b>马斯克星链计划能否推倒中共防火墙?中共将如何应对?
+
+🎯免翻牆1: https://is.gd/KAdqWS
+
+🎯免翻牆2: https://is.gd/6wQelE
+
+【中国禁闻6月28日完整版】</b>宜昌大水淹城 市民称与三峡泄洪有关；小粉红被困海外 哀叹：没有战狼来救我；揭秘中共酷刑系列之五：龙抱柱 苏秦背剑。 &nbsp;&nbsp;&nbsp; 0629_ckjw.mp4 &nbsp;&nbsp;&nbsp; 60.2MB
 
 下载 :  https://bit.ly/2YEdNSp
 
