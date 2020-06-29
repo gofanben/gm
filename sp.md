@@ -34,9 +34,9 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🔥🈲<b>【脑洞VS黑洞02】</b>2020年 赊刀人再现 惊悚预言 正在兑现 寥寥几句 细思极恐  <br>
 🔥🈲<b>【脑洞vs黑洞01】 </b>预言铁口 句句惊心 2020 下半年是否更可怕？疫情是否有第二波？ 战乱、饥荒、人民留一半？！<br>
 
-【MP4下载，121MB】(6月27日前有效)  : https://bit.ly/2zML982
+【MP4下载，121MB】(7月6日前有效)  : https://bit.ly/3eGfRyQ
 
-【M4a下载， 65.6MB】(6月27日前有效)  : https://bit.ly/2NcC8YS
+【M4a下载， 65.6MB】(7月6日前有效)   : https://bit.ly/2Nzrmw6
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
