@@ -22,6 +22,12 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center">预言破解</div><p>
 
+【脑洞VS黑洞11】尚未实现的2020年预言（一）
+
+【MP4+MP3下载，142MB】(7月3日前有效)  : https://bit.ly/3eL7Tob
+
+<hr>
+
 🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）
 
 【MP4+MP3下载，142MB】(6月30日前有效)  : https://bit.ly/2NsEa7j
