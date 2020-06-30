@@ -3,15 +3,20 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版）
+🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版） &nbsp;&nbsp;&nbsp; 0615_XYRS.mp4 &nbsp;&nbsp;&nbsp; 74.2MB
 
-【下载】(6月30日前有效)  :https://bit.ly/2CpaO7E
+【下载】(7月7日前有效)  : https://bit.ly/3dRK0dz
+
+<hr>
+印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
+
+下载 : https://bit.ly/2Vawqv8
 
 <hr>
 
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）（下集）
 
-【MP4下载，59.4MB】(6月25日前有效)  :https://bit.ly/3da4LRi
+【MP4下载，59.4MB】(7月7日前有效)  :https://bit.ly/2CLLHMu
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -21,10 +26,6 @@
 🎯免翻牆2:  https://is.gd/QVnHzA
 
 <hr>
-印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
-
-下载 : https://bit.ly/2Vawqv8
-<hr>
 🔥<b>【世事关心】</b>�大瘟疫中 中国人面临哪些身份危机？� 0620-ssgx.mp4  (37.8MB)
 
 下载 : https://bit.ly/2BDdsX6
@@ -33,7 +34,7 @@
 
 🔥<b>袁弓夷：中共氣數已盡 滅共才有出路</b>&nbsp;&nbsp;&nbsp; 0618-ygy.mp4 &nbsp;&nbsp;&nbsp; (4.57MB)
 
-下载 : https://bit.ly/2YOWFbB
+下载 : https://bit.ly/38djf1H
 
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/AI.jpg" width=600></div>
