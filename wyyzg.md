@@ -13,8 +13,8 @@
 <h1 align="center">🔥<b>全球退党中心倡议：解体中共 远离瘟疫</b></h1>
 <div align="center"><img src="/wyyzg-img/Screen-Shot-2020-06-26-at-3.35.45-PM-600x400.png" width=600></div>
 <div align="center">“全球退党中心”本周发起了一项征签倡议活动：终结共产党。（网站截图）</div><p>
-<div align="center"><img src="/wyyzg-img/23ec.png width=5" >
-<a href="https://github.com/gofanben/gm/blob/master/wyyzg-2.md#129">▲原文</a></div>
+<div align="center"><img src="/wyyzg-img/23ec.png" width=5></div>
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/wyyzg-2.md#129">▲原文</a></div>
 
 <a href =#134>塞国总统吻五星旗 议长部长等高官染疫</a><p>
 
