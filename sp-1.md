@@ -21,6 +21,15 @@
 🎯免翻牆2:  https://is.gd/QVnHzA
 
 <hr>
+印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
+
+下载 : https://bit.ly/2Vawqv8
+<hr>
+🔥<b>【世事关心】</b>�大瘟疫中 中国人面临哪些身份危机？� 0620-ssgx.mp4  (37.8MB)
+
+下载 : https://bit.ly/2BDdsX6
+
+<hr>
 
 🔥<b>袁弓夷：中共氣數已盡 滅共才有出路</b>&nbsp;&nbsp;&nbsp; 0618-ygy.mp4 &nbsp;&nbsp;&nbsp; (4.57MB)
 
