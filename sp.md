@@ -75,6 +75,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.06.30 新闻评论下载 (下载的有效期3天)</b></div><p>
 
+🔥<b>【世界的十字路口 唐浩】</b>港区国安法通过，追究四大重点；新疆六月大雪；中共七常委，谁至今下落不明？ &nbsp;&nbsp;&nbsp;  0630-crossroads.m4a &nbsp;&nbsp;&nbsp;  11.9MB
+
+下载 : https://bit.ly/2ZmqSPw
+
 🔥<b>【热点互动】</b>港版国安法将生效，魔鬼在细节中；7.1会有大抓捕？美国务院商务部接连制裁取消香港特殊优惠，中共将大赌大输 | 横河 吴建民 &nbsp;&nbsp;&nbsp;  0630-rdhd.m4a &nbsp;&nbsp;&nbsp;  40.9MB
 
 下载 : https://bit.ly/2BeR4nj
