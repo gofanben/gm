@@ -1,5 +1,6 @@
-<div align="center"><img src="/wyyzg-img/wyyzg.jpg" width=800></div>
-<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回上頁</h6></a></div>
+<div align="center"><img src="/wyyzg-img/20200630.jpg" width=800></div>
+<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回首頁</h6></a></div>
+<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md">回上頁</h6></a></div>
 <div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg-1.md">下一頁</h6></div>
 
 <a href =#a1>【特稿】越亲中共疫情越重 防疫有良方(置顶)</a><p>
