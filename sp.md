@@ -73,6 +73,28 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><b>2020.06.30 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+【今日点击】全球染疫超千万 高危人群从老人转向年轻人 &nbsp;&nbsp;&nbsp;  0630-jrdj.mp3 &nbsp;&nbsp;&nbsp;  11.3MB
+
+下载 : https://bit.ly/3eG2tL8
+
+🔥<b>【新闻看点 李沐阳】</b>内幕💥中共牺牲下游保三峡？习近平终于“云露面”，80年最大洪水肆虐淹26省，七常委不视察灾区？山洪暴发，旅店不通知游客！出手豪爽救非洲，红十字救灾一人分不到“2分钱”！
+
+🎯免翻牆1: https://is.gd/lC0YFX
+
+🔥<b>【文昭谈古论今20200629第778期】</b>温家宝突然现身为三峡？中印降温失效、持续增兵随时再打；战狼玩砸的“收复三京”
+
+🎯免翻牆1: https://is.gd/EBOp1i
+
+🎯免翻牆2: https://is.gd/jpym9X
+
+🔥<b>【陈破空纵论天下】</b>高层会议异常，七常委凑不齐！三峡大坝高危，宜昌全城被淹。习近平决意对印度开战？ &nbsp;&nbsp;&nbsp;  0630-chenpokong.m4a &nbsp;&nbsp;&nbsp;  26.3MB
+
+下载 : https://bit.ly/3gbCATI
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><b>2020.06.29 新闻评论下载 (下载的有效期3天)</b></div><p>
 
 🔥<b>【新聞拍案驚奇 大宇】</b>温家宝现身地质科系题词“精诚致远”；世卫：二次疫情或亡百万；传北京确诊两万五、死两千；新发地还在传染，假阴性频发；宜昌水灾，三峡泄洪助攻；国安法7月实施？港人吁7.1塞爆港岛
@@ -342,18 +364,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.06.23 新闻评论下载 (下载的有效期3天)</b></div><p>
 
-印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp; 0623-dcm.mp4 &nbsp;&nbsp;&nbsp; 14.7MB
-
-下载 : https://bit.ly/2Vawqv8
-
-<hr>
-
 <div align="center"><img src="/sp-img/0623-tlsf.jpg" width=450></div>
 
 🔥<b>【天亮时分】</b>📣直播:与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）📣&nbsp;&nbsp;&nbsp;
 0623-tlsf.mp4+m4a &nbsp;&nbsp;&nbsp; (221MB)
-
-下载 : https://bit.ly/3fQYoUq
 
 🎯免翻墙1: https://is.gd/G8srgK
 
@@ -365,15 +379,9 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 🔥<b>【世界的十字路口 唐浩】</b>大洪水猛扑鱼米之乡，中国粮食告急；沉睡50万年，东北火山苏醒充电；“超限战”是什么？ &nbsp;&nbsp;&nbsp; 0623-crossroads.mp4 &nbsp;&nbsp;&nbsp; 27MB
 
-下载 : https://bit.ly/3hSYsVz
-
 🎯免翻墙1: https://is.gd/WwEjlo
 
 🎯免翻墙2: https://is.gd/vnzQ6r
-
-🔥<b>【热点互动】</b> 📣专访王维洛：三峡大坝出事的风险有多高？导致溃坝3大因素，三峡大坝基本占全！大坝几无防洪功能：保重庆还是保武汉？民众如何自保 &nbsp;&nbsp;&nbsp; 0623-rdhd.m4a &nbsp;&nbsp;&nbsp; 41.5MB 📣
-
-下载 : https://bit.ly/2CoCBVN
 
 <hr>
 
@@ -455,10 +463,6 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
 <div align="center">2020.06.20 新闻评论下载 (下载的有效期3天)</div><p>
-
-🔥<b>【世事关心】</b>�大瘟疫中 中国人面临哪些身份危机？� 0620-ssgx.mp4  (37.8MB)
-
-下载 : https://bit.ly/2BDdsX6
 
 🔥<b>【新闻拍案惊奇 大宇】</b>战时三峡是“巨型水炮”，中国四成大坝危险！北京万人排长龙检疫，压垮医院出人命，地坛添床上千；运动式防疫是政治秀？会白开！蓬佩奥：中共没改；川普再喊决裂；郝海东受访：亲历反送中
 
