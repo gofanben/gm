@@ -57,7 +57,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
 
 ▲翻墙软件下载：<br>
-神州明见网页版(苹果手機)	https://bit.ly/388oP5w
+神州明见网页版(苹果手機)	https://bit.ly/388oP5w<br>
 自由门安卓版4.2	https://bit.ly/2NuMyDt<br>
 无界 安卓版 4.8	https://bit.ly/2BaL1Qt<br>
 环门 安卓版 036	https://bit.ly/2A8LcLI<br>
@@ -74,6 +74,10 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><b>2020.06.30 新闻评论下载 (下载的有效期3天)</b></div><p>
+
+🔥<b>【新聞拍案驚奇 大宇】</b>1500个西湖倾泻而下！三峡被曝大举泄洪，还有十天雨；预备役和武警尽入手，中央军委备战？抗议国安法，50港人遭围捕；人大代表申纪兰染疫死？赵乐际仍“失踪”；陈茂波称不怕制裁
+
+🎯免翻牆1: https://is.gd/GZ6TPk
 
 【今日点击】全球染疫超千万 高危人群从老人转向年轻人 &nbsp;&nbsp;&nbsp;  0630-jrdj.mp3 &nbsp;&nbsp;&nbsp;  11.3MB
 
