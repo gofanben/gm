@@ -1,5 +1,6 @@
 <div align="center"><img src="/wyyzg-img/20200630.jpg" width=800></div>
-<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回上頁</h6></a></div>
+<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg.md">回首頁</h6></a></div>
+<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md">回上頁</h6></a></div>
 
 <a href =#70>【瘟疫与中共】维州被红色资本渗透（2）</a><p>
 <a href =#69>【瘟疫与中共】孔子学院使德国蒙难 (2)</a><p>
