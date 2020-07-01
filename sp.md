@@ -75,6 +75,8 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><b>2020.07.01 新闻评论</b></div><p>
 
+每日最新视频、评论
+
 http://61.228.185.107/300
 
 http://61.228.216.147/300
