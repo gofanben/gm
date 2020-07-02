@@ -73,23 +73,29 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><b>2020.07.01 新闻评论</b></div><p>
+<div align="center"><b>2020.07.02 新闻评论</b></div><p>
 
 ⭕️每日最新视频、评论
+http://61.228.185.183/300
 
-http://61.228.185.107/300
+http://61.228.186.25/300
 
-http://61.228.216.147/300
-
-http://61.228.189.30/300
+http://61.228.190.232/300
 
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
-<hr>
+🔥<b>【世界的十字路口 唐浩】</b>港区国安法出炉，刑罚空前严厉，世界都遭殃；你还能去香港吗？北京为何急推？（2020.7.1）
 
-<hr>
+🎯免翻牆1: https://is.gd/CRS5Xc
+
+🎯免翻牆2: https://is.gd/q8ClTL
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.07.01 新闻评论</b></div><p>
+
 🔥<b>【新闻看点 李沐阳】</b>新型病毒可猪🐷传人？美国强力制裁，限制党官签证！港版国安法通过，美国撤销香港特殊地位；中共狙击手制造恐惧，港人继续七一游行；十里路不换肩，为何中共“硬扛”制裁推恶法？
 
 🎯免翻牆1: https://is.gd/8Olb56
