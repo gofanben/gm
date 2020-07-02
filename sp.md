@@ -1,10 +1,6 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
 
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表是需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
 </p>
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
@@ -13,7 +9,7 @@
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
-【下载】(7月2日前有效) : https://bit.ly/3ewvWHp
+【下载】(7月9日前有效) : https://bit.ly/3il4YVx
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
 Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
@@ -52,9 +48,9 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
-安卓手机谷歌chrome浏览器 (6月29日前有效)   https://bit.ly/2V5crxI
+安卓手机谷歌chrome浏览器 (7月9日前有效)   https://bit.ly/2VD605g
 
-安卓手机火狐浏览器  (6月29日前有效)  https://bit.ly/3dlNu7C
+安卓手机火狐浏览器  (7月9日前有效)  https://bit.ly/3goRLcB
 
 ▲翻墙软件下载：<br>
 神州明见网页版(苹果手機)	https://bit.ly/388oP5w<br>
