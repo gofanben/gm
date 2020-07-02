@@ -16,8 +16,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center">预言破解</div><p>
+🔥<b>【脑洞VS黑洞12】</b>科学何时能让人类走出瘟疫？
 
+【MP4，29.9MB】(7月9日前有效)  : https://bit.ly/2YRbXOh
+
+<hr>
 🔥<b>【脑洞VS黑洞11】</b>尚未实现的2020年预言（一）
 
 【MP4+MP3下载，142MB】(7月3日前有效)  : https://bit.ly/3eL7Tob
@@ -26,7 +29,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）
 
-【MP4+MP3下载，142MB】(6月30日前有效)  : https://bit.ly/2NsEa7j
+【MP4，118.3MB】(7月9日前有效)  : https://bit.ly/3eUwirr
 
 <hr>
 
