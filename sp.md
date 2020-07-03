@@ -101,7 +101,7 @@ http://61.228.211.59/300
 <hr>
 🔥<b>【天亮时分(政论天下第191集 20200702)】</b>国安恶法只能“选择性执法”,选谁才是问题;中共会在香港封网吗?若"香港自治法"这一条款发威,习近平也跑不了
 
-<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884985.md#1">文字</a>
+<div align="center"><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884985.md#1">💎阅读文字</a></div>
 
 🎯免翻牆1: https://is.gd/aNHonO
 
@@ -110,14 +110,14 @@ http://61.228.211.59/300
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>中国连续3场地震，威胁三峡！新洪水将至；铜锣湾又离奇坠楼；少女举白纸抗议；黄之锋留香港，坦言有恐惧；刀刺警察男飞机上被抓，亲人举报！广西蝗灾，满地满身；中共突禁活摘未成年
 
-<a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229356.md#1">文字</a>
+<div align="center"><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229356.md#1">💎阅读文字</a></div>
 
 🎯免翻牆1: https://is.gd/gyhuso
 
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>港府新规惊人“光复香港”涉颠覆；邓小平涉嫌煽动，习近平会送他入狱吗？国安恶法管辖“地球人”，班农蓬佩奥都危险了！中共承认活滴，欲盖弥彰却泄底！重庆4楼以下被淹，贵州地震前有异响
 
-<a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1">文字</a>
+<div align="center"><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1">💎阅读文字</a></div>
 
 🎯免翻牆1: https://is.gd/f9e8VT
 
