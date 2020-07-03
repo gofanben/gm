@@ -8,7 +8,7 @@
 <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
 
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</a></h3></div>
-<div align="center"><h6><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md"><b>病毒针对共产党而来</b></a></h6></div>
+<div align="center"><h4><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md"><b>病毒针对共产党而来</b></a></h4></div>
 
 <h1 align="center">🔥<b>全球退党中心倡议：解体中共 远离瘟疫</b></h1>
 <div align="center"><img src="/wyyzg-img/Screen-Shot-2020-06-26-at-3.35.45-PM-600x400.png" width=600></div>
