@@ -16,6 +16,11 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+武汉肺炎到底从什么时候开始流行？
+
+【MP4，22.2MB】(7月9日前有效)  : https://bit.ly/2ZueEUT
+
+<hr>
 🔥<b>【脑洞VS黑洞12】</b>科学何时能让人类走出瘟疫？
 
 【MP4，29.9MB】(7月9日前有效)  : https://bit.ly/2YRbXOh
@@ -72,7 +77,7 @@ Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><b>2020.07.02 新闻评论</b></div><p>
+<div align="center"><b>2020.07.03 新闻评论</b></div><p>
 
 ⭕️每日最新视频、评论
 
@@ -85,6 +90,20 @@ http://61.228.211.59/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+🔥<b>【新闻看点 李沐阳】</b>港府新规惊人“光复香港”涉颠覆；邓小平涉嫌煽动，习近平会送他入狱吗？国安恶法管辖“地球人”，班农蓬佩奥都危险了！中共承认活滴，欲盖弥彰却泄底！重庆4楼以下被淹，贵州地震前有异响
+
+🎯免翻牆1: https://is.gd/f9e8VT
+
+🔥<b>【文昭谈古论今20200701第779期】</b>反攻《国安法》集结号吹响；习近平“一球一制”震古铄今！数万港人七一上街
+
+🎯免翻牆1: https://is.gd/nPOjsA
+
+🎯免翻牆2: https://is.gd/sQMkKh
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.07.02 新闻评论</b></div><p>
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>7.1枪声大作，水炮催泪5千警上街，勇武派伞阵石砖掩护，和理非高呼光复，香港百万游行全记录！国安法下，警察怀疑就拘，西人也抓；英美接纳，至少300万港人有去处；新歌《为香港》
