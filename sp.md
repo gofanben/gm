@@ -353,10 +353,6 @@ http://61.228.211.59/300
 
 <div align="center"><b>2020.06.25 新闻评论下载 (下载的有效期3天)</b></div><p>
 
-🔥<b>【世界的十字路口 唐浩】</b>习近平等人行踪怪异，有人染疫？美中开战机率有多高？美国反击大外宣，中共为何跳脚？
-
-下载 : https://bit.ly/3i0g56c
-
 🔥<b>【江峰漫谈20200625第194期】</b>“星链上网，全家下岗”从中共恐惧看马斯克星链计划推翻防火墙就在眼前；北京疫情的三文鱼经验：美国大豆即将带毒？
 
 🎯免翻牆1:  https://is.gd/fuHRTv
@@ -371,58 +367,20 @@ http://61.228.211.59/300
 
 🎯免翻牆1: https://is.gd/3DGwxg
 
-🔥<b>【陈破空纵论天下】</b>北京大疫，习近平躲起來！301医院异常通告。高层集体消失。用伏击对谈判，脑壳停留在满清时代
-
-下载 : https://bit.ly/2ZayzIk
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-<div align="center"><b>2020.06.24 新闻评论下载 (下载的有效期3天)</b></div><p>
-
-<div align="center"><img src="/sp-img/0624-xwpngq.jpg" width=450></div>
-
-
-<div align="center"><img src="/sp-img/0624-tjyj.jpg" width=450></div>
-
-🔥<b>【唐靖远快评】</b>四处点火，中共想干什么？中共所有系统都在按照一个战略行事；习近平对“危机”只看懂一半 &nbsp;&nbsp;&nbsp; 0624-tjy.m4a &nbsp;&nbsp;&nbsp; 21.2MB
-
-下载 : https://bit.ly/3dtARr9
-
 <hr>
 
 <div align="center"><img src="/sp-img/0624-tlsf.jpg" width=450></div>
 
 🔥<b>【天亮时分】</b>七常委行踪异常,也说“习帝下台不是梦”;三峡大坝还能撑多久?香港国安法将于6月30日通过(政论天下第186集 20200623)天亮时分 &nbsp;&nbsp;&nbsp; 0624-tlsf.m4a &nbsp;&nbsp;&nbsp; 22.9MB
 
-下载 :https://bit.ly/2CuFpAM
-<hr>
+🎯免翻墙1: https://is.gd/rhYRQr
 
-🔥<b>【江峰漫谈20200624第193期】</b>乱世之作——博尔顿新书揭“川普与习近平交易，称习为300年中国伟大领袖？轻视抛弃台湾香港？” ：真伪之争之我见 &nbsp;&nbsp;&nbsp; 0624-jfmt.m4a &nbsp;&nbsp;&nbsp; 27.8MB
-
-下载 :https://bit.ly/2NoLSPV
+🎯免翻墙2: https://is.gd/jckyAh
 
 <hr>
-
-【中国禁闻6月23日完整版】四川突发洪水预警 三峡大坝上游更危险；北京疫情继续延烧 中共高层行踪诡异；揭秘中共酷刑系列之一：掐刑。 &nbsp;&nbsp;&nbsp; 0624_ckjw.mp3 &nbsp;&nbsp;&nbsp; 22.9MB
-
-下载 : https://bit.ly/3fPAIzZ
-
-<hr>
-
-🔥<b>【今日点击】</b>美勒令凤凰卫视旗下电视台 48小时内停播 &nbsp;&nbsp;&nbsp; 0624-1-jrdj.mp3 &nbsp;&nbsp;&nbsp; 11.3MB
-🔥<b>【今日点击】</b>疫情未过又来水灾 习李哪去了？ &nbsp;&nbsp;&nbsp; 0624-2-jrdj.mp3 &nbsp;&nbsp;&nbsp;  11.1MB
-
-下载 : https://bit.ly/3fSRe24
-
-<hr>
-
 🔥<b>【新闻看点 李沐阳】</b>七常委集体消失，北京上演空城计？北京病毒传染力爆增9倍；成都沈阳震天诡异巨响，居民吓呆，热搜招封杀！中共欧盟各说各话，谈不拢；重庆发布“红色预警”，紧急疏散10万人
 
-🎯免翻墙1: https://is.gd/GuM5qo
-
-🎯免翻牆2: https://bit.ly/nowall0623
-
-<hr>
+🎯免翻牆1: https://bit.ly/nowall0623
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
