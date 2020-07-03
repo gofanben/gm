@@ -62,16 +62,16 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 
 ▲翻墙软件下载：<br>
 神州明见网页版(苹果手機)	https://bit.ly/388oP5w<br>
-自由门安卓版4.2	https://bit.ly/2NuMyDt<br>
-无界 安卓版 4.8	https://bit.ly/2BaL1Qt<br>
-环门 安卓版 036	https://bit.ly/2A8LcLI<br>
-希望之声手机App	https://bit.ly/2BeAnrM<br>
-Skype 安卓版 8.61	https://bit.ly/382lbKl<br>
-------------------------	<br>
-自由门电脑版 7.86 （6月26日)	https://bit.ly/3eENaSY<br>
-无界 电脑版 19.02	https://bit.ly/3dGPJ5T<br>
-爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/3fX0dzo<br>
-Skype 电脑版 最新	https://bit.ly/2NI0KcB<br>
+自由门安卓版4.2	https://bit.ly/2C0kvJK<br>
+无界 安卓版 4.8	https://bit.ly/31GuBKj<br>
+环门 安卓版 036	https://bit.ly/2BoCf1y<br>
+希望之声手机App	https://bit.ly/2BYCMac<br>
+Skype 安卓版 8.61	https://bit.ly/38mZBAx<p>
+	
+自由门电脑版 7.86 （6月26日)	https://bit.ly/3gkIKAZ<br>
+无界 电脑版 19.02	https://bit.ly/38m9RsK<br>
+爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2Ap5BMw<br>
+Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 ▲翻墙软件下载：https://github.com/fanqiangla/1<br>
 ▲自由上网方法：https://git.io/v9999
 
