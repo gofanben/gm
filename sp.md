@@ -9,6 +9,8 @@
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
+🔸免翻墙版：https://jinpian.org/dfdz/25788
+
 【下载】(7月9日前有效) : https://bit.ly/3il4YVx
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
@@ -77,7 +79,7 @@ Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><b>2020.07.03 新闻评论</b></div><p>
+<div align="center"><b>2020.07.04 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -93,7 +95,23 @@ http://61.228.221.60/310
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+
+🔥<b>【新闻看点 李沐阳】</b>大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄；习近平习仲勋父子大不同；留学生发推文，公安带走国内家人！香港“过火”超文革，“良知”犯忌讳；洪水从三楼倾泄，水患又加重？<p>
+
+🎯免翻牆1: https://is.gd/O1IUeF
+
 <hr>
+🔥<b>【文昭谈古论今20200703第780期】</b>贵州“龙吟”是鸟叫或强震前兆？长江上游一日三震！首任驻港国安署长是他，让人跌破眼镜<p>
+
+🎯免翻牆1: https://is.gd/PLDgGp
+
+🎯免翻牆2: https://is.gd/ZG0E8E
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><b>2020.07.03 新闻评论</b></div><p>
+
+
 🔥<b>【世界的十字路口 唐浩】</b>港区国安法，藏全球超限战；又见活扌商器官，北京宫斗火热？小心中共逼你当间谍（2020.7.3）</p>
 
 🎯免翻牆1: https://is.gd/3uiN9O
