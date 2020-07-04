@@ -9,7 +9,7 @@
 <div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
-🔸免翻墙版：https://jinpian.org/dfdz/25788
+🎯免翻墙版：https://jinpian.org/dfdz/25788
 
 【下载】(7月9日前有效) : https://bit.ly/3il4YVx
 
