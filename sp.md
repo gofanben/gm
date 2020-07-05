@@ -89,22 +89,24 @@ Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 ▲自由上网方法：https://git.io/v9999
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.05 新闻评论</b></div><p>
+<div align="center"><b>2020.07.06 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
 ⭕️每日最新视频、评论
 
-http://61.228.191.30/300
+http://61.228.210.30/300
 
-http://61.228.186.80/300
+http://61.228.187.152/300
 
-http://61.228.183.143/300
+http://61.228.221.135/300
 
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.05 新闻评论</b></div><p>
 
 🔥<b>【时事小品】</b>港版国安法志在全球，全球看国安法就是个球
 
