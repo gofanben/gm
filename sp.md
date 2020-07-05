@@ -83,8 +83,7 @@ Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 ▲自由上网方法：https://git.io/v9999
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-
+<div align="center"><b>2020.07.05 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -100,10 +99,12 @@ http://61.228.183.143/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+<hr>
 【李沐阳 中文配音版】《 深度报导：隐形之战，中共的战书》中共钜资展开大外宣，喉舌国际扩张争夺话语权；独裁极权无神论，对美国展开意识形态战<p>
 
 🎯免翻牆1:https://is.gd/fp3pZo
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.04 新闻评论</b></div><p>
 
 🔥<b>【世界的十字路口 唐浩】</b>反制中共党媒渗透，台湾下驱逐令；香港国安委成立，谁是太上皇？透视共产党：中共四大话术<p>
