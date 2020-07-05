@@ -11,6 +11,11 @@
 
 🎯免翻墙版：https://jinpian.org/dfdz/25788
 
+🎯免翻墙1: https://is.gd/xEvSOz<br>
+🎯免翻墙2: https://is.gd/FfRjZR<br>
+🎯免翻墙3: https://is.gd/6F88oK<br>
+🎯免翻墙4: https://is.gd/A9SAe2<br>
+
 【下载】(7月9日前有效) : https://bit.ly/3il4YVx
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
@@ -79,7 +84,7 @@ Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><b>2020.07.04 新闻评论</b></div><p>
+
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -94,6 +99,12 @@ http://61.228.183.143/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+【李沐阳 中文配音版】《 深度报导：隐形之战，中共的战书》中共钜资展开大外宣，喉舌国际扩张争夺话语权；独裁极权无神论，对美国展开意识形态战<p>
+
+🎯免翻牆1:https://is.gd/fp3pZo
+
+<div align="center"><b>2020.07.04 新闻评论</b></div><p>
 
 🔥<b>【世界的十字路口 唐浩】</b>反制中共党媒渗透，台湾下驱逐令；香港国安委成立，谁是太上皇？透视共产党：中共四大话术<p>
 
