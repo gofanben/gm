@@ -2,6 +2,12 @@
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
 
 </p>
+<div align="center"><h3><b>纪录片【世纪之掩盖】</b></h3></div>
+<div align="center"><img src="/sp-img/0705-ssgx-sgyg.jpg" width=600></div>
+
+【下载】(7月12日前有效) : https://bit.ly/2C4qQUo
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
 
