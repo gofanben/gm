@@ -100,9 +100,16 @@ http://61.228.183.143/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【天亮时分(政论天下第192集 20200704)】</b>“美国反共不反华,这国反华不反共”;美国面临的困境与挑战<p>
+
+🎯免翻牆1: https://is.gd/QGhvvv
+
+🎯免翻牆2: https://is.gd/Puav4R
+
+<hr>
 【李沐阳 中文配音版】《 深度报导：隐形之战，中共的战书》中共钜资展开大外宣，喉舌国际扩张争夺话语权；独裁极权无神论，对美国展开意识形态战<p>
 
-🎯免翻牆1:https://is.gd/fp3pZo
+🎯免翻牆1: https://is.gd/fp3pZo
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.04 新闻评论</b></div><p>
