@@ -5,7 +5,9 @@
 <div align="center"><h3><b>纪录片【世纪之掩盖】</b></h3></div>
 <div align="center"><img src="/sp-img/0705-ssgx-sgyg.jpg" width=600></div>
 
-【下载】(7月12日前有效) : https://bit.ly/2C4qQUo
+巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？feat.&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
+
+🎯免翻墙：https://is.gd/WFXfjO<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -22,44 +24,19 @@
 🎯免翻墙3: https://is.gd/6F88oK<br>
 🎯免翻墙4: https://is.gd/A9SAe2<br>
 
-【下载】(7月9日前有效) : https://bit.ly/3il4YVx
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。<br>
-Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent feat.
+Based on true events, a maliciously planned fire, sets off a national movement, a group of ordinary individuals, accomplish a magnificent <p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-武汉肺炎到底从什么时候开始流行？
+<div align="center"><img src="/sp-img/0708-xyrs.jpg" width=600></div>
 
-【MP4，22.2MB】(7月9日前有效)  : https://bit.ly/2ZueEUT
+🔥<b>【细语人生】新的人生在兑现（第三集更新版）🔥<b>：今天发生的波及全世界汹涌澎湃的退党大潮，是一个历史上许多先圣在几百年甚至几千年前就有预言的事情，而且这是一件与每个人都有关联的事情。如圣经里说的最后的大审判，你的如何表态，是能否通过大审判的关键…..&nbsp;&nbsp;&nbsp;https://youtu.be/JZVoS8oqhOk<p>
 
-<hr>
-🔥<b>【脑洞VS黑洞12】</b>科学何时能让人类走出瘟疫？
+🎯免翻墙：https://is.gd/8IHp8H
 
-【MP4，29.9MB】(7月9日前有效)  : https://bit.ly/2YRbXOh
-
-<hr>
-🔥<b>【脑洞VS黑洞11】</b>尚未实现的2020年预言（一）
-
-【MP4+MP3下载，142MB】(7月3日前有效)  : https://bit.ly/3eL7Tob
-
-<hr>
-
-🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）
-
-【MP4，118.3MB】(7月9日前有效)  : https://bit.ly/3eUwirr
-
-<hr>
-
-🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黄小坤喊话的背后是.... 2020预言兑现中<br>
-🔥🈲<b>【脑洞vs黑洞08】</b>第二波疫情提前爆发？中南海变疫区？2020预言兑现中<br>
-🔥🈲<b>【脑洞vs黑洞03】</b>预言示警：大灾难伴随政局变迁，灾难中什么人能留下来？如何抉择？怎样选边站？<br>
-🔥🈲<b>【脑洞VS黑洞02】</b>2020年 赊刀人再现 惊悚预言 正在兑现 寥寥几句 细思极恐  <br>
-🔥🈲<b>【脑洞vs黑洞01】 </b>预言铁口 句句惊心 2020 下半年是否更可怕？疫情是否有第二波？ 战乱、饥荒、人民留一半？！<br>
-
-【MP4下载，121MB】(7月6日前有效)  : https://bit.ly/3eGfRyQ
-
-【M4a下载， 65.6MB】(7月6日前有效)   : https://bit.ly/2Nzrmw6
+🎯免翻墙：https://is.gd/H6shWt
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
@@ -68,25 +45,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 ❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
 
 ❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
-
-安卓手机谷歌chrome浏览器 (7月9日前有效)   https://bit.ly/2VD605g
-
-安卓手机火狐浏览器  (7月9日前有效)  https://bit.ly/3goRLcB
-
-▲翻墙软件下载：<br>
-神州明见网页版(苹果手機)	https://bit.ly/388oP5w<br>
-自由门安卓版4.2	https://bit.ly/2C0kvJK<br>
-无界 安卓版 4.8	https://bit.ly/31GuBKj<br>
-环门 安卓版 036	https://bit.ly/2BoCf1y<br>
-希望之声手机App	https://bit.ly/2BYCMac<br>
-Skype 安卓版 8.61	https://bit.ly/38mZBAx<p>
-	
-自由门电脑版 7.86 （6月26日)	https://bit.ly/3gkIKAZ<br>
-无界 电脑版 19.02	https://bit.ly/38m9RsK<br>
-爱博电视PC版 (Ver.12 build 0944C)	https://bit.ly/2Ap5BMw<br>
-Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
-▲翻墙软件下载：https://github.com/fanqiangla/1<br>
-▲自由上网方法：https://git.io/v9999
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.08 新闻评论</b></div><p>
