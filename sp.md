@@ -8,6 +8,7 @@
 巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？feat.&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
 
 🎯免翻墙：https://is.gd/WFXfjO<br>
+🎯免翻墙：https://is.gd/gib0Em
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -39,12 +40,6 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 🎯免翻墙：https://is.gd/H6shWt
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-❗<b>请使用火狐，google(chrome)海外浏览器。</b>❗如果chrome没有显示下载档案，表示需要更新chrome。
-
-❗<b>电脑上如果安装了360杀毒软件，请卸掉，它们是配合封锁网址的</b>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.08 新闻评论</b></div><p>
