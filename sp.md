@@ -89,7 +89,7 @@ Skype 电脑版 最新Skype-8.61.0.87	https://bit.ly/2D4MwAm<br>
 ▲自由上网方法：https://git.io/v9999
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.07 新闻评论</b></div><p>
+<div align="center"><b>2020.07.08 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -105,7 +105,15 @@ http://61.228.217.89/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
-<hr>
+🔥<b>【陈破空纵论天下】</b>贵州有戏，李克强智斗习近平！印度大军压境，共军打不赢就跑。因许教授而来的段子&nbsp;&nbsp;&nbsp;https://youtu.be/PS0xdkUgp8c
+
+🎯免翻墙1: https://is.gd/5NNr45
+
+🎯免翻墙2: https://is.gd/NUmkOR
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.07 新闻评论</b></div><p>
+
 <div align="center"><img src="/sp-img/0707-44.jpg" width=600></div><p>
 
 不为正义站岗 就为邪恶陪葬——认清漠视的代价 | 第一集：从电影《车四十四》说起<p>
