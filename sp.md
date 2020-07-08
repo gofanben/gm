@@ -106,7 +106,56 @@ http://61.228.217.89/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
-🔥<b>【陈破空纵论天下】</b>贵州有戏，李克强智斗习近平！印度大军压境，共军打不赢就跑。因许教授而来的段子&nbsp;&nbsp;&nbsp;https://youtu.be/PS0xdkUgp8c
+🔥<b>【新聞拍案驚奇 大宇】</b>上海变海上；新安江坝七孔泄洪奇观！贵州公车坠水库悲剧；美中南海对弈备战热身？港国安法碰壁，推特等拒交用户资料；美国拟禁抖音；陆内循环经济自救；中共六准备：粮食危机、病毒长存&nbsp;&nbsp;&nbsp;https://youtu.be/TmlTYpZO3vg<p>
+
+🎯免翻墙：https://is.gd/pYzr8X
+
+🎯免翻墙：https://is.gd/Za647U
+
+<hr>
+🔥<b>【新闻看点 李沐阳】</b>“严厉”鼠疫卷土重来！千万学生高考大规模群聚？仝卓自曝高考舞弊；胡锡进批苟晶炒作，崔永元怒骂“胡叼盘”；WhatsAppTelegram拒与中共合作&nbsp;&nbsp;&nbsp;https://youtu.be/7k2vHHzQfUs<p>
+
+🎯免翻墙：https://is.gd/9PySqq
+
+🎯免翻墙：https://is.gd/66tZUO
+
+<hr>
+🔥<b>【文昭谈古论今20200707第782期】</b>传说的大招真发动，美国要拆“长城防火墙”！国家建墙国家拆、“星链”靠得住？两条战线的“拆墙”之争（文昭谈古论今20200707第782期）&nbsp;&nbsp;&nbsp;https://youtu.be/b0ZtG8tI8Mk<p>
+
+🎯免翻墙：https://is.gd/tQuoCV
+
+🎯免翻墙：https://is.gd/BDelGt
+
+<hr>
+【唐靖远快评】许章润"被嫖娼"原因绝不简单！港版国安法是“反革命罪”的现代版本；习近平“六大准备”指向下一步战略走向&nbsp;&nbsp;&nbsp;https://youtu.be/UN6OAiYVtio<p>
+
+🎯免翻墙：https://is.gd/dPS4Qk
+
+🎯免翻墙：https://is.gd/fn6wlU
+
+<hr>
+🔥<b>【世界的十字路口 唐浩】</b>国安法给港警极端特权，香港大陆化，台湾受威胁；许章润被拘，北京想什么？唐浩草堂：媒体可不可信，怎么看？（2020.7.7）&nbsp;&nbsp;&nbsp;https://youtu.be/Nu1ucrtfkbQ<p>
+
+🎯免翻墙：https://is.gd/gO1TJG
+
+🎯免翻墙：https://is.gd/xibCI9
+
+<hr>
+🔥<b>【薇羽看世间】</b>中共高层最近释放重磅信号，大陆会出现粮荒吗？&nbsp;&nbsp;&nbsp;https://youtu.be/raMwGDYDSIM<p>
+
+🎯免翻墙：https://is.gd/79e3Lg
+
+🎯免翻墙：https://is.gd/xp7pud
+
+<hr>
+🔥<b>【江峰漫谈20200708第199期】</b>国安法细则出台，香港人将面临翻墙；新浪微博退出美国股市、抖音将被禁； 川普反击大外宣乏力，美国政府对付中共防火墙的钱哪儿去了？&nbsp;&nbsp;&nbsp;https://youtu.be/wXhX3JTI5EU<p>
+
+🎯免翻墙：https://is.gd/YRC9sT
+
+🎯免翻墙：https://is.gd/ynCaMp
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>贵州有戏，李克强智斗习近平！印度大军压境，共军打不赢就跑。因许教授而来的段子&nbsp;&nbsp;&nbsp;https://youtu.be/PS0xdkUgp8c<p>
 
 🎯免翻墙1: https://is.gd/5NNr45
 
