@@ -80,6 +80,13 @@ http://61.228.209.166/300
 🎯免翻墙：https://is.gd/eDqT33
 
 <hr>
+【今日点击】川普也违法或入狱？港版国安法荒谬至极&nbsp;&nbsp;&nbsp;https://youtu.be/NLeMP_wNAeQ
+
+🎯免翻墙：https://is.gd/6Ytquc
+
+🎯免翻墙：https://is.gd/2tCfUl
+
+<hr>
 🔥<b>【今日点击】</b>针对中共川普将推出重大措施 习最怕的不是美国&nbsp;&nbsp;&nbsp;https://youtu.be/uKhqja_HXvo<p>
 
 🎯免翻墙：https://is.gd/GxQhXX
