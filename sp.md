@@ -58,7 +58,15 @@ http://61.228.209.166/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
-🔥<b>【今日焦点】</b>三峡泄洪 相当于每天302个西湖 长江中下游损失惨重|千岛湖九孔全开泄洪 |江西40万人受灾 |武汉水位超警戒线|湖南水灾 贵州山体滑坡&nbsp;&nbsp;&nbsp;R70S7phmV64<p>
+<hr>
+🔥<b>【薇羽看世间】</b>【第76期】中共大外宣文件近日在海外媒体曝光，它们是如何操控海外舆情的？&nbsp;&nbsp;&nbsp;https://youtu.be/XtTNE5SMrQo
+
+🎯免翻墙：https://is.gd/pF1c7b
+
+🎯免翻墙：https://is.gd/FzkQCB
+
+<hr>
+🔥<b>【今日焦点】</b>三峡泄洪 相当于每天302个西湖 长江中下游损失惨重|千岛湖九孔全开泄洪 |江西40万人受灾 |武汉水位超警戒线|湖南水灾 贵州山体滑坡&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;https://youtu.be/R70S7phmV64<p>
 
 🎯免翻墙：https://is.gd/LlCyBr
 
