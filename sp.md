@@ -42,7 +42,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.08 新闻评论</b></div><p>
+<div align="center"><b>2020.07.09 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -57,6 +57,16 @@ http://61.228.209.166/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>北京传有大人物躺倒？共谍密集，赵白眼暗示美方揭得不够。美国正式退出世卫，拜登这样表态&nbsp;&nbsp;&nbsp;https://youtu.be/_JwrHClU1Yw<p>
+
+🎯免翻墙：https://is.gd/QLZxmV
+
+🎯免翻墙：https://is.gd/YMsznz
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.08 新闻评论</b></div><p>
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>上海变海上；新安江坝七孔泄洪奇观！贵州公车坠水库悲剧；美中南海对弈备战热身？港国安法碰壁，推特等拒交用户资料；美国拟禁抖音；陆内循环经济自救；中共六准备：粮食危机、病毒长存&nbsp;&nbsp;&nbsp;https://youtu.be/TmlTYpZO3vg<p>
