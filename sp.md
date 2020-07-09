@@ -1,4 +1,5 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
+<a name=top>
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div>
 
 </p>
@@ -59,6 +60,20 @@ http://61.228.209.166/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+三峡仍超限制水位，中国最高楼猛漏水，湖北千坝告危，新安江首次九孔泄洪；习近平今年不敢进军营？中共海外猎狐为打异己；港媒面临恶法大棒；贵州公车案，惠州狼师糟蹋少女，被低调处理&nbsp;&nbsp;&nbsp;https://youtu.be/zhwrtyyYHVU
+
+🎯免翻墙：https://is.gd/iJKCEL
+
+🎯免翻墙：https://is.gd/owoCxr
+
+<hr>
+🔥<b>【热点互动】</b>“回国或自杀”，给在美华人什么警示？美国不再配合中共“猎狐”行动！围堵中共新冷战，美英将再度联手 | 横河 萧恩&nbsp;&nbsp;&nbsp;https://youtu.be/KR48cPDADzE
+
+🎯免翻墙：https://is.gd/a3F1hT
+
+🎯免翻墙：https://is.gd/pkgywr
+
+<hr>
 🔥<b>【天亮时分(政论天下第194集 20200708)】</b>中美信息战已互殴三回合,四大领域中胜负手何在?中共在香港也要建墙!除了拆墙,美国还需要做这件事&nbsp;&nbsp;&nbsp;https://youtu.be/bdtji0VqbKQ
 
 🎯免翻墙：https://is.gd/HDuwFq
@@ -106,6 +121,8 @@ http://61.228.209.166/300
 🎯免翻墙：https://is.gd/QLZxmV
 
 🎯免翻墙：https://is.gd/YMsznz
+
+<a href=#top><h6 align="right">回上方</h6></a>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.08 新闻评论</b></div><p>
