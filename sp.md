@@ -58,6 +58,14 @@ http://61.228.209.166/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+
+<hr>
+🔥<b>【关键时刻】</b>“特大洪灾造成悲剧性后果” 普丁致电慰问习近平曝露中国出事了！？【关键时刻】20200708-1<p>
+
+🎯免翻墙：https://is.gd/775VM9
+
+🎯免翻墙：https://is.gd/eDqT33
+
 <hr>
 🔥<b>【今日点击】</b>针对中共川普将推出重大措施 习最怕的不是美国&nbsp;&nbsp;&nbsp;https://youtu.be/uKhqja_HXvo<p>
 
