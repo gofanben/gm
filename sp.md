@@ -59,10 +59,16 @@ http://61.228.209.166/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+
+🔥<b>【今日点击】</b>针对中共川普将推出重大措施 习最怕的不是美国&nbsp;&nbsp;&nbsp;https://youtu.be/uKhqja_HXvo<p>
+
+🎯免翻墙：https://is.gd/GxQhXX<br>
+🎯免翻墙：https://is.gd/QHOxQb
+
+<hr>
 🔥<b>【陈破空纵论天下】</b>北京传有大人物躺倒？共谍密集，赵白眼暗示美方揭得不够。美国正式退出世卫，拜登这样表态&nbsp;&nbsp;&nbsp;https://youtu.be/_JwrHClU1Yw<p>
 
-🎯免翻墙：https://is.gd/QLZxmV
-
+🎯免翻墙：https://is.gd/QLZxmV<br>
 🎯免翻墙：https://is.gd/YMsznz
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -71,29 +77,26 @@ http://61.228.209.166/300
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>上海变海上；新安江坝七孔泄洪奇观！贵州公车坠水库悲剧；美中南海对弈备战热身？港国安法碰壁，推特等拒交用户资料；美国拟禁抖音；陆内循环经济自救；中共六准备：粮食危机、病毒长存&nbsp;&nbsp;&nbsp;https://youtu.be/TmlTYpZO3vg<p>
 
-🎯免翻墙：https://is.gd/pYzr8X
-
+🎯免翻墙：https://is.gd/pYzr8X<br>
 🎯免翻墙：https://is.gd/Za647U
 
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>“严厉”鼠疫卷土重来！千万学生高考大规模群聚？仝卓自曝高考舞弊；胡锡进批苟晶炒作，崔永元怒骂“胡叼盘”；WhatsAppTelegram拒与中共合作&nbsp;&nbsp;&nbsp;https://youtu.be/7k2vHHzQfUs<p>
 
-🎯免翻墙：https://is.gd/9PySqq
-
+🎯免翻墙：https://is.gd/9PySqq<br>
 🎯免翻墙：https://is.gd/66tZUO
 
 <hr>
 🔥<b>【文昭谈古论今20200707第782期】</b>传说的大招真发动，美国要拆“长城防火墙”！国家建墙国家拆、“星链”靠得住？两条战线的“拆墙”之争（文昭谈古论今20200707第782期）&nbsp;&nbsp;&nbsp;https://youtu.be/b0ZtG8tI8Mk<p>
 
-🎯免翻墙：https://is.gd/tQuoCV
-
+🎯免翻墙：https://is.gd/tQuoCV<br>
 🎯免翻墙：https://is.gd/BDelGt
 
 <hr>
 【唐靖远快评】许章润"被嫖娼"原因绝不简单！港版国安法是“反革命罪”的现代版本；习近平“六大准备”指向下一步战略走向&nbsp;&nbsp;&nbsp;https://youtu.be/UN6OAiYVtio<p>
 
 🎯免翻墙：https://is.gd/dPS4Qk
-
+a
 🎯免翻墙：https://is.gd/fn6wlU
 
 <hr>
