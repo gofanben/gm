@@ -59,6 +59,13 @@ http://61.228.209.166/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【天亮时分(政论天下第194集 20200708)】</b>中美信息战已互殴三回合,四大领域中胜负手何在?中共在香港也要建墙!除了拆墙,美国还需要做这件事&nbsp;&nbsp;&nbsp;https://youtu.be/bdtji0VqbKQ
+
+🎯免翻墙：https://is.gd/HDuwFq
+
+🎯免翻墙：https://is.gd/UZnHyV
+
+<hr>
 🔥<b>【薇羽看世间】</b>【第76期】中共大外宣文件近日在海外媒体曝光，它们是如何操控海外舆情的？&nbsp;&nbsp;&nbsp;https://youtu.be/XtTNE5SMrQo
 
 🎯免翻墙：https://is.gd/pF1c7b
@@ -103,7 +110,6 @@ http://61.228.209.166/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.08 新闻评论</b></div><p>
 
-<hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>上海变海上；新安江坝七孔泄洪奇观！贵州公车坠水库悲剧；美中南海对弈备战热身？港国安法碰壁，推特等拒交用户资料；美国拟禁抖音；陆内循环经济自救；中共六准备：粮食危机、病毒长存&nbsp;&nbsp;&nbsp;https://youtu.be/TmlTYpZO3vg<p>
 
 🎯免翻墙：https://is.gd/pYzr8X
