@@ -10,7 +10,7 @@
 
 💎在此，我们推荐有中英文字幕的微电影《危难时刻》，它是为世界上每一位有缘人准备的。<p>
 
-💎当你无助的时候，《危难时刻》这个微电影慷慨给予的是解难保命的钥匙。feat.&nbsp;&nbsp;&nbsp;https://youtu.be/JfBhjBBZWnk<p>
+💎当你无助的时候，《危难时刻》这个微电影慷慨给予的是解难保命的钥匙。&nbsp;&nbsp;&nbsp;https://youtu.be/JfBhjBBZWnk<p>
 
 🎯免翻墙：https://is.gd/ko45Kn
 
@@ -21,7 +21,7 @@
 <div align="center"><h3><b>纪录片【世纪之掩盖】</b></h3></div>
 <div align="center"><img src="/sp-img/0705-ssgx-sgyg.jpg" width=600></div>
 
-巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？feat.&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
+巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
 
 🎯免翻墙：https://is.gd/WFXfjO<br>
 🎯免翻墙：https://is.gd/gib0Em
