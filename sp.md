@@ -43,7 +43,7 @@ Based on true events, a maliciously planned fire, sets off a national movement, 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.09 新闻评论</b></div><p>
+<div align="center"><b>2020.07.10 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -59,7 +59,72 @@ http://61.228.184.181/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+<hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>比洪水强25倍！三峡泄洪堪比变相溃坝，湖北江西堤岸溃口；四川爆竹厂大爆炸；陈秋实解读法制；709五周年，律师医生谈狱中刑；王毅示弱，又跟美国撒娇！传体制内测试个人监控软体&nbsp;&nbsp;&nbsp;https://youtu.be/JIVlwwGVDZ4
+
+🎯免翻墙：https://is.gd/P3sWAV
+
+🎯免翻墙：https://is.gd/Caxx0X
+
+<hr>
+🔥<b>【新闻看点 李沐阳】</b>四川鞭炮厂炸成平地！中共内斗逼宫，政法系统大清门户；习近平遇到威胁？李克强出绝招；川普拟禁抖音，拆除中共防火墙；使用华为禁与美政府交易；许璋润会电视认罪吗？&nbsp;&nbsp;&nbsp;https://youtu.be/QT64tkKrb9o
+
+🎯免翻墙：https://is.gd/Qb8qKh
+
+🎯免翻墙：https://is.gd/aBnkKb
+
+<hr>
+🔥<b>【天亮时分(政论天下第195集 20200709)】</b>美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对&nbsp;&nbsp;&nbsp;https://youtu.be/hOZg-FFzc9M
+
+🎯免翻墙：https://is.gd/QfEAWf
+
+🎯免翻墙：https://is.gd/AqZVKV
+
+<hr>
+🔥<b>【薇羽看世间】</b>【第77期】709律师大抓捕将再现香港？李嘉诚英国建超级避风港？美国连续重拳出击，保护香港人，守护台湾，FBI盯上了中共猎狐行动。&nbsp;&nbsp;&nbsp;https://youtu.be/j5QtTmzAhF0
+
+🎯免翻墙：https://is.gd/3kIxmP
+
+🎯免翻墙：https://is.gd/Rve2BJ
+
+<hr>
+🔥<b>【江峰漫谈20200709第200期】</b>陈全国！迟到的政治局级别制裁，开启系列对中共最高权力的追责，引发中共党内避责混乱潮；习近平建秘密政治机构保身家性命&nbsp;&nbsp;&nbsp;https://youtu.be/MWDsJSqDCs4
+
+🎯免翻墙：https://is.gd/bpmmy4
+
+🎯免翻墙：https://is.gd/iMtMzu
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>党内大清洗！习近平明说清理门户。夺权李克强！王沪宁伪造普京语录。中俄高层互诈秘闻&nbsp;&nbsp;&nbsp;https://youtu.be/Bzo7v5l617w
+
+🎯免翻墙：https://is.gd/9dd28I
+
+🎯免翻墙：https://is.gd/PFoYpg
+
+<hr>
+🔥<b>【今日点击】</b>没事都晃！ 三峡大坝建在中国最强地震带&nbsp;&nbsp;&nbsp;https://youtu.be/Tsenkp95mrM
+
+🎯免翻墙：https://is.gd/4bzfyw
+
+🎯免翻墙：https://is.gd/hdguvv
+
+<hr>
+🔥<b>【今日点击】</b>驻港国安公署正式运作 香港肺炎疫情“第三波爆发”&nbsp;&nbsp;&nbsp;https://youtu.be/S0Wt5nSn77k
+
+🎯免翻墙：https://is.gd/72VnFo
+
+🎯免翻墙：https://is.gd/Big9ra
+
 <a href=#top><h6 align="right">回上方</h6></a>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.09 新闻评论</b></div><p>
+
+🔥<b>【世界的十字路口 唐浩】</b>州巴士冲入水库，报复社会？抖音退出香港，另有猫腻？中共处处严峻，习近平在哪里？&nbsp;&nbsp;&nbsp;https://youtu.be/WrQSmBFqXiU
+
+🎯免翻墙：https://is.gd/IrPdl9
+
+🎯免翻墙：https://is.gd/v1DNZ3
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>三峡仍超限制水位，中国最高楼猛漏水，湖北千坝告危，新安江首次九孔泄洪；习近平今年不敢进军营？中共海外猎狐为打异己；港媒面临恶法大棒；贵州公车案，惠州狼师糟蹋少女，被低调处理&nbsp;&nbsp;&nbsp;https://youtu.be/zhwrtyyYHVU<p>
