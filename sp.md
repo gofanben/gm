@@ -71,57 +71,63 @@ http://61.228.184.181/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+🔥<b>【世界的十字路口 唐浩】</b>【透视共产党合集1】中共如何渗透侵略？如何诡辩卸责？危机脱身四套路；利用国安法，逼人当间谍&nbsp;&nbsp;&nbsp;https://youtu.be/x8egbdOeIiY<p>
+
+🎯免翻墙：https://is.gd/4heoLL
+
+🎯免翻墙：https://is.gd/dJqlY6
+
 <hr>
-🔥<b>【新聞拍案驚奇 大宇】</b>比洪水强25倍！三峡泄洪堪比变相溃坝，湖北江西堤岸溃口；四川爆竹厂大爆炸；陈秋实解读法制；709五周年，律师医生谈狱中刑；王毅示弱，又跟美国撒娇！传体制内测试个人监控软体&nbsp;&nbsp;&nbsp;https://youtu.be/JIVlwwGVDZ4
+🔥<b>【新聞拍案驚奇 大宇】</b>比洪水强25倍！三峡泄洪堪比变相溃坝，湖北江西堤岸溃口；四川爆竹厂大爆炸；陈秋实解读法制；709五周年，律师医生谈狱中刑；王毅示弱，又跟美国撒娇！传体制内测试个人监控软体&nbsp;&nbsp;&nbsp;https://youtu.be/JIVlwwGVDZ4<p>
 
 🎯免翻墙：https://is.gd/P3sWAV
 
 🎯免翻墙：https://is.gd/Caxx0X
 
 <hr>
-🔥<b>【新闻看点 李沐阳】</b>四川鞭炮厂炸成平地！中共内斗逼宫，政法系统大清门户；习近平遇到威胁？李克强出绝招；川普拟禁抖音，拆除中共防火墙；使用华为禁与美政府交易；许璋润会电视认罪吗？&nbsp;&nbsp;&nbsp;https://youtu.be/QT64tkKrb9o
+🔥<b>【新闻看点 李沐阳】</b>四川鞭炮厂炸成平地！中共内斗逼宫，政法系统大清门户；习近平遇到威胁？李克强出绝招；川普拟禁抖音，拆除中共防火墙；使用华为禁与美政府交易；许璋润会电视认罪吗？&nbsp;&nbsp;&nbsp;https://youtu.be/QT64tkKrb9o<p>
 
 🎯免翻墙：https://is.gd/Qb8qKh
 
 🎯免翻墙：https://is.gd/aBnkKb
 
 <hr>
-🔥<b>【天亮时分(政论天下第195集 20200709)】</b>美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对&nbsp;&nbsp;&nbsp;https://youtu.be/hOZg-FFzc9M
+🔥<b>【天亮时分(政论天下第195集 20200709)】</b>美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对&nbsp;&nbsp;&nbsp;https://youtu.be/hOZg-FFzc9M<p>
 
 🎯免翻墙：https://is.gd/QfEAWf
 
 🎯免翻墙：https://is.gd/AqZVKV
 
 <hr>
-🔥<b>【薇羽看世间】</b>【第77期】709律师大抓捕将再现香港？李嘉诚英国建超级避风港？美国连续重拳出击，保护香港人，守护台湾，FBI盯上了中共猎狐行动。&nbsp;&nbsp;&nbsp;https://youtu.be/j5QtTmzAhF0
+🔥<b>【薇羽看世间】</b>【第77期】709律师大抓捕将再现香港？李嘉诚英国建超级避风港？美国连续重拳出击，保护香港人，守护台湾，FBI盯上了中共猎狐行动。&nbsp;&nbsp;&nbsp;https://youtu.be/j5QtTmzAhF0<p>
 
 🎯免翻墙：https://is.gd/3kIxmP
 
 🎯免翻墙：https://is.gd/Rve2BJ
 
 <hr>
-🔥<b>【江峰漫谈20200709第200期】</b>陈全国！迟到的政治局级别制裁，开启系列对中共最高权力的追责，引发中共党内避责混乱潮；习近平建秘密政治机构保身家性命&nbsp;&nbsp;&nbsp;https://youtu.be/MWDsJSqDCs4
+🔥<b>【江峰漫谈20200709第200期】</b>陈全国！迟到的政治局级别制裁，开启系列对中共最高权力的追责，引发中共党内避责混乱潮；习近平建秘密政治机构保身家性命&nbsp;&nbsp;&nbsp;https://youtu.be/MWDsJSqDCs4<p>
 
 🎯免翻墙：https://is.gd/bpmmy4
 
 🎯免翻墙：https://is.gd/iMtMzu
 
 <hr>
-🔥<b>【陈破空纵论天下】</b>党内大清洗！习近平明说清理门户。夺权李克强！王沪宁伪造普京语录。中俄高层互诈秘闻&nbsp;&nbsp;&nbsp;https://youtu.be/Bzo7v5l617w
+🔥<b>【陈破空纵论天下】</b>党内大清洗！习近平明说清理门户。夺权李克强！王沪宁伪造普京语录。中俄高层互诈秘闻&nbsp;&nbsp;&nbsp;https://youtu.be/Bzo7v5l617w<p>
 
 🎯免翻墙：https://is.gd/9dd28I
 
 🎯免翻墙：https://is.gd/PFoYpg
 
 <hr>
-🔥<b>【今日点击】</b>没事都晃！ 三峡大坝建在中国最强地震带&nbsp;&nbsp;&nbsp;https://youtu.be/Tsenkp95mrM
+🔥<b>【今日点击】</b>没事都晃！ 三峡大坝建在中国最强地震带&nbsp;&nbsp;&nbsp;https://youtu.be/Tsenkp95mrM<p>
 
 🎯免翻墙：https://is.gd/4bzfyw
 
 🎯免翻墙：https://is.gd/hdguvv
 
 <hr>
-🔥<b>【今日点击】</b>驻港国安公署正式运作 香港肺炎疫情“第三波爆发”&nbsp;&nbsp;&nbsp;https://youtu.be/S0Wt5nSn77k
+🔥<b>【今日点击】</b>驻港国安公署正式运作 香港肺炎疫情“第三波爆发”&nbsp;&nbsp;&nbsp;https://youtu.be/S0Wt5nSn77k<p>
 
 🎯免翻墙：https://is.gd/72VnFo
 
