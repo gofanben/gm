@@ -52,6 +52,25 @@
 
 🎯免翻墙：https://is.gd/H6shWt
 
+<div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
+諾查丹瑪斯預言聲明：『天滅中共』第一章：紅龍正在被燒著&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
+
+🎯免翻墙：https://is.gd/4c3bax
+
+🎯免翻墙：https://is.gd/Sl6akO
+
+诺查丹玛斯预言声明：‘天灭中共’第二章：下台&nbsp;&nbsp;&nbsp;https://youtu.be/Mp6XgdKuBR4<p>
+
+🎯免翻墙：https://is.gd/yiQZcV
+
+🎯免翻墙：https://is.gd/Owwziy
+
+诺查丹玛斯预言声明：“天灭中共”第三章：瘟疫&nbsp;&nbsp;&nbsp;https://youtu.be/CWtdtqX3amw<p>
+
+🎯免翻墙：https://is.gd/kdiewT
+
+🎯免翻墙：https://is.gd/sv33h8
+
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -70,6 +89,20 @@ http://61.228.222.156/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+<hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>李克强突遭当面上访；全民表态！港初选登场，警察行动诡异；港确诊剧增，中共阴谋？美制裁陈全国；长江倒灌支流，武汉急加高堤防，武夷山猴困水；蝗军侵云南；报告：上亿人面临饿死&nbsp;&nbsp;&nbsp;https://youtu.be/UANdYHqAblc<p>
+
+🎯免翻墙：https://is.gd/fdVW4Z
+
+🎯免翻墙：https://is.gd/Fmi8Is
+
+<hr>
+🔥<b>【江峰漫谈20200710第201期】</b>神秘逃亡吹哨人现身，川普正式退出世卫组织遭围殴，福克斯独家采访播放的背后，竟然有这样的重大安排&nbsp;&nbsp;&nbsp;https://youtu.be/008_t-x5woI<p>
+
+🎯免翻墙：https://is.gd/ZUV0no
+
+🎯免翻墙：https://is.gd/JyH8mI
 
 <hr>
 🔥<b>【中國禁聞】</b>7月10日完整版 🔥 南方洪災 27省3020萬人受災/延安整風重來？中共政法系統「教育整頓」/美制裁4名新疆高官 凍結資產禁止入境/中共侵害美國  FBI每10小時啟動一調查。&nbsp;&nbsp;&nbsp;https://youtu.be/N4gGvHMwnYM<p>
