@@ -90,8 +90,9 @@ http://61.228.222.156/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
-<hr>
-Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
+<div align="center"><img src="/sp-img/0711-limon.jpg" width=600></div>
+
+🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
 
 🎯免翻墙：https://is.gd/wZo5pp
 
