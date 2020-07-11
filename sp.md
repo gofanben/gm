@@ -53,7 +53,7 @@
 🎯免翻墙：https://is.gd/H6shWt
 
 <div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
-諾查丹瑪斯預言聲明：『天滅中共』第一章：紅龍正在被燒著&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
+诺查丹玛斯预言声明：‘天灭中共’第一章：红龙正在被烧着&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
 
 🎯免翻墙：https://is.gd/4c3bax
 
