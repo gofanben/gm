@@ -71,6 +71,44 @@ http://61.228.222.156/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+<hr>
+🔥<b>【天亮时分(政论天下第196集 20200710)】</b>吹哨人现身,多少新冠黑幕将被曝光?习近平的角色更加清晰;世卫组织还有机会挽回声誉吗?&nbsp;&nbsp;&nbsp;https://youtu.be/z--jq14jjBs
+
+🎯免翻墙：https://is.gd/rxvpFw
+
+🎯免翻墙：https://is.gd/NXkMKU
+
+<hr>
+🔥<b>【新闻看点 李沐阳】</b>洪灾41天淹半个中国！美国制裁加码，王毅变脸求和？中共四大银行做最坏打算；刑上政治局委员，七常委仅半步之遥；美对台军售“爱国者”，中共还会硬碰硬？美中关系今结冰，戴旭4呼想不到&nbsp;&nbsp;&nbsp;https://youtu.be/fi3govrSdos
+
+🎯免翻墙：https://is.gd/MUrKSJ
+
+🎯免翻墙：https://is.gd/28jE3L
+
+<hr>
+🔥<b>【今日点击】</b>美国宣布制裁与新疆有关的中共官员和实体&nbsp;&nbsp;&nbsp;https://youtu.be/MkrgcHs8EAI
+
+🎯免翻墙：https://is.gd/c568Un
+
+🎯免翻墙：https://is.gd/Y0Uw29
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>大清洗冒险，习王躲起！美国盯上政治局委员。王毅忽然下软蛋。印度不放手，土共怕怕&nbsp;&nbsp;&nbsp;https://youtu.be/KuzQ0nzqKQE
+
+🎯免翻墙：https://is.gd/brakaH
+
+🎯免翻墙：https://is.gd/aUDbKu
+
+<hr>
+🔥<b>【文昭谈古论今20200710第784期】</b>中共急“清理门户”！美国制裁陈全国的“回旋镖”效应：跨国银行紧急查客户、中美外交或降级，连绵打击才开始&nbsp;&nbsp;&nbsp;https://youtu.be/YRNYxxkVF2Y
+
+🎯免翻墙：https://is.gd/8qchcw
+
+🎯免翻墙：https://is.gd/WO7wS9
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.10 新闻评论</b></div><p>
+
 🔥<b>【世界的十字路口 唐浩】</b>【透视共产党合集1】中共如何渗透侵略？如何诡辩卸责？危机脱身四套路；利用国安法，逼人当间谍&nbsp;&nbsp;&nbsp;https://youtu.be/x8egbdOeIiY<p>
 
 🎯免翻墙：https://is.gd/4heoLL
