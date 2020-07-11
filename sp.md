@@ -72,6 +72,13 @@ http://61.228.222.156/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【中國禁聞】7月10日完整版 】</b> 南方洪災 27省3020萬人受災/延安整風重來？中共政法系統「教育整頓」/美制裁4名新疆高官 凍結資產禁止入境/中共侵害美國  FBI每10小時啟動一調查。&nbsp;&nbsp;&nbsp;https://youtu.be/N4gGvHMwnYM<p>
+
+🎯免翻墙：https://is.gd/PI0U1s
+
+🎯免翻墙：https://is.gd/S13ImX
+
+<hr>
 🔥<b>【天亮时分(政论天下第196集 20200710)】</b>吹哨人现身,多少新冠黑幕将被曝光?习近平的角色更加清晰;世卫组织还有机会挽回声誉吗?&nbsp;&nbsp;&nbsp;https://youtu.be/z--jq14jjBs<p>
 
 🎯免翻墙：https://is.gd/rxvpFw
