@@ -23,7 +23,8 @@
 
 巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
 
-🎯免翻墙：https://is.gd/WFXfjO<br>
+🎯免翻墙：https://is.gd/WFXfjO
+
 🎯免翻墙：https://is.gd/gib0Em
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -83,6 +84,14 @@ http://61.228.183.173/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+<hr>
+<div align="center"><img src="/sp-img/0713-weiyie.jpg." width=600></div>
+🔥<b>【薇羽看世间】</b>【第79期】恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思&nbsp;&nbsp;&nbsp;https://youtu.be/2Q5Cmxa1HLk
+
+🎯免翻墙：https://is.gd/iPozwq
+
+🎯免翻墙：https://is.gd/5oPX6g
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>三峡旁巫山也地震！港大：病毒变强可1传4，若持续，一两周内瘫痪医疗；川普首次公开戴口罩；长江全线超限，江西14处决口，两镇居民已撤离；长江水悬在武汉头顶；港初选58万人投票&nbsp;&nbsp;&nbsp;https://youtu.be/TSpPI8wTWCA<p>
