@@ -3,6 +3,30 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+
+<div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
+
+诺查丹玛斯预言声明：‘天灭中共’第一章：红龙正在被烧着&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
+
+🎯免翻墙：https://is.gd/4c3bax
+
+🎯免翻墙：https://is.gd/Sl6akO
+
+<hr>
+诺查丹玛斯预言声明：‘天灭中共’第二章：下台&nbsp;&nbsp;&nbsp;https://youtu.be/Mp6XgdKuBR4<p>
+
+🎯免翻墙：https://is.gd/yiQZcV
+
+🎯免翻墙：https://is.gd/Owwziy
+
+<hr>
+诺查丹玛斯预言声明：“天灭中共”第三章：瘟疫&nbsp;&nbsp;&nbsp;https://youtu.be/CWtdtqX3amw<p>
+
+🎯免翻墙：https://is.gd/kdiewT
+
+🎯免翻墙：https://is.gd/sv33h8
+
+<hr>
 🔥<b>真相傳媒】</b>武汉肺炎到底从什么时候开始流行？&nbsp;&nbsp;&nbsp;https://youtu.be/N8zDHjYCBV4
 
 🎯免翻墙：https://is.gd/lCvBoO<br>
