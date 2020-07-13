@@ -802,22 +802,4 @@ http://61.228.183.173/300
 🎯免翻墙2: https://is.gd/n8dMpX
 
 
-<div align="center"><img src="/sp-img/0622-swkd.jpg" width=450></div>
-
-
-GitHub下载方式：<br>
-手机：对着挡按名称长按下载连结；或点档案名称，再对着 View raw 长按下载连结<br>
-桌机：点档案，再点 View raw，或对着 View raw 右键另存为..
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-tlsf.mp4"> 0605-tlsf.mp4</a>
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/0605-tlsf.mp3"> 0605-tlsf.mp3</a>
-
-🔥六·四纪录片
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/%E3%80%9064%E9%87%8D%E6%92%AD%E3%80%91%E5%85%AD%C2%B7%E5%9B%9B%E7%B4%80%E9%8C%84%E7%89%87%E3%80%8A%E5%85%AD%E6%9C%88%E7%9A%84%E9%BB%91%E5%A4%9C%E3%80%8B.mp4?raw=true"> 《【64重播】六·四纪录片《六月的黑夜》》.mp4</a>
-
-<a href="https://github.com/gofanben/gm/blob/master/git-download/%E3%80%9064%E9%87%8D%E6%92%AD%E3%80%91%E5%85%AD%C2%B7%E5%9B%9B%E7%B4%80%E9%8C%84%E7%89%87%E3%80%8A%E5%85%AD%E6%9C%88%E7%9A%84%E9%BB%91%E5%A4%9C%E3%80%8B.mp3?raw=true"> 《【64重播】六·四纪录片《六月的黑夜》》.mp3</a>
-
-
 <div align="center"><img src="/sp-img/220.gif" width=880></div><p>
