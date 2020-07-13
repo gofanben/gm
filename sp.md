@@ -85,6 +85,13 @@ http://61.228.183.173/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>三峡旁巫山也地震！港大：病毒变强可1传4，若持续，一两周内瘫痪医疗；川普首次公开戴口罩；长江全线超限，江西14处决口，两镇居民已撤离；长江水悬在武汉头顶；港初选58万人投票&nbsp;&nbsp;&nbsp;https://youtu.be/TSpPI8wTWCA<p>
+
+🎯免翻墙：https://is.gd/Rs9OrW
+
+🎯免翻墙：https://is.gd/6l0Ov7
+
+<hr>
 🔥<b>【热点互动】</b>专访黄观鸿（黄万里长子）：澄清三峡水库一关键问题！黄万里先生对三峡大坝12个预言的传闻是真的吗？哪些因素导致城市被淹？兼谈80年代来美后为何滞留不归 &nbsp;&nbsp;&nbsp;https://youtu.be/xVaGtQT0UTg<p>
 
 🎯免翻墙：https://is.gd/Bokl8a
