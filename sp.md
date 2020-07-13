@@ -32,7 +32,7 @@
 <div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
 
 <div align="center"><img src="/sp-img/14730498588876552608.png" width=600></div>
-<div align="center"><img src="/sp-img/maxresdefault.jpg" width=600></div>
+<div align="center"><img src="/sp-img/FIFTY_MINUTES.jpg" width=600></div>
 <div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
 
 本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。&nbsp;&nbsp;&nbsp;https://youtu.be/ebKBaGf836E<p>
