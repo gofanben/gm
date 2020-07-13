@@ -86,8 +86,8 @@ http://61.228.183.173/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
-<div align="center"><img src="/sp-img/0713-weiyie.jpg." width=600></div>
-🔥<b>【薇羽看世间】</b>【第79期】恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思&nbsp;&nbsp;&nbsp;https://youtu.be/2Q5Cmxa1HLk
+<div align="center"><img src="/sp-img/0713-weiyie.jpg" width=600></div>
+🔥<b>【薇羽看世间】</b>【第79期】恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思&nbsp;&nbsp;&nbsp;https://youtu.be/2Q5Cmxa1HLk<p>
 
 🎯免翻墙：https://is.gd/iPozwq
 
