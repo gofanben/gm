@@ -66,6 +66,14 @@
 
 🎯免翻墙：https://is.gd/H6shWt
 
+<hr>
+<div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
+🔥<b>【真相传媒】</b>不为正义站岗 就为邪恶陪葬——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk
+
+🎯免翻墙：https://is.gd/ivSEq8
+
+🎯免翻墙：https://is.gd/0TYyoA
+
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
