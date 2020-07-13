@@ -44,6 +44,19 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+🔥<b>【脑洞vs黑洞 第14集】</b>2020异象频频 背后预示着什么？ 冰雹预示兵象、战争？7月北京冰雹，地陷；6月北京降病毒状冰雹；5月北京白昼变黑夜。&nbsp;&nbsp;&nbsp;https://youtu.be/0WumB9GRHh8<p>
+
+🎯免翻墙：https://is.gd/sWzBdd
+
+🎯免翻墙：https://is.gd/TjrYrg
+
+<hr>
+【脑洞VS黑洞15】2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？&nbsp;&nbsp;&nbsp;https://youtu.be/9HM_vVI5T0A<p>
+
+🎯免翻墙：https://is.gd/QyNsWT
+
+🎯免翻墙：https://is.gd/YuvnkY
+
 <div align="center"><img src="/sp-img/0708-xyrs.jpg" width=600></div>
 
 🔥<b>【细语人生】新的人生在兑现（第三集更新版）🔥<b>：今天发生的波及全世界汹涌澎湃的退党大潮，是一个历史上许多先圣在几百年甚至几千年前就有预言的事情，而且这是一件与每个人都有关联的事情。如圣经里说的最后的大审判，你的如何表态，是能否通过大审判的关键…..&nbsp;&nbsp;&nbsp;https://youtu.be/JZVoS8oqhOk<p>
@@ -51,25 +64,6 @@
 🎯免翻墙：https://is.gd/8IHp8H
 
 🎯免翻墙：https://is.gd/H6shWt
-
-<div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
-诺查丹玛斯预言声明：‘天灭中共’第一章：红龙正在被烧着&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
-
-🎯免翻墙：https://is.gd/4c3bax
-
-🎯免翻墙：https://is.gd/Sl6akO
-
-诺查丹玛斯预言声明：‘天灭中共’第二章：下台&nbsp;&nbsp;&nbsp;https://youtu.be/Mp6XgdKuBR4<p>
-
-🎯免翻墙：https://is.gd/yiQZcV
-
-🎯免翻墙：https://is.gd/Owwziy
-
-诺查丹玛斯预言声明：“天灭中共”第三章：瘟疫&nbsp;&nbsp;&nbsp;https://youtu.be/CWtdtqX3amw<p>
-
-🎯免翻墙：https://is.gd/kdiewT
-
-🎯免翻墙：https://is.gd/sv33h8
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
@@ -89,6 +83,19 @@ http://61.228.183.173/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+<hr>
+🔥<b>【热点互动】</b>专访黄观鸿（黄万里长子）：澄清三峡水库一关键问题！黄万里先生对三峡大坝12个预言的传闻是真的吗？哪些因素导致城市被淹？兼谈80年代来美后为何滞留不归 &nbsp;&nbsp;&nbsp;https://youtu.be/xVaGtQT0UTg<p>
+
+🎯免翻墙：https://is.gd/Bokl8a
+
+🎯免翻墙：https://is.gd/6fvjH6
+
+【中国禁闻】7月12日完整版 三峡大坝泄洪 长江流域洪水泛滥 鄱阳湖水位破1998年洪灾纪录 /中国病毒学家揭世卫与中共联手掩盖疫情/粮荒危机重重 又现粮库失火。&nbsp;&nbsp;&nbsp;https://youtu.be/rFUqyQOLtI4<p>
+
+🎯免翻墙：https://is.gd/uOLmmv
+
+🎯免翻墙：https://is.gd/yPUzYX
 
 <hr>
 🔥<b>【天亮时分(政论天下第197集 20200712)】</b>美国务院史无前例警告,一连串制裁中共大招即将登场;大洪水后,警惕瘟疫与粮荒&nbsp;&nbsp;&nbsp;https://youtu.be/OM5xG-mochM<p>
