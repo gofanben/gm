@@ -91,6 +91,13 @@ http://61.228.183.173/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【天亮时分(政论天下第197集 20200712)】</b>美国务院史无前例警告,一连串制裁中共大招即将登场;大洪水后,警惕瘟疫与粮荒&nbsp;&nbsp;&nbsp;https://youtu.be/OM5xG-mochM<p>
+
+🎯免翻墙：https://is.gd/Qj9xVY
+
+🎯免翻墙：https://is.gd/EMlskb
+
+<hr>
 🔥<b>【陈破空纵论天下】</b>地震摇撼北京！冲着习近平而来？港人踊跃。德国收捕共谍。耿爽真的爽了&nbsp;&nbsp;&nbsp;https://youtu.be/9Aw6vz5yHv4<p>
 
 🎯免翻墙：https://is.gd/SvVwbl
@@ -99,6 +106,12 @@ http://61.228.183.173/300
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.12 新闻评论</b></div><p>
+
+🔥<b>【新闻看点 李沐阳】</b>香港人无畏打压，6小时近14万投票；美国突警告中共滥捕，意味什么？鄱阳湖将有大洪水？3000吨茶叶被水泡，茶厂老板哭惨！太诡异！北京通报上月疫情；普京三通电话？中印关系紧张！&nbsp;&nbsp;&nbsp;https://youtu.be/uKIZNk-HybY<p>
+
+🎯免翻墙：https://is.gd/mwM4o8
+
+🎯免翻墙：https://is.gd/RqPDXD
 
 <hr>
 🔥<b>【陈破空纵论天下】</b>逃美科学家开口！中国洪水滔天，习近平拼命躲。火箭发射接连失败，原因不能说！美中最后一条纽带将绷断？中印没完又扯上第三国&nbsp;&nbsp;&nbsp;(7.12)">逃美科学家开口！中国洪水滔天，习近平拼命躲。火箭发射接连失败，原因不能说！美中最后一条纽带将绷断？中印没完又扯上第三国&nbsp;&nbsp;&nbsp;https://youtu.be/22vwb4oXTzs<p>
