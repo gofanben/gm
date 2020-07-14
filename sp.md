@@ -23,9 +23,9 @@
 
 巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
 
-🎯免翻墙：https://is.gd/WFXfjO
+🎯免翻墙：https://bit.ly/3jb2d9M
 
-🎯免翻墙：https://is.gd/gib0Em
+🎯免翻墙：https://bit.ly/38Ys2oD
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
