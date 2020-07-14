@@ -3,6 +3,29 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><img src="/sp-img/0707-44.jpg" width=600></div><p>
+不为正义站岗 就为邪恶陪葬——认清漠视的代价 | 第一集：从电影《车四十四》说起&nbsp;&nbsp;&nbsp;https://youtu.be/bcZNqieEFUE<p>
+本集内容摘要：从电影《车四十四》说起，冷漠是否需要付出代价？活摘器官已“深入寻常百姓家”？薄瓜瓜为何说：“要死大家一起死！”<p>
+【不为正义站岗 就为邪恶陪葬——认清漠视的代价】系列影片共六集，敬请继续关注！<p>
+
+🎯免翻墙：https://bit.ly/3fseX9r<p>
+🎯免翻墙：https://bit.ly/32fwjTp
+
+<hr>
+<div align="center"><img src="/sp-img/0705-tlsp.jpg" width=600></div>
+🔥<b>【天亮时分(政论天下第192集 20200704)】</b>“美国反共不反华,这国反华不反共”;美国面临的困境与挑战&nbsp;&nbsp;&nbsp;https://youtu.be/ns_APsah66s<p>
+
+🎯免翻墙：https://bit.ly/2WfVxxh<p>
+
+🎯免翻墙：https://is.gd/Puav4R
+
+<hr>
+<div align="center"><img src="/sp-img/0705-swkd.jpg" width=600></div>
+
+【李沐阳 中文配音版】《 深度报导：隐形之战，中共的战书》中共钜资展开大外宣，喉舌国际扩张争夺话语权；独裁极权无神论，对美国展开意识形态战&nbsp;&nbsp;&nbsp;https://youtu.be/nHDSvGy5aH4<p>
+
+🎯免翻墙：https://bit.ly/3j2gW6Q<p>
+🎯免翻墙：https://bit.ly/2WgYBsS
 
 <div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
 
@@ -27,46 +50,46 @@
 🎯免翻墙：https://is.gd/sv33h8
 
 <hr>
-🔥<b>真相傳媒】</b>武汉肺炎到底从什么时候开始流行？&nbsp;&nbsp;&nbsp;https://youtu.be/N8zDHjYCBV4<p>
+🔥<b>【真相傳媒】</b>武汉肺炎到底从什么时候开始流行？&nbsp;&nbsp;&nbsp;https://youtu.be/N8zDHjYCBV4<p>
 
-🎯免翻墙：https://is.gd/lCvBoO
+🎯免翻墙：https://is.gd/FNUatl
 
-🎯免翻墙：https://is.gd/y8HAWX
+🎯免翻墙：https://is.gd/DglnzG
 
 <hr>
 🔥<b>【脑洞VS黑洞12】</b>科学何时能让人类走出瘟疫？&nbsp;&nbsp;&nbsp;https://youtu.be/3l9EtBiptDY<p>
 
-🎯免翻墙：https://is.gd/OCA97U
+🎯免翻墙：https://is.gd/uS2EFY
 
-🎯免翻墙：https://is.gd/SSKTSW
+🎯免翻墙：https://is.gd/vcfW7q
 
 <hr>
 🔥<b>【脑洞VS黑洞11】</b>尚未实现的2020年预言（一）&nbsp;&nbsp;&nbsp;https://youtu.be/dSFyJvQPKmQ<p>
 
-🎯免翻墙：https://is.gd/5YE1fG
+🎯免翻墙：https://is.gd/pL9tPR
 
-🎯免翻墙：https://is.gd/B2TAyM
+🎯免翻墙：https://is.gd/wEyQNt
 
 <hr>
 🔥🈲<b>【脑洞vs黑洞09】</b>宜昌以下跑！黄小坤喊话的背后是.... 2020预言兑现中&nbsp;&nbsp;&nbsp;https://youtu.be/cVmX1Z0FIIE<p>
 
-🎯免翻墙：https://is.gd/rMMkUp
+🎯免翻墙：https://is.gd/Yamp2Q
 
-🎯免翻墙：https://is.gd/vvrwmA
+🎯免翻墙：https://is.gd/sUSKEC
 
 <hr>
 🔥🈲<b>【脑洞vs黑洞08】</b>第二波疫情提前爆发？中南海变疫区？2020预言兑现中&nbsp;&nbsp;&nbsp;https://youtu.be/4HsjMfTOehU<p>
 
-🎯免翻墙：https://is.gd/1fAo6z
+🎯免翻墙：https://is.gd/6Yfj6y
 
-🎯免翻墙：https://is.gd/dpVQtL
+🎯免翻墙：https://is.gd/P6ALzz
 
 <hr>
 🔥🈲<b>【脑洞vs黑洞03】</b>预言示警：大灾难伴随政局变迁，灾难中什么人能留下来？如何抉择？怎样选边站？&nbsp;&nbsp;&nbsp;https://youtu.be/dl6_iOCNeFk<p>
 
-🎯免翻墙：https://is.gd/f0PY3r
+🎯免翻墙：https://is.gd/z9DprI
 
-🎯免翻墙：https://is.gd/gxYaP6
+🎯免翻墙：https://is.gd/Iooa0V
 
 <hr>
 🔥🈲<b>【脑洞VS黑洞02】</b>2020年 赊刀人再现 惊悚预言 正在兑现 寥寥几句 细思极恐&nbsp;&nbsp;&nbsp;https://youtu.be/wqd270c4c_E<p>
@@ -78,70 +101,70 @@
 <hr>
 🔥🈲<b>【脑洞vs黑洞01】 </b>预言铁口 句句惊心 2020 下半年是否更可怕？疫情是否有第二波？ 战乱、饥荒、人民留一半？！&nbsp;&nbsp;&nbsp;https://youtu.be/xk0s2XTfrVQ<p>
 
-🎯免翻墙：https://is.gd/XBNaQr
+🎯免翻墙：https://is.gd/f2XsHD
 
-🎯免翻墙：https://is.gd/GvMWTM
+🎯免翻墙：https://is.gd/cyUL1m
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 🔥<b>【细语人生】</b>新的人生在兑现（第一集更新版）：目前在世界范围正在发生的退党大潮，这个退党，究竟有什么特殊的历史意义？尤其是在历史进入了二十一世纪，在世界上发生了这样大的事情，他和我们每个人的生活、命运有着怎么样的联系？到底应该如何来看待这件事情？&nbsp;&nbsp;&nbsp;https://youtu.be/tjaHEsshXBI<p>
 
-🎯免翻墙：https://is.gd/oU7y17
+🎯免翻墙：https://is.gd/YBuoAA
 
-🎯免翻墙：https://is.gd/hrBqgd
+🎯免翻墙：https://is.gd/BoIhF2
 
 <hr>
 🔥<b>【细语人生】</b>【细语人生】新的人生在兑现（第二集更新版）&nbsp;&nbsp;&nbsp;https://youtu.be/WJM0EpdqerQ<p>
 
-🎯免翻墙：https://is.gd/OLjB7b
+🎯免翻墙：https://is.gd/b12MCC
 
-🎯免翻墙：https://is.gd/TfN7iv
+🎯免翻墙：https://is.gd/Z5rCVw
 
 <hr>
 🔥<b>【德传媒】</b>印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  &nbsp;&nbsp;&nbsp;https://youtu.be/p7gHtJSwoDM<p>
 
-🎯免翻墙：https://is.gd/YBWr4y
+🎯免翻墙：https://is.gd/orogwd
 
-🎯免翻墙：https://is.gd/lgNYVP
+🎯免翻墙：https://is.gd/yVkJlg
 
 <hr>
 
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）&nbsp;&nbsp;&nbsp;https://youtu.be/0IBIUG9vjYg<p>
 
-🎯免翻墙：https://is.gd/tgDlsw
+🎯免翻墙：https://is.gd/zIOeBq
 
-🎯免翻墙：https://is.gd/HBuYmT
+🎯免翻墙：https://is.gd/I6XJCy
 
 <hr>
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（下集）&nbsp;&nbsp;&nbsp;https://youtu.be/vh1XJMIkN18<p>
 
-🎯免翻墙：https://is.gd/iurXVZ
+🎯免翻墙：https://is.gd/jcXibv
 
-🎯免翻墙：https://is.gd/QQBgyt
+🎯免翻墙：https://is.gd/Ut8W6c
 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-🔥<b>【政论天下第177集 20200604】</b>👉郝海东宣读新中国联邦宣言；香港维园31年不灭的烛光；也说中共还能撑多久?<p>
+🔥<b>【政论天下第177集 20200604】</b>👉郝海东宣读新中国联邦宣言；香港维园31年不灭的烛光；也说中共还能撑多久?&nbsp;&nbsp;&nbsp;https://youtu.be/sAShTkf8JwE<p>
 
-🎯免翻墙：https://is.gd/okhG1X
+🎯免翻墙：https://is.gd/jVOOwV
 
-🎯免翻墙：https://is.gd/QVnHzA
+🎯免翻墙：https://is.gd/PYU8Q3
 
 <hr>
 🔥<b>【世事关心】</b>大瘟疫中 中国人面临哪些身份危机？&nbsp;&nbsp;&nbsp;https://youtu.be/mOk7FPSpvg0<p>
 
-🎯免翻墙：https://is.gd/pCXG0S
+🎯免翻墙：https://is.gd/cXAwYB
 
-🎯免翻墙：https://is.gd/memDHv
+🎯免翻墙：https://is.gd/SWxXZi
 
 <hr>
 
 🔥<b>新唐人电视台</b>袁弓夷：中共氣數已盡 滅共才有出路&nbsp;&nbsp;&nbsp;https://youtu.be/foWy8y3cCms<p>
 
-🎯免翻墙：https://is.gd/GmNc1o
+🎯免翻墙：https://is.gd/FAAAuh
 
-🎯免翻墙：https://is.gd/VzoOIR
+🎯免翻墙：https://is.gd/Mmaw1e
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/AI.jpg" width=600></div>
