@@ -77,7 +77,7 @@
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.13 新闻评论</b></div><p>
+<div align="center"><b>2020.07.14 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -94,12 +94,15 @@ http://61.228.219.187/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.13 新闻评论</b></div><p>
+
 <hr>
-🔥<b>【真相传媒】</b>三峡！三峡！三峡千万不能上！&nbsp;&nbsp;&nbsp;https://youtu.be/aMkjjXHXozk<p>
+🔥<b>【世界的十字路口 唐浩】</b>【一周年QA（下）】国际趋势预测；唐浩如何写诗？美中会否断交？台湾政客谁染红？中国手机=监听器？金正恩生死真相&nbsp;&nbsp;&nbsp;https://youtu.be/nSEojoO8vss<p>
 
-🎯免翻墙：https://is.gd/cebnf5
+https://is.gd/7IAglu
 
-🎯免翻墙：https://is.gd/hQziKj
+https://is.gd/qytXMx
 
 <hr>
 <div align="center"><img src="/sp-img/0713-weiyie.jpg" width=600></div>
@@ -108,6 +111,13 @@ http://61.228.219.187/300
 🎯免翻墙：https://is.gd/iPozwq
 
 🎯免翻墙：https://is.gd/5oPX6g
+
+<hr>
+🔥<b>【真相传媒】</b>三峡！三峡！三峡千万不能上！&nbsp;&nbsp;&nbsp;https://youtu.be/aMkjjXHXozk<p>
+
+🎯免翻墙：https://is.gd/cebnf5
+
+🎯免翻墙：https://is.gd/hQziKj
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>三峡旁巫山也地震！港大：病毒变强可1传4，若持续，一两周内瘫痪医疗；川普首次公开戴口罩；长江全线超限，江西14处决口，两镇居民已撤离；长江水悬在武汉头顶；港初选58万人投票&nbsp;&nbsp;&nbsp;https://youtu.be/TSpPI8wTWCA<p>
