@@ -96,9 +96,20 @@ http://61.228.219.187/300
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>武汉明晨洪峰再袭！马云钜额减持套现，股市行情“看好”？华春莹宣布制裁4美官员；古冶5.1级地震，唐山大地震“余震”？中共脱贫重于防灾？ 60万港人投票创纪录；香港疫情大暴增？&nbsp;&nbsp;&nbsp;https://youtu.be/aIdwF20nJ5Y<p>
 
-🎯免翻墙：https://is.gd/xYDZ8l
-
+🎯免翻墙：https://is.gd/xYDZ8l<p>
 🎯免翻墙：https://is.gd/PVGhtD
+
+
+🔥<b>【7/13/2020 路德时评（路安谈）】</b>：英雄科学家闫丽梦博士在俄文世界；纳瓦罗受透露川普本周将签字香港自治法案以及签署行政命令制裁中共；中共华春莹宣布对美一机构和议员卢比奥、克鲁兹等制裁；&nbsp;&nbsp;&nbsp;https://youtu.be/3iQ69th5FRc
+
+🎯免翻墙：https://is.gd/rjdqzj<p>
+🎯免翻墙：https://is.gd/JBt7vG
+
+🔥<b>【7/12/2020 路德时评（路博艾冠谈）】</b>：闫丽梦博士逃亡路上九死一生的经历；闫博士订票如何逃过中共监控？美国防部长对准中共国南海；&nbsp;&nbsp;&nbsp;https://youtu.be/hNRnff-rvqk<p>
+
+🎯免翻墙：https://is.gd/48PyMH<p>
+🎯免翻墙：https://is.gd/t6qSb4
+
 <hr>
 🔥<b>【思想领袖】</b>台湾国立阳明大学副校长 司徒文：台湾人有骨气，知道谁也靠不住！中共的价值系统与台湾的正统中华文化差异多大；美国应遵循1972年的《台湾关系法》帮助台湾！&nbsp;&nbsp;&nbsp;https://youtu.be/Fn5cgMusWYU<p>
 
