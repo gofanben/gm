@@ -3,6 +3,27 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+🔥<b>【脑洞vs黑洞 第14集】</b>2020异象频频 背后预示着什么？ 冰雹预示兵象、战争？7月北京冰雹，地陷；6月北京降病毒状冰雹；5月北京白昼变黑夜。&nbsp;&nbsp;&nbsp;https://youtu.be/0WumB9GRHh8<p>
+
+🎯免翻墙：https://is.gd/sWzBdd
+
+🎯免翻墙：https://is.gd/TjrYrg
+
+<hr>
+【脑洞VS黑洞15】2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？&nbsp;&nbsp;&nbsp;https://youtu.be/9HM_vVI5T0A<p>
+
+🎯免翻墙：https://is.gd/QyNsWT
+
+🎯免翻墙：https://is.gd/YuvnkY
+
+<div align="center"><img src="/sp-img/0708-xyrs.jpg" width=600></div>
+
+🔥<b>【细语人生】新的人生在兑现（第三集更新版）🔥</b>：今天发生的波及全世界汹涌澎湃的退党大潮，是一个历史上许多先圣在几百年甚至几千年前就有预言的事情，而且这是一件与每个人都有关联的事情。如圣经里说的最后的大审判，你的如何表态，是能否通过大审判的关键…..&nbsp;&nbsp;&nbsp;https://youtu.be/JZVoS8oqhOk<p>
+
+🎯免翻墙：https://is.gd/8IHp8H
+
+🎯免翻墙：https://is.gd/H6shWt
+
 <div align="center"><img src="/sp-img/0707-44.jpg" width=600></div><p>
 不为正义站岗 就为邪恶陪葬——认清漠视的代价 | 第一集：从电影《车四十四》说起&nbsp;&nbsp;&nbsp;https://youtu.be/bcZNqieEFUE<p>
 本集内容摘要：从电影《车四十四》说起，冷漠是否需要付出代价？活摘器官已“深入寻常百姓家”？薄瓜瓜为何说：“要死大家一起死！”<p>
