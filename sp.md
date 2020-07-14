@@ -74,6 +74,18 @@
 
 🎯免翻墙：https://is.gd/0TYyoA
 
+<hr>
+🔥<b>【真相传媒】</b>大規模採集普通人DNA樣本，中共意欲何爲？&nbsp;&nbsp;&nbsp;https://youtu.be/GXoPN_aoV6w<p>
+
+🎯免翻墙：https://is.gd/4IFwvn<p>
+🎯免翻墙：https://is.gd/XoI1rt
+
+<hr>
+🔥<b>【真相传媒】</b>八大调查指证中共活摘人体器官&nbsp;&nbsp;&nbsp;https://youtu.be/5JKgkX16rso<p>
+
+🎯免翻墙：https://is.gd/Oza1a8<p>
+🎯免翻墙：https://is.gd/vz3duC
+
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
