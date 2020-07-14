@@ -94,15 +94,21 @@ http://61.228.219.187/300
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
+🔥<b>【陈破空纵论天下】</b>地震专家语出惊人！此事不利习近平？某常委暗踩李克强。土共突然对某国大撒币。法国审判共谍&nbsp;&nbsp;&nbsp;https://youtu.be/ULI_60MMAvI<p>
+
+🎯免翻墙：https://is.gd/ZnbhnF
+
+🎯免翻墙：https://is.gd/PehNnH
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.13 新闻评论</b></div><p>
 
 <hr>
 🔥<b>【世界的十字路口 唐浩】</b>【一周年QA（下）】国际趋势预测；唐浩如何写诗？美中会否断交？台湾政客谁染红？中国手机=监听器？金正恩生死真相&nbsp;&nbsp;&nbsp;https://youtu.be/nSEojoO8vss<p>
 
-https://is.gd/7IAglu
+🎯免翻墙：https://is.gd/7IAglu
 
-https://is.gd/qytXMx
+🎯免翻墙：https://is.gd/qytXMx
 
 <hr>
 <div align="center"><img src="/sp-img/0713-weiyie.jpg" width=600></div>
