@@ -94,6 +94,8 @@ http://61.228.219.187/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+<div align="center"><img src="/sp-img/0714-weiyu.jpg" width=600></div>
+
 🔥<b>【薇羽看世间】</b>【第80期】北京地震 庚子年天示異象 紅朝將滅&nbsp;&nbsp;&nbsp;https://youtu.be/Ez8ZQAF2NOc<p>
 
 🎯免翻墙：https://is.gd/4nfRwi<p>
@@ -128,16 +130,19 @@ http://61.228.219.187/300
 🎯免翻墙：https://is.gd/XSH2VD<p>
 🎯免翻墙：https://is.gd/oriO8z
 
+<hr>
 🔥<b>【思想领袖】</b>保守派智库克莱蒙特研究所高级研究员 迈克尔·安东：一个国家没有生产口罩或个人防护服的能力是种危机！所有精英们都没有预料到危机与胜利；将制造业带回美国的重要性！&nbsp;&nbsp;&nbsp;https://youtu.be/45sDE9IDsqY<p>
 
 🎯免翻墙：https://is.gd/CLtf9l<p>
 🎯免翻墙：https://is.gd/rtxkZP
 
+<hr>
 🔥<b>【思想领袖】</b>自由大学商学院院长 大卫．布拉特：下一代必须为自由而战！马克思主义者的承诺永远不会实现；中共策略之一 只说美国人想听的；利用人们的健忘，2035年夺取台湾？&nbsp;&nbsp;&nbsp;https://youtu.be/sK-gTnh2IIQ<p>
 
 🎯免翻墙：https://is.gd/2S5Fo7<p>
 🎯免翻墙：https://is.gd/2S5Fo7
 
+<hr>
 🔥<b>【思想领袖】</b>昆士兰大学学生参议员 柏乐志：勇者无惧！澳洲学生和平抗议却遭诽谤，甚至面临学校开除；大学纪律委员会听证会为何被称作“袋鼠法庭”？&nbsp;&nbsp;&nbsp;https://youtu.be/YvmYDBUeSwU<p>
 
 🎯免翻墙：https://is.gd/XEdaO2<p>
