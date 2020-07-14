@@ -126,6 +126,18 @@ http://61.228.219.187/300
 🎯免翻墙：https://is.gd/u4BGzf
 
 <hr>
+🔥<b>【今日点击】</b>无惧国安恶法 61万港人投票反抗&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;https://youtu.be/jt2xT8LLFgY<p>
+
+🎯免翻墙：https://is.gd/n1ZWsB<p>
+🎯免翻墙：https://is.gd/itexPB
+
+<hr>
+🔥<b>【今日点击】</b>如何严惩中共？美众院外委会共和党领袖献妙计&nbsp;&nbsp;&nbsp;https://youtu.be/hhkGeC8bsX8<p>
+
+🎯免翻墙：https://is.gd/JWBi8i<p>
+🎯免翻墙：https://is.gd/Lw10P2
+
+<hr>
 🔥<b>【思想领袖】</b>台湾国立阳明大学副校长 司徒文：台湾人有骨气，知道谁也靠不住！中共的价值系统与台湾的正统中华文化差异多大；美国应遵循1972年的《台湾关系法》帮助台湾！&nbsp;&nbsp;&nbsp;https://youtu.be/Fn5cgMusWYU<p>
 
 🎯免翻墙：https://is.gd/XSH2VD<p>
