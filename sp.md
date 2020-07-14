@@ -94,13 +94,70 @@ http://61.228.219.187/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 
 <hr>
+🔥<b>【薇羽看世间】</b>【第80期】北京地震 庚子年天示異象 紅朝將滅&nbsp;&nbsp;&nbsp;https://youtu.be/Ez8ZQAF2NOc<p>
+
+🎯免翻墙：https://is.gd/4nfRwi<p>
+🎯免翻墙：https://is.gd/N4hlQj
+
+【中国禁闻】7月13日完整版 长江武汉段成“悬江” 江西永修溃堤逾百公尺/凤凰古城淹水 中共官媒形容犹如仙境/王毅转态对美国示好 中共被击中要害？&nbsp;&nbsp;&nbsp;https://youtu.be/3eCU44NSYbY<p>
+
+🎯免翻墙：https://is.gd/wZuN2C<p>
+🎯免翻墙：https://is.gd/wi84nG
+
+<hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>制裁不够力，小心中共暗招！中储粮库发霉掺糠、一检查就起火；南昌撤人！江西世纪水灾；洪水逼退习近平小康梦，开提防贫；美国夺命“病毒派对”、1传71！林郑要定港61万人谋反？&nbsp;&nbsp;&nbsp;https://youtu.be/hHjwtWVilTk<p>
+
+🎯免翻墙：https://is.gd/qtmBOc<p>
+🎯免翻墙：https://is.gd/sIdGhP
+
+<hr>
 🔥<b>【新闻看点 李沐阳】</b>武汉明晨洪峰再袭！马云钜额减持套现，股市行情“看好”？华春莹宣布制裁4美官员；古冶5.1级地震，唐山大地震“余震”？中共脱贫重于防灾？ 60万港人投票创纪录；香港疫情大暴增？&nbsp;&nbsp;&nbsp;https://youtu.be/aIdwF20nJ5Y<p>
 
 🎯免翻墙：https://is.gd/xYDZ8l<p>
 🎯免翻墙：https://is.gd/PVGhtD
 
+<hr>
+🔥<b>【江峰漫谈20200713第202期】</b>又一蠢：中共与伊朗结成轴心国，秘密协议曝光，极大刺激川普报复制裁力度；蓬佩奥：美国首次宣布中共九段线及特定人工岛非法，东盟各国将摩拳擦掌&nbsp;&nbsp;&nbsp;https://youtu.be/watch?v=NHBKxrHtN0s<p>
 
-🔥<b>【7/13/2020 路德时评（路安谈）】</b>：英雄科学家闫丽梦博士在俄文世界；纳瓦罗受透露川普本周将签字香港自治法案以及签署行政命令制裁中共；中共华春莹宣布对美一机构和议员卢比奥、克鲁兹等制裁；&nbsp;&nbsp;&nbsp;https://youtu.be/3iQ69th5FRc
+🎯免翻墙：https://is.gd/2aT3Cj<p>
+🎯免翻墙：https://is.gd/u4BGzf
+
+<hr>
+🔥<b>【思想领袖】</b>台湾国立阳明大学副校长 司徒文：台湾人有骨气，知道谁也靠不住！中共的价值系统与台湾的正统中华文化差异多大；美国应遵循1972年的《台湾关系法》帮助台湾！&nbsp;&nbsp;&nbsp;https://youtu.be/Fn5cgMusWYU<p>
+
+🎯免翻墙：https://is.gd/XSH2VD<p>
+🎯免翻墙：https://is.gd/oriO8z
+
+🔥<b>【思想领袖】</b>保守派智库克莱蒙特研究所高级研究员 迈克尔·安东：一个国家没有生产口罩或个人防护服的能力是种危机！所有精英们都没有预料到危机与胜利；将制造业带回美国的重要性！&nbsp;&nbsp;&nbsp;https://youtu.be/45sDE9IDsqY<p>
+
+🎯免翻墙：https://is.gd/CLtf9l<p>
+🎯免翻墙：https://is.gd/rtxkZP
+
+🔥<b>【思想领袖】</b>自由大学商学院院长 大卫．布拉特：下一代必须为自由而战！马克思主义者的承诺永远不会实现；中共策略之一 只说美国人想听的；利用人们的健忘，2035年夺取台湾？&nbsp;&nbsp;&nbsp;https://youtu.be/sK-gTnh2IIQ<p>
+
+🎯免翻墙：https://is.gd/2S5Fo7<p>
+🎯免翻墙：https://is.gd/2S5Fo7
+
+🔥<b>【思想领袖】</b>昆士兰大学学生参议员 柏乐志：勇者无惧！澳洲学生和平抗议却遭诽谤，甚至面临学校开除；大学纪律委员会听证会为何被称作“袋鼠法庭”？&nbsp;&nbsp;&nbsp;https://youtu.be/YvmYDBUeSwU<p>
+
+🎯免翻墙：https://is.gd/XEdaO2<p>
+🎯免翻墙：https://is.gd/1ZeAhN
+
+<hr>
+🔥<b>【文昭谈古论今20200713第785期】</b>报复制裁美国、阎丽梦爆料的真正锋芒，或使习近平恶梦成真；三峡库区地震有多凶险？
+&nbsp;&nbsp;&nbsp;https://youtu.be/yv5wkTSn2t4<p>
+
+🎯免翻墙：https://is.gd/P3lpvk<p>
+🎯免翻墙：https://is.gd/WxMcJk
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>地震专家语出惊人！此事不利习近平？某常委暗踩李克强。土共突然对某国大撒币。法国审判共谍&nbsp;&nbsp;&nbsp;https://youtu.be/ULI_60MMAvI<p>
+
+🎯免翻墙：https://is.gd/ZnbhnF<p>
+🎯免翻墙：https://is.gd/PehNnH
+
+<hr>
+🔥<b>【7/13/2020 路德时评（路安谈）】</b>：英雄科学家闫丽梦博士在俄文世界；纳瓦罗受透露川普本周将签字香港自治法案以及签署行政命令制裁中共；中共华春莹宣布对美一机构和议员卢比奥、克鲁兹等制裁；&nbsp;&nbsp;&nbsp;https://youtu.be/3iQ69th5FRc<p>
 
 🎯免翻墙：https://is.gd/rjdqzj<p>
 🎯免翻墙：https://is.gd/JBt7vG
@@ -109,46 +166,6 @@ http://61.228.219.187/300
 
 🎯免翻墙：https://is.gd/48PyMH<p>
 🎯免翻墙：https://is.gd/t6qSb4
-
-<hr>
-🔥<b>【思想领袖】</b>台湾国立阳明大学副校长 司徒文：台湾人有骨气，知道谁也靠不住！中共的价值系统与台湾的正统中华文化差异多大；美国应遵循1972年的《台湾关系法》帮助台湾！&nbsp;&nbsp;&nbsp;https://youtu.be/Fn5cgMusWYU<p>
-
-🎯免翻墙：https://is.gd/XSH2VD
-
-🎯免翻墙：https://is.gd/oriO8z
-
-🔥<b>【思想领袖】</b>保守派智库克莱蒙特研究所高级研究员 迈克尔·安东：一个国家没有生产口罩或个人防护服的能力是种危机！所有精英们都没有预料到危机与胜利；将制造业带回美国的重要性！&nbsp;&nbsp;&nbsp;https://youtu.be/45sDE9IDsqY<p>
-
-🎯免翻墙：https://is.gd/CLtf9l
-
-🎯免翻墙：https://is.gd/rtxkZP
-
-🔥<b>【思想领袖】</b>自由大学商学院院长 大卫．布拉特：下一代必须为自由而战！马克思主义者的承诺永远不会实现；中共策略之一 只说美国人想听的；利用人们的健忘，2035年夺取台湾？&nbsp;&nbsp;&nbsp;https://youtu.be/sK-gTnh2IIQ<p>
-
-🎯免翻墙：https://is.gd/2S5Fo7
-
-🎯免翻墙：https://is.gd/2S5Fo7
-
-🔥<b>【思想领袖】</b>昆士兰大学学生参议员 柏乐志：勇者无惧！澳洲学生和平抗议却遭诽谤，甚至面临学校开除；大学纪律委员会听证会为何被称作“袋鼠法庭”？&nbsp;&nbsp;&nbsp;https://youtu.be/YvmYDBUeSwU<p>
-
-🎯免翻墙：https://is.gd/XEdaO2
-
-🎯免翻墙：https://is.gd/1ZeAhN
-
-<hr>
-🔥<b>【文昭谈古论今20200713第785期】</b>报复制裁美国、阎丽梦爆料的真正锋芒，或使习近平恶梦成真；三峡库区地震有多凶险？
-&nbsp;&nbsp;&nbsp;https://youtu.be/yv5wkTSn2t4<p>
-
-🎯免翻墙：https://is.gd/P3lpvk
-
-🎯免翻墙：https://is.gd/WxMcJk
-
-<hr>
-🔥<b>【陈破空纵论天下】</b>地震专家语出惊人！此事不利习近平？某常委暗踩李克强。土共突然对某国大撒币。法国审判共谍&nbsp;&nbsp;&nbsp;https://youtu.be/ULI_60MMAvI<p>
-
-🎯免翻墙：https://is.gd/ZnbhnF
-
-🎯免翻墙：https://is.gd/PehNnH
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.13 新闻评论</b></div><p>
