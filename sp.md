@@ -45,6 +45,13 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+【星象预言】二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
+
+🎯免翻墙：https://is.gd/A9oJ1o<p>
+🎯免翻墙：https://is.gd/58dlK5
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
 
 🔥<b>【真相传媒】</b>不为正义站岗 就为邪恶陪葬——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk<p>
