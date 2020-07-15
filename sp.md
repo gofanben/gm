@@ -92,6 +92,11 @@ http://61.228.219.127/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.15 新闻评论</b></div><p>
 
+🔥<b>【新聞拍案驚奇 大宇】</b>央视获令不宣传李克强？三峡监控一度停摆！强降雨加洪峰，武汉至南京一片泽国，万民背井离乡；闫丽梦谈恐怖疫情；北京救护“泄密”；病毒抗体只活仨月？英国退货华为；美国南海声明&nbsp;&nbsp;&nbsp;https://youtu.be/bfRCpbIZDks<p>
+
+🎯免翻墙：https://is.gd/mnIvLc<p>
+🎯免翻墙：https://is.gd/ZJnrB7
+
 🔥<b>【新闻看点 李沐阳】</b>美国南海声明，中共“完全非法”!欧盟协调制裁香港；台最大军演登场，美联合星护航；云南蝗虫肆虐，吃光竹叶毁竹林；李克强喊形势严峻，官媒喊“端牢饭碗”；大陆A股齐跌，净流出170亿&nbsp;&nbsp;&nbsp;https://youtu.be/lyS0mTOzRgc<p>
 
 <a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255970.md#1">💎阅读文字 https://bit.ly/394wIJS</a><p>
