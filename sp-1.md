@@ -3,17 +3,22 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+
+【星象预言】二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
+
+🎯免翻墙：https://is.gd/A9oJ1o<p>
+🎯免翻墙：https://is.gd/58dlK5
+
+<hr>
 🔥<b>【脑洞vs黑洞 第14集】</b>2020异象频频 背后预示着什么？ 冰雹预示兵象、战争？7月北京冰雹，地陷；6月北京降病毒状冰雹；5月北京白昼变黑夜。&nbsp;&nbsp;&nbsp;https://youtu.be/0WumB9GRHh8<p>
 
-🎯免翻墙：https://is.gd/sWzBdd
-
+🎯免翻墙：https://is.gd/sWzBdd<p>
 🎯免翻墙：https://is.gd/TjrYrg
 
 <hr>
 【脑洞VS黑洞15】2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？&nbsp;&nbsp;&nbsp;https://youtu.be/9HM_vVI5T0A<p>
 
-🎯免翻墙：https://is.gd/QyNsWT
-
+🎯免翻墙：https://is.gd/QyNsWT<p>
 🎯免翻墙：https://is.gd/YuvnkY
 
 <div align="center"><img src="/sp-img/0708-xyrs.jpg" width=600></div>
