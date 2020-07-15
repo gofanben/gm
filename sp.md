@@ -142,6 +142,11 @@ http://61.228.219.127/300
 🎯免翻墙：https://is.gd/PvjZ54<p>
 🎯免翻墙：https://is.gd/7pNE8p
 
+🔥<b>【关键时刻】</b>“坝在人在、坝亡人亡”！ 中国湖北竟大立“抗洪生死牌”民众变烈士？20200714-2&nbsp;&nbsp;&nbsp;https://youtu.be/ewRXqQPt450
+
+🎯免翻墙：https://is.gd/QA3qtf<p>
+🎯免翻墙：https://is.gd/eZslsu
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.14 新闻评论</b></div><p>
 
