@@ -93,6 +93,30 @@ http://61.228.219.127/300
 <div align="center"><b>2020.07.15 新闻评论</b></div><p>
 
 <hr>
+🔥<b>【唐靖远快评】</b>美国重磅声明点燃南海局势；中共非法“占岛”，美国会要求“强拆”吗？美中两次南海对峙注定结局相反&nbsp;&nbsp;&nbsp;https://youtu.be/0fGJLjB8I-k<p>
+
+🎯免翻墙：https://is.gd/IELkkc<p>
+🎯免翻墙：https://is.gd/0PSsd2
+
+<hr>
+🔥<b>【天亮时分(政论天下第198集 20200714)】</b>洪水滔天李克强隐身,是主动撂挑子还是被习近平雪藏?政治局常委会中李克强几乎是孤家寡人&nbsp;&nbsp;&nbsp;https://youtu.be/wMYvh5-Z7Qg<p>
+
+🎯免翻墙：https://is.gd/ctA1h0<p>
+🎯免翻墙：https://is.gd/wKnNMq
+
+<hr>
+🔥<b>【今日点击】</b>许章润教授被清华以“道德败坏”为由革职&nbsp;&nbsp;&nbsp;https://youtu.be/Iddb0v94TC0<p>
+
+🎯免翻墙：https://is.gd/O3KJ37<p>
+🎯免翻墙：https://is.gd/cqkoOH
+
+<hr>
+🔥<b>【今日点击】</b>蓬佩奥南海声明，中共“完全非法”&nbsp;&nbsp;&nbsp;https://youtu.be/7eqp4BclBfQ<p>
+
+🎯免翻墙：https://is.gd/Y4loUv<p>
+🎯免翻墙：https://is.gd/GTk7Fr
+
+<hr>
 🔥<b>【陈破空纵论天下】</b>美国突发重大宣示！南海即将开战？天时地利人和。谁又招来八国联军？共军自陷口袋阵&nbsp;&nbsp;&nbsp;https://youtu.be/VecBhaHsQxw<p>
 
 🎯免翻墙：https://is.gd/PvjZ54<p>
