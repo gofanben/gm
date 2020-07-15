@@ -92,6 +92,13 @@ http://61.228.219.127/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.15 新闻评论</b></div><p>
 
+🔥<b>【新闻看点 李沐阳】</b>美国南海声明，中共“完全非法”!欧盟协调制裁香港；台最大军演登场，美联合星护航；云南蝗虫肆虐，吃光竹叶毁竹林；李克强喊形势严峻，官媒喊“端牢饭碗”；大陆A股齐跌，净流出170亿&nbsp;&nbsp;&nbsp;https://youtu.be/lyS0mTOzRgc<p>
+
+<a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255970.md#1">💎阅读文字 https://bit.ly/394wIJS</a><p>
+
+🎯免翻墙：https://is.gd/D353Ra<p>
+🎯免翻墙：https://is.gd/jNInyL
+
 <hr>
 🔥<b>【唐靖远快评】</b>美国重磅声明点燃南海局势；中共非法“占岛”，美国会要求“强拆”吗？美中两次南海对峙注定结局相反&nbsp;&nbsp;&nbsp;https://youtu.be/0fGJLjB8I-k<p>
 
@@ -124,12 +131,13 @@ http://61.228.219.127/300
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.14 新闻评论</b></div><p>
-<hr>
+
 🔥<b>【世界的十字路口 唐浩】</b>病毒真相、四大风暴来袭，中共告急；南海掀底牌，美中要开战？习近平离京躲政变？&nbsp;&nbsp;&nbsp;https://youtu.be/VoZjjBwi22E<p>
 
 🎯免翻墙：https://is.gd/yBLH4x<p>
 🎯免翻墙：https://is.gd/OWqbif
 
+<hr>
 <div align="center"><img src="/sp-img/0714-weiyu.jpg" width=600></div>
 
 🔥<b>【薇羽看世间】</b>【第80期】北京地震 庚子年天示異象 紅朝將滅&nbsp;&nbsp;&nbsp;https://youtu.be/Ez8ZQAF2NOc<p>
