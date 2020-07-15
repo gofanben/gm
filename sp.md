@@ -68,7 +68,6 @@
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.14 新闻评论</b></div><p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -83,7 +82,24 @@ http://61.228.219.127/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+👫🌸起个化名自己办理三退👫🌸已退过的无需重复办理。🍎👍请您牢记法轮大法好！真善忍好！🌸🌷🌸祝您平安幸福，未来美好！🌸🌷<p>
+
+🎯免翻墙：https://bit.ly/3j3XLtj<p>
+🎯免翻墙：https://bit.ly/391ezMP
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.15 新闻评论</b></div><p>
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>美国突发重大宣示！南海即将开战？天时地利人和。谁又招来八国联军？共军自陷口袋阵&nbsp;&nbsp;&nbsp;https://youtu.be/VecBhaHsQxw<p>
+
+🎯免翻墙：https://is.gd/PvjZ54<p>
+🎯免翻墙：https://is.gd/7pNE8p
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.14 新闻评论</b></div><p>
 <hr>
 🔥<b>【世界的十字路口 唐浩】</b>病毒真相、四大风暴来袭，中共告急；南海掀底牌，美中要开战？习近平离京躲政变？&nbsp;&nbsp;&nbsp;https://youtu.be/VoZjjBwi22E<p>
 
