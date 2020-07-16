@@ -4,8 +4,6 @@
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <a name=top>
 
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
 🔥<b>【地球旅馆】</b>解析“贵州怪声”之谜 （下集）：末日预言的预警！？2020年7月14日&nbsp;&nbsp;&nbsp;https://youtu.be/MrCqWN_VCmY<p>
 
 🎯免翻墙：https://is.gd/jAZiBz<p>
