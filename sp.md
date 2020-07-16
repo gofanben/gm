@@ -105,6 +105,13 @@ http://61.228.212.130/300
 <div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
 <hr>
+🔥<b>【新闻看点 李沐阳】</b>川普不与习对话！王毅服软求饶，大豆玉米买买买；美国尚未放大招，等北京改邪归正？英踢走华为5G，蓬佩奥晒狗戏维尼；九江决堤200米，民众哭：什么都没了！官方征编织袋，防汛靠凑分子&nbsp;&nbsp;&nbsp;https://youtu.be/D3SHCCCcoPE<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30dIWMe<p>
+https://bit.ly/32n6FME
+
+<hr>
 🔥<b>【珍言真語】</b>林晓旭(3)：(中文字幕)阎丽梦在香港受启蒙，面对中共压力站出来；全球可向世卫与中共追责；港大否认没意义，重点是12月已知情；港府放宽特别人士，香港爆疫民众要警惕&nbsp;&nbsp;&nbsp;https://youtu.be/qzVxOkdKLXA<p>
 
 🎯免翻墙：<p>
@@ -139,6 +146,7 @@ https://bit.ly/2Wp4t3d
 https://bit.ly/3gVZnn4<p>
 https://bit.ly/392aWq3
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.15 新闻评论</b></div><p>
 
@@ -215,6 +223,7 @@ https://bit.ly/392aWq3
 🎯免翻墙：https://is.gd/QA3qtf<p>
 🎯免翻墙：https://is.gd/eZslsu
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.14 新闻评论</b></div><p>
 
@@ -315,6 +324,7 @@ https://bit.ly/392aWq3
 🎯免翻墙：https://is.gd/48PyMH<p>
 🎯免翻墙：https://is.gd/t6qSb4
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.13 新闻评论</b></div><p>
 
@@ -486,6 +496,7 @@ https://bit.ly/392aWq3
 
 🎯免翻墙：https://is.gd/WO7wS9
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.10 新闻评论</b></div><p>
 
