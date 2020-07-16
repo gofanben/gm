@@ -2,8 +2,21 @@
 <div align="center"><h2>精彩保留</h2></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<a name=top>
 
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+🔥<b>【地球旅馆】</b>解析“贵州怪声”之谜 （下集）：末日预言的预警！？2020年7月14日&nbsp;&nbsp;&nbsp;https://youtu.be/MrCqWN_VCmY<p>
+
+🎯免翻墙：https://is.gd/jAZiBz<p>
+🎯免翻墙：https://is.gd/QduwhH
+
+🔥<b>【地球旅馆 星象预言】</b>二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
+
+🎯免翻墙：https://is.gd/A9oJ1o<p>
+🎯免翻墙：https://is.gd/58dlK5
+
+<hr>
 【星象预言】二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
 
 🎯免翻墙：https://is.gd/A9oJ1o<p>
@@ -53,6 +66,7 @@
 🎯免翻墙：https://bit.ly/3j2gW6Q<p>
 🎯免翻墙：https://bit.ly/2WgYBsS
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/0711-truth.jpg" width=600></div>
 
 诺查丹玛斯预言声明：‘天灭中共’第一章：红龙正在被烧着&nbsp;&nbsp;&nbsp;https://youtu.be/0IujChP9VtQ<p>
@@ -153,8 +167,8 @@
 
 🎯免翻墙：https://is.gd/yVkJlg
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr>
-
 🔥🈲【刘伯温碑记预言破解】第二波瘟疫将到❗8月还有大事发生❗早看早保命❗（上集）&nbsp;&nbsp;&nbsp;https://youtu.be/0IBIUG9vjYg<p>
 
 🎯免翻墙：https://is.gd/zIOeBq
