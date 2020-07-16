@@ -102,8 +102,45 @@ http://61.228.212.130/300
 🎯免翻墙：https://bit.ly/391ezMP
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.15 新闻评论</b></div><p>
+<div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
+<hr>
+🔥<b>【珍言真語】</b>林晓旭(3)：(中文字幕)阎丽梦在香港受启蒙，面对中共压力站出来；全球可向世卫与中共追责；港大否认没意义，重点是12月已知情；港府放宽特别人士，香港爆疫民众要警惕&nbsp;&nbsp;&nbsp;https://youtu.be/qzVxOkdKLXA<p>
+
+🎯免翻墙：<p>
+https://bit.ly/38Z0zTX<p>
+https://bit.ly/3eyLidq
+
+<hr>
+🔥<b>【蕭茗看世界】</b>萧茗采访袁弓夷：川普行政令将做一件前所未有的事；中美会在南中国海开战吗？会在台海开战吗？香港接下来会如何？&nbsp;&nbsp;&nbsp;https://youtu.be/SSXG6Jhob48<p>
+
+🎯免翻墙：<p>
+https://bit.ly/394Fc3t<p>
+https://bit.ly/3j14cNE
+
+<hr>
+🔥<b>【今日点击】</b>川普签《香港自治法》废除香港特殊待遇7要点&nbsp;&nbsp;&nbsp;https://youtu.be/pAkQL4mIm70
+
+🎯免翻墙：<p>
+https://bit.ly/397eRBV<p>
+https://bit.ly/2CGZVy5
+
+<hr>
+🔥<b>【文昭谈古论今20200715第786期】</b>川普签法案下战书，华春莹喊“让暴风雨来得更猛烈”！习近平超级昏招“联伊抗美”未见其利先受三害，南海风云突变&nbsp;&nbsp;&nbsp;https://youtu.be/SmmACbI2nYw<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3fzz9Gy<p>
+https://bit.ly/2Wp4t3d
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>终于坐实：御林军曾发动政变！习近平仓惶离京。美英军舰挺进南海，台湾军演惊心土共&nbsp;&nbsp;&nbsp;https://youtu.be/xVh6wB6F-7Q<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3gVZnn4<p>
+https://bit.ly/392aWq3
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.15 新闻评论</b></div><p>
 
 🔥<b>【薇羽看世间】</b>【第81期】鄱阳湖，长江下游的最大蓄水池，日前告急！鄱阳湖是如何从个昔日的仙境，变成今日的满目疮痍？&nbsp;&nbsp;&nbsp;https://youtu.be/05trnwzMZuU<p>
 
