@@ -59,6 +59,13 @@
 
 <div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
 
+🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
+
+🎯免翻墙：https://bit.ly/3ftRy7L
+
+🎯免翻墙：https://bit.ly/2ZuYonQ
+
+<hr>
 🔥<b>【真相传媒】</b>不为正义站岗 就为邪恶陪葬——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk<p>
 
 🎯免翻墙：https://is.gd/ivSEq8
@@ -389,16 +396,12 @@ https://bit.ly/392aWq3
 
 🔥<b>【新闻看点 李沐阳】</b>香港人无畏打压，6小时近14万投票；美国突警告中共滥捕，意味什么？鄱阳湖将有大洪水？3000吨茶叶被水泡，茶厂老板哭惨！太诡异！北京通报上月疫情；普京三通电话？中印关系紧张！&nbsp;&nbsp;&nbsp;https://youtu.be/uKIZNk-HybY<p>
 
-🎯免翻墙：https://is.gd/mwM4o8
-
-🎯免翻墙：https://is.gd/RqPDXD
+🎯免翻墙：https://is.gd/8I7B5k
 
 <hr>
 🔥<b>【陈破空纵论天下】</b>逃美科学家开口！中国洪水滔天，习近平拼命躲。火箭发射接连失败，原因不能说！美中最后一条纽带将绷断？中印没完又扯上第三国&nbsp;&nbsp;&nbsp;(7.12)">逃美科学家开口！中国洪水滔天，习近平拼命躲。火箭发射接连失败，原因不能说！美中最后一条纽带将绷断？中印没完又扯上第三国&nbsp;&nbsp;&nbsp;https://youtu.be/22vwb4oXTzs<p>
 
-🎯免翻墙：https://is.gd/3zO0Ay
-
-🎯免翻墙：https://is.gd/tpw29E
+🎯免翻墙：https://is.gd/LdH3vO
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -406,95 +409,65 @@ https://bit.ly/392aWq3
 
 <div align="center"><img src="/sp-img/0711-limon.jpg" width=600></div>
 
-🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
-
-🎯免翻墙：https://is.gd/wZo5pp
-
-🎯免翻墙：https://is.gd/5SA3Yh
-
 <hr>
 【一周年QA（上）】自媒体的惊讶与惊喜；中国今年大势；中共要武统？台湾如何自保？反共是搞政治？风水是怪力乱神？&nbsp;&nbsp;&nbsp;https://youtu.be/N5CBh82UscM<p>
 
-🎯免翻墙：https://is.gd/VrvmOB
-
-🎯免翻墙：https://is.gd/K3dlyj
+🎯免翻墙：https://is.gd/zqB9DM
 
 <hr>
 🔥<b>【热点互动】</b>出逃病毒学家终于现身！独家：萧恩谈与闫丽梦交谈印象；闫爆料带来3大影响，美国制裁陈全国下一步或是常委级别 | 唐靖远 萧恩&nbsp;&nbsp;&nbsp;https://youtu.be/dfmODWsISXg<p>
 
-🎯免翻墙：https://is.gd/E0Zxea
-
-🎯免翻墙：https://is.gd/J1uezB
+🎯免翻墙：https://is.gd/MdBnXS
 
 <hr>
 🔥<b>【薇羽看世间】</b>【第78期】重磅！一个才华出众的港大女博士后研究员出逃，与美国退出世卫是什么关系？她是谁，为何要出逃，是怎么出逃的？&nbsp;&nbsp;&nbsp;https://youtu.be/PBT0StM3_vc<p>
 
-🎯免翻墙：https://is.gd/C4x5kM
-
-🎯免翻墙：https://is.gd/YPkiJK
+🎯免翻墙：https://is.gd/uWpAfj
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>李克强突遭当面上访；全民表态！港初选登场，警察行动诡异；港确诊剧增，中共阴谋？美制裁陈全国；长江倒灌支流，武汉急加高堤防，武夷山猴困水；蝗军侵云南；报告：上亿人面临饿死&nbsp;&nbsp;&nbsp;https://youtu.be/UANdYHqAblc<p>
 
-🎯免翻墙：https://is.gd/fdVW4Z
-
-🎯免翻墙：https://is.gd/Fmi8Is
+🎯免翻墙：https://is.gd/hx8Qna
 
 <hr>
 🔥<b>【江峰漫谈20200710第201期】</b>神秘逃亡吹哨人现身，川普正式退出世卫组织遭围殴，福克斯独家采访播放的背后，竟然有这样的重大安排&nbsp;&nbsp;&nbsp;https://youtu.be/008_t-x5woI<p>
 
-🎯免翻墙：https://is.gd/ZUV0no
-
-🎯免翻墙：https://is.gd/JyH8mI
+🎯免翻墙：https://is.gd/fnljiB
 
 <hr>
 🔥<b>【中國禁聞】</b>7月10日完整版 🔥 南方洪災 27省3020萬人受災/延安整風重來？中共政法系統「教育整頓」/美制裁4名新疆高官 凍結資產禁止入境/中共侵害美國  FBI每10小時啟動一調查。&nbsp;&nbsp;&nbsp;https://youtu.be/N4gGvHMwnYM<p>
 
-🎯免翻墙：https://is.gd/PI0U1s
-
-🎯免翻墙：https://is.gd/S13ImX
+🎯免翻墙：https://is.gd/RQIPqo
 
 <hr>
 🔥<b>【天亮时分(政论天下第196集 20200710)】</b>吹哨人现身,多少新冠黑幕将被曝光?习近平的角色更加清晰;世卫组织还有机会挽回声誉吗?&nbsp;&nbsp;&nbsp;https://youtu.be/z--jq14jjBs<p>
 
-🎯免翻墙：https://is.gd/rxvpFw
-
-🎯免翻墙：https://is.gd/NXkMKU
+🎯免翻墙：https://is.gd/YbXEvR
 
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>洪灾41天淹半个中国！美国制裁加码，王毅变脸求和？中共四大银行做最坏打算；刑上政治局委员，七常委仅半步之遥；美对台军售“爱国者”，中共还会硬碰硬？美中关系今结冰，戴旭4呼想不到&nbsp;&nbsp;&nbsp;https://youtu.be/fi3govrSdos<p>
 
-🎯免翻墙：https://is.gd/MUrKSJ
-
-🎯免翻墙：https://is.gd/28jE3L
+🎯免翻墙：https://is.gd/ETV6DN
 
 <hr>
 🔥<b>【今日点击】</b>美国宣布制裁与新疆有关的中共官员和实体&nbsp;&nbsp;&nbsp;https://youtu.be/MkrgcHs8EAI<p>
 
-🎯免翻墙：https://is.gd/c568Un
-
-🎯免翻墙：https://is.gd/Y0Uw29
+🎯免翻墙：https://is.gd/n7OarG
 
 <hr>
 🔥<b>【今日点击】</b>快搬家！川女露天宵夜头发突竖起 隔天依旧&nbsp;&nbsp;&nbsp;https://youtu.be/mlJAA_qtZto<p>
 
-🎯免翻墙：https://is.gd/voq8AR
-
-🎯免翻墙：https://is.gd/AVJiv9
+🎯免翻墙：https://is.gd/DxYBZ1
 
 <hr>
 🔥<b>【陈破空纵论天下】</b>大清洗冒险，习王躲起！美国盯上政治局委员。王毅忽然下软蛋。印度不放手，土共怕怕&nbsp;&nbsp;&nbsp;https://youtu.be/KuzQ0nzqKQE<p>
 
-🎯免翻墙：https://is.gd/brakaH
-
-🎯免翻墙：https://is.gd/aUDbKu
+🎯免翻墙：https://is.gd/8YRLV6
 
 <hr>
 🔥<b>【文昭谈古论今20200710第784期】</b>中共急“清理门户”！美国制裁陈全国的“回旋镖”效应：跨国银行紧急查客户、中美外交或降级，连绵打击才开始&nbsp;&nbsp;&nbsp;https://youtu.be/YRNYxxkVF2Y<p>
 
-🎯免翻墙：https://is.gd/8qchcw
-
-🎯免翻墙：https://is.gd/WO7wS9
+🎯免翻墙：https://is.gd/yAaNZq
 
 <a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -502,65 +475,47 @@ https://bit.ly/392aWq3
 
 🔥<b>【世界的十字路口 唐浩】</b>【透视共产党合集1】中共如何渗透侵略？如何诡辩卸责？危机脱身四套路；利用国安法，逼人当间谍&nbsp;&nbsp;&nbsp;https://youtu.be/x8egbdOeIiY<p>
 
-🎯免翻墙：https://is.gd/4heoLL
-
-🎯免翻墙：https://is.gd/dJqlY6
+🎯免翻墙：https://is.gd/vEp8Re
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>比洪水强25倍！三峡泄洪堪比变相溃坝，湖北江西堤岸溃口；四川爆竹厂大爆炸；陈秋实解读法制；709五周年，律师医生谈狱中刑；王毅示弱，又跟美国撒娇！传体制内测试个人监控软体&nbsp;&nbsp;&nbsp;https://youtu.be/JIVlwwGVDZ4<p>
 
-🎯免翻墙：https://is.gd/P3sWAV
-
-🎯免翻墙：https://is.gd/Caxx0X
+🎯免翻墙：https://is.gd/bLg0ZB
 
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>四川鞭炮厂炸成平地！中共内斗逼宫，政法系统大清门户；习近平遇到威胁？李克强出绝招；川普拟禁抖音，拆除中共防火墙；使用华为禁与美政府交易；许璋润会电视认罪吗？&nbsp;&nbsp;&nbsp;https://youtu.be/QT64tkKrb9o<p>
 
-🎯免翻墙：https://is.gd/Qb8qKh
-
-🎯免翻墙：https://is.gd/aBnkKb
+🎯免翻墙：https://is.gd/kEknUu
 
 <hr>
 🔥<b>【天亮时分(政论天下第195集 20200709)】</b>美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对&nbsp;&nbsp;&nbsp;https://youtu.be/hOZg-FFzc9M<p>
 
-🎯免翻墙：https://is.gd/QfEAWf
-
-🎯免翻墙：https://is.gd/AqZVKV
+🎯免翻墙：https://is.gd/UYiXxr
 
 <hr>
 🔥<b>【薇羽看世间】</b>【第77期】709律师大抓捕将再现香港？李嘉诚英国建超级避风港？美国连续重拳出击，保护香港人，守护台湾，FBI盯上了中共猎狐行动。&nbsp;&nbsp;&nbsp;https://youtu.be/j5QtTmzAhF0<p>
 
-🎯免翻墙：https://is.gd/3kIxmP
-
-🎯免翻墙：https://is.gd/Rve2BJ
+🎯免翻墙：https://is.gd/720ByA
 
 <hr>
 🔥<b>【江峰漫谈20200709第200期】</b>陈全国！迟到的政治局级别制裁，开启系列对中共最高权力的追责，引发中共党内避责混乱潮；习近平建秘密政治机构保身家性命&nbsp;&nbsp;&nbsp;https://youtu.be/MWDsJSqDCs4<p>
 
-🎯免翻墙：https://is.gd/bpmmy4
-
-🎯免翻墙：https://is.gd/iMtMzu
+🎯免翻墙：https://is.gd/d9V0MF
 
 <hr>
 🔥<b>【陈破空纵论天下】</b>党内大清洗！习近平明说清理门户。夺权李克强！王沪宁伪造普京语录。中俄高层互诈秘闻&nbsp;&nbsp;&nbsp;https://youtu.be/Bzo7v5l617w<p>
 
-🎯免翻墙：https://is.gd/9dd28I
-
-🎯免翻墙：https://is.gd/PFoYpg
+🎯免翻墙：https://is.gd/vBC0TP
 
 <hr>
 🔥<b>【今日点击】</b>没事都晃！ 三峡大坝建在中国最强地震带&nbsp;&nbsp;&nbsp;https://youtu.be/Tsenkp95mrM<p>
 
-🎯免翻墙：https://is.gd/4bzfyw
-
-🎯免翻墙：https://is.gd/hdguvv
+🎯免翻墙：https://is.gd/PrWJM3
 
 <hr>
 🔥<b>【今日点击】</b>驻港国安公署正式运作 香港肺炎疫情“第三波爆发”&nbsp;&nbsp;&nbsp;https://youtu.be/S0Wt5nSn77k<p>
 
-🎯免翻墙：https://is.gd/72VnFo
-
-🎯免翻墙：https://is.gd/Big9ra
+🎯免翻墙：https://is.gd/syZrDa
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
@@ -569,9 +524,7 @@ https://bit.ly/392aWq3
 
 🔥<b>【世界的十字路口 唐浩】</b>州巴士冲入水库，报复社会？抖音退出香港，另有猫腻？中共处处严峻，习近平在哪里？&nbsp;&nbsp;&nbsp;https://youtu.be/WrQSmBFqXiU
 
-🎯免翻墙：https://is.gd/IrPdl9
-
-🎯免翻墙：https://is.gd/v1DNZ3
+🎯免翻墙：WrQSmBFqXiU
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
