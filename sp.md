@@ -106,6 +106,12 @@ http://61.228.212.130/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
+🔥<b>【薇羽看世间】</b>【第82期】川普簽香港自治法，頒布行政令，一石二鳥打到了誰？&nbsp;&nbsp;&nbsp;https://youtu.be/5DbSwn29xfw<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2ZxbQri
+https://bit.ly/392cujF
+
 🔥<b>【脑洞vs黑洞 第16集】</b>“三峡大坝已经尽力”的背后；为什么美国拆水坝？各国如何赔偿水坝溃坝、泄洪的受害人？&nbsp;&nbsp;&nbsp;https://youtu.be/iB5KprECuw0<p>
 
 🎯免翻墙：<p>
