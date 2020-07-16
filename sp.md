@@ -45,18 +45,6 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-🔥<b>【地球旅馆】</b>解析“贵州怪声”之谜 （下集）：末日预言的预警！？2020年7月14日&nbsp;&nbsp;&nbsp;https://youtu.be/MrCqWN_VCmY<p>
-
-🎯免翻墙：https://is.gd/jAZiBz<p>
-🎯免翻墙：https://is.gd/QduwhH
-
-🔥<b>【地球旅馆 星象预言】</b>二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
-
-🎯免翻墙：https://is.gd/A9oJ1o<p>
-🎯免翻墙：https://is.gd/58dlK5
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
 <div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
 
 🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
@@ -83,6 +71,13 @@
 
 🎯免翻墙：https://is.gd/Oza1a8<p>
 🎯免翻墙：https://is.gd/vz3duC
+
+<hr>
+🔥<b>【紀元播報】</b>袁斌：2020庚子年中國為何異象頻現？&nbsp;&nbsp;&nbsp;https://youtu.be/lKdX9TUyxwk<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3eycs4g<p>
+https://bit.ly/3ewYzDt
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
