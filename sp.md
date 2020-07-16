@@ -111,6 +111,30 @@ http://61.228.212.130/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
+🔥<b>【脑洞vs黑洞 第16集】</b>“三峡大坝已经尽力”的背后；为什么美国拆水坝？各国如何赔偿水坝溃坝、泄洪的受害人？&nbsp;&nbsp;&nbsp;https://youtu.be/iB5KprECuw0<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CCcQS4
+https://bit.ly/38YF05Z
+
+🔥<b>【新聞拍案驚奇 大宇】</b>反扑习近平？爆料：政敌投病毒，内情复杂，一人关键！武汉堤防渗水，遇复式洪峰，黄浦江猛涨，隐瞒超级泄洪，洪水是人为？内涝，中国没下水道！川普重拳，港回原形；美制裁华为，将禁微信&nbsp;&nbsp;&nbsp;https://youtu.be/NThlb4lo_4Q<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32jSKa5<p>
+https://bit.ly/30jQk8E
+
+🔥<b>【热点互动】</b>川普签署香港法案，美国更大招还在后面；英国禁华为标志中英关系大逆转；中共又一昏招：与伊朗抱团 | Jason 陈破空&nbsp;&nbsp;&nbsp;https://youtu.be/rYZE2Y1G7vI<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32lGLIW
+https://bit.ly/3ja3xti
+
+
+🔥<b>【今日焦点】</b>洪水滔天领导去哪了 贫困县举债400亿建奢华建筑| 贵州紫禁城 | 天下第一水司楼 | 独山钟楼|县委书记潘志立&nbsp;&nbsp;&nbsp;https://youtu.be/c2PMBwgc3fA<p>
+
+🎯免翻墙：<p>
+https://bit.ly/38ZMd5L
+
 <hr>
 🔥<b>【新闻看点 李沐阳】</b>川普不与习对话！王毅服软求饶，大豆玉米买买买；美国尚未放大招，等北京改邪归正？英踢走华为5G，蓬佩奥晒狗戏维尼；九江决堤200米，民众哭：什么都没了！官方征编织袋，防汛靠凑分子&nbsp;&nbsp;&nbsp;https://youtu.be/D3SHCCCcoPE<p>
 
