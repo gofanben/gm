@@ -9,6 +9,7 @@
 🎯免翻墙：https://is.gd/jAZiBz<p>
 🎯免翻墙：https://is.gd/QduwhH
 
+<hr>
 🔥<b>【地球旅馆 星象预言】</b>二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨2020年5月21日&nbsp;&nbsp;&nbsp;https://youtu.be/coZmCjsCjsM<p>
 
 🎯免翻墙：https://is.gd/A9oJ1o<p>
