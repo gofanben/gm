@@ -113,28 +113,60 @@ https://bit.ly/2Wq3T5e<p>
 https://bit.ly/3eCJTTa
 
 <hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>保驾无功？习近平撤卫军司令；美国拟禁所有中共党员入境！再遭水淹，重庆人夺门而逃；官吏不通知泄洪，原因揭晓；保大弃小，南京照样淹！洪湖下个被洪水？南海共军低调，印太北约或成形&nbsp;&nbsp;&nbsp;https://youtu.be/dEKLvrL_-wM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2DRqwJD<p>
+https://is.gd/y6ZY78
+
+<hr>
+【中国禁闻】7月15日完整版(字幕)🔥 洪灾肆虐下 看中共媒体的“洪水美学”/川普签香港自治法案 制裁或上政治局常委/陆企大股东纷纷高位套现 中国股市背后推手是谁？&nbsp;&nbsp;&nbsp;https://youtu.be/8nBazBf4u7E<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3jgifzg<p>
+https://is.gd/G3O2i7
+
+<hr>
+🔥<b>【江峰漫谈20200716第204期】</b>禁止中共党员和家属来美，来了也赶走！替华为打工也有可能签证受限； “退党”成热搜，中共党员寻出路&nbsp;&nbsp;&nbsp;https://youtu.be/nde1L7OBlsM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3eAjrK3<p>
+https://is.gd/SwCKXc
+
+<hr>
 🔥<b>【天亮时分(政论天下第199集 20200716)】</b>九千万党员禁止来美?川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径&nbsp;&nbsp;&nbsp;https://youtu.be/rBS0l8-N_VM<p>
 
 🎯免翻墙：<p>
-https://bit.ly/30mTaKl
+https://bit.ly/30mTaKl<p>
+https://is.gd/AeZo4M
 
 <hr>
 🔥<b>【薇羽看世间】</b>【第83期】中国人民银行放水，大陆房地产市场异动，谁是最大赢家？&nbsp;&nbsp;&nbsp;https://youtu.be/glj84acp9n4<p>
 
 🎯免翻墙：<p>
-https://bit.ly/3h8pXJL
+https://bit.ly/3h8pXJL<p>
+https://is.gd/gM72TY
+
+<hr>
+🔥<b>【今日焦点】</b>重庆万州洪水来袭 山西阳泉街道被淹没|江西鄱阳县昌洲乡全部被淹&nbsp;&nbsp;&nbsp;https://youtu.be/1yEuGpk-L4A<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32qPlX1<p>
+https://is.gd/9YEdES
 
 <hr>
 🔥<b>【今日点击】</b>美或禁止中共党员入境 蓬佩奥：全世界会让中共付出代价&nbsp;&nbsp;&nbsp;https://youtu.be/N8TiDF481uU<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2ZBLXa3
+https://bit.ly/2ZBLXa3<p>
+https://is.gd/tpnBe6
 
 <hr>
 🔥<b>【今日点击】</b>美拟禁中共党员入境 华人急做一件事&nbsp;&nbsp;&nbsp;https://youtu.be/wRp9vzX5qis<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2DHxeBJ
+https://bit.ly/2DHxeBJ<p>
+https://is.gd/puEkCW
 
 <hr>
 🔥<b>【陈破空纵论天下】</b>喜大普奔！美国大动作：将驱逐中共党员及其家属！习近平为一件事想不开&nbsp;&nbsp;&nbsp;https://youtu.be/eZ_9SbmSYO4<p>
@@ -143,6 +175,7 @@ https://bit.ly/2DHxeBJ
 https://bit.ly/3fFsxXs<p>
 https://bit.ly/2B6WEYJ
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
