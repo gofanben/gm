@@ -113,6 +113,18 @@ https://bit.ly/2Wq3T5e
 https://bit.ly/3eCJTTa
 
 <hr>
+🔥<b>【天亮时分(政论天下第199集 20200716)】</b>九千万党员禁止来美?川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径&nbsp;&nbsp;&nbsp;https://youtu.be/rBS0l8-N_VM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30mTaKl
+
+<hr>
+🔥<b>【薇羽看世间】</b>【第83期】中国人民银行放水，大陆房地产市场异动，谁是最大赢家？&nbsp;&nbsp;&nbsp;https://youtu.be/glj84acp9n4<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3h8pXJL
+
+<hr>
 🔥<b>【今日点击】</b>美或禁止中共党员入境 蓬佩奥：全世界会让中共付出代价&nbsp;&nbsp;&nbsp;https://youtu.be/N8TiDF481uU<p>
 
 🎯免翻墙：<p>
