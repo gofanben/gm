@@ -104,6 +104,22 @@ http://61.228.218.247/300
 🎯免翻墙：https://bit.ly/391ezMP
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.17 新闻评论</b></div><p>
+
+🔥🔥🔥<b>【新闻看点 李沐阳】</b>“退党”百倍热搜；韩正林郑上制裁名单？美限科技员工签证，华为19.4万人悬了！蓬佩奥再放重话，直呼习“总书记”；川普对华政策十年前就想好了！三大股指大跌，牛市不在？&nbsp;&nbsp;&nbsp;https://youtu.be/3Ybo5cja2XY<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2Wq3T5e
+https://bit.ly/3eCJTTa
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>喜大普奔！美国大动作：将驱逐中共党员及其家属！习近平为一件事想不开&nbsp;&nbsp;&nbsp;https://youtu.be/eZ_9SbmSYO4<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3fFsxXs
+https://bit.ly/2B6WEYJ
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.16 新闻评论</b></div><p>
 
 🔥<b>【薇羽看世间】</b>【第82期】川普簽香港自治法，頒布行政令，一石二鳥打到了誰？&nbsp;&nbsp;&nbsp;https://youtu.be/5DbSwn29xfw<p>
@@ -112,6 +128,7 @@ http://61.228.218.247/300
 https://bit.ly/2ZxbQri
 https://bit.ly/392cujF
 
+<hr>
 🔥<b>【脑洞vs黑洞 第16集】</b>“三峡大坝已经尽力”的背后；为什么美国拆水坝？各国如何赔偿水坝溃坝、泄洪的受害人？&nbsp;&nbsp;&nbsp;https://youtu.be/iB5KprECuw0<p>
 
 🎯免翻墙：<p>
