@@ -12,9 +12,9 @@
 
 💎当你无助的时候，《危难时刻》这个微电影慷慨给予的是解难保命的钥匙。&nbsp;&nbsp;&nbsp;https://youtu.be/JfBhjBBZWnk<p>
 
-🎯免翻墙：https://is.gd/ko45Kn
+🎯免翻墙：https://bit.ly/3jjkqlF
 
-🎯免翻墙：https://is.gd/q8VyYg
+🎯免翻墙：https://is.gd/dsJ5Qw
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -39,13 +39,12 @@
 
 🎯免翻墙版：https://jinpian.org/dfdz/25788
 
-🎯免翻墙：https://is.gd/fzNUHX
+🎯免翻墙：https://bit.ly/3j7Z9LD
 
-🎯免翻墙：https://is.gd/bCsfkW
+🎯免翻墙：https://is.gd/6en1xe
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-<div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
+<div align="center"><img src="/sp-img/0717-ylm.jpg" width=600></div>
 
 🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
 
@@ -53,7 +52,9 @@
 
 🎯免翻墙：https://bit.ly/2ZuYonQ
 
-<hr>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
+
 🔥<b>【真相传媒】</b>不为正义站岗 就为邪恶陪葬——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk<p>
 
 🎯免翻墙：https://is.gd/ivSEq8
