@@ -2,6 +2,7 @@
  
 <div align="center"><h1>免疫有良方</h1></div>
 
+<div align="center"><img src="/wyyzg-img/wyyzg.jpg" width=800></div>
 <!--<div align="center"><a href="http://61.228.177.38/300"><IMG SRC="/zijiu-img/falundafagood.jpg" width=800>-->
 
  <div align=center><a href="https://bit.ly/3ezRQKo"><h3>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo</a></h3></div>
