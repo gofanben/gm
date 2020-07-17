@@ -1,6 +1,6 @@
 <table>
  <tr><td width=880>
-  <h2 align="center"><a href="">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h2>
+  <h2 align="center">退党、退团、退队（三退）方法<br>  ( 可使用真名、化名、小名退 )</h2>
  </p>
 * (1)用海外邮箱发表声明 tuidang@epochtimes.com </p>
 * (2)用破网软件登录 http://tuidang.epochtimes.com </p>
