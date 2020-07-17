@@ -4,7 +4,8 @@
 <div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
 
 <div align="center"><img src="/td-img/tudgibook.png" width=600></div>
-<div align="center"><h3><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h3></div></p>
+
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
 
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(请收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div></p>
 
