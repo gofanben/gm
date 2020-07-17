@@ -1,6 +1,6 @@
 <table>
  <tr><td width=880>
-  <h3 align="center"><a href="">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3>
+  <h2 align="center"><a href="">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h2>
  </p>
 * (1)用海外邮箱发表声明 tuidang@epochtimes.com </p>
 * (2)用破网软件登录 http://tuidang.epochtimes.com </p>
@@ -21,12 +21,12 @@
  </tr>
 </table>
 📣📣
-👫🌸起个化名自己办理三退<p>
-👫🌸已退过的无需重复办理。<p>
-🍎👍请您牢记法轮大法好！真善忍好！<p>
-🌸🌷🌸祝您平安幸福，未来美好！🌸🌷<p>
+<p> <h3 align="center">👫起个化名自己办理三退</a>
+已退过的无需重复办理。<p>
+请您牢记法轮大法好！真善忍好！<p>
+祝您平安幸福，未来美好！🌸🌷<p></h3>
 
-免翻 :
+⭕️免翻 :<p>
 https://bit.ly/2WsRvlk<p>
 
 https://bit.ly/2Zzod6o<p>
