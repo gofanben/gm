@@ -1,4 +1,15 @@
-<table>
+<!doctype html>
+<html lang="en">
+ <head>
+  <meta charset="UTF-8">
+  <meta name="Generator" content="EditPlus®">
+  <meta name="Author" content="">
+  <meta name="Keywords" content="">
+  <meta name="Description" content="">
+  <title>Document</title>
+ </head>
+ <body>
+  <table>
  <tr><td width=880>
   <h3 align="center"><a href="http://">退党、退团、退队（三退）方法  ( 可使用真名、化名、小名退 )</a></h3>
  </p>
@@ -20,6 +31,7 @@
 </td>
  </tr>
 </table>
+
 📣📣
 👫🌸起个化名自己办理三退👫🌸已退过的无需重复办理。🍎👍请您牢记法轮大法好！真善忍好！🌸🌷🌸祝您平安幸福，未来美好！🌸🌷
 
@@ -29,9 +41,13 @@ https://bit.ly/2Zzod6o
 
 https://bit.ly/30nL2sM
 
+
 <table>
 <tr>
  <td>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3></td>
 </tr>
 </table>
+
+ </body>
+</html>
