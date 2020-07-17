@@ -1,4 +1,4 @@
-<div align="center"><img src="/wyyzg-img/wyyzg.jpg" width=800></div>
+<div align="center"><img src="/wyyzg-img/wyyzg-1.jpg" width=800></div>
 
 <!-- <a name=top><div align="center"><h1>病毒針對中共而來<br>【瘟疫与中共】</h1></div> -->
 
