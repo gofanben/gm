@@ -107,6 +107,13 @@ http://61.228.218.247/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.17 新闻评论</b></div><p>
 
+
+🔥🔥🔥<b>【世界的十字路口 唐浩】</b>美禁中共黨員入境，權貴恐慌；中國A股為何暴跌？唐山「餘震」藏中南海禁忌；有一群人，中共為何打不倒？&nbsp;&nbsp;&nbsp;https://youtu.be/b-90YG9p_jg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30hYRZO<p>
+https://bit.ly/3jgr7Ve
+
 🔥🔥🔥<b>【新闻看点 李沐阳】</b>“退党”百倍热搜；韩正林郑上制裁名单？美限科技员工签证，华为19.4万人悬了！蓬佩奥再放重话，直呼习“总书记”；川普对华政策十年前就想好了！三大股指大跌，牛市不在？&nbsp;&nbsp;&nbsp;https://youtu.be/3Ybo5cja2XY<p>
 
 🎯免翻墙：<p>
