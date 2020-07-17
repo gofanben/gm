@@ -109,8 +109,20 @@ http://61.228.218.247/300
 🔥🔥🔥<b>【新闻看点 李沐阳】</b>“退党”百倍热搜；韩正林郑上制裁名单？美限科技员工签证，华为19.4万人悬了！蓬佩奥再放重话，直呼习“总书记”；川普对华政策十年前就想好了！三大股指大跌，牛市不在？&nbsp;&nbsp;&nbsp;https://youtu.be/3Ybo5cja2XY<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2Wq3T5e
+https://bit.ly/2Wq3T5e<p>
 https://bit.ly/3eCJTTa
+
+<hr>
+🔥<b>【天亮时分(政论天下第199集 20200716)】</b>九千万党员禁止来美?川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径&nbsp;&nbsp;&nbsp;https://youtu.be/rBS0l8-N_VM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30mTaKl
+
+<hr>
+🔥<b>【薇羽看世间】</b>【第83期】中国人民银行放水，大陆房地产市场异动，谁是最大赢家？&nbsp;&nbsp;&nbsp;https://youtu.be/glj84acp9n4<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3h8pXJL
 
 <hr>
 🔥<b>【今日点击】</b>美或禁止中共党员入境 蓬佩奥：全世界会让中共付出代价&nbsp;&nbsp;&nbsp;https://youtu.be/N8TiDF481uU<p>
@@ -128,7 +140,7 @@ https://bit.ly/2DHxeBJ
 🔥<b>【陈破空纵论天下】</b>喜大普奔！美国大动作：将驱逐中共党员及其家属！习近平为一件事想不开&nbsp;&nbsp;&nbsp;https://youtu.be/eZ_9SbmSYO4<p>
 
 🎯免翻墙：<p>
-https://bit.ly/3fFsxXs
+https://bit.ly/3fFsxXs<p>
 https://bit.ly/2B6WEYJ
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -137,7 +149,7 @@ https://bit.ly/2B6WEYJ
 🔥<b>【薇羽看世间】</b>【第82期】川普簽香港自治法，頒布行政令，一石二鳥打到了誰？&nbsp;&nbsp;&nbsp;https://youtu.be/5DbSwn29xfw<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2ZxbQri
+https://bit.ly/2ZxbQri<p>
 https://bit.ly/392cujF
 
 <hr>
