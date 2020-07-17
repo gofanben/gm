@@ -1,3 +1,8 @@
+headline,2020-07-17,美拟禁中共党员入境 党媒直呼“比断交严重”,https://www.ntdtv.com/gb/2020/07/17/a102895682.html
+headline,2020-07-17,美拟禁中共党员及家属入境 女袁木回应火了,https://www.ntdtv.com/gb/2020/07/17/a102895681.html
+headline,2020-07-17,中国“退党”成热搜 一招教你如何领取退党证,https://www.ntdtv.com/gb/2020/07/17/a102895722.html
+prog207,2020-07-17,【老北京茶馆】川普单挑中共：拟禁止所有党员入境 废在美家属签证,https://www.ntdtv.com/gb/2020/07/17/a102895799.html
+
 美擬禁中共黨員及家屬入境 「退黨」成熱搜
 https://www.epochtimes.com/gb/20/7/16/n12261905.htm
 
@@ -15,6 +20,8 @@ https://www.ntdtv.com/gb/2020/07/16/a102895490.html
 
 财经冷眼：党员退党大爆发，禁公务员移民，清除华人户籍，政治运动来了！（20200717第286期）
 https://www.youtube.com/watch?v=JXnyXLIpAbg
+
+【睿眼看世界】美国禁止入境，其他西方国家跟进的话 中共党员或只有一条路可走了,https://www.ntdtv.com/gb/2020/07/17/a102895774.html
 
 【睿眼看世界】美国禁止入境，其他西方国家跟进的话，中共党员或只有一条路可走了
 https://www.youtube.com/watch?v=kK1HS-Df9Tw
