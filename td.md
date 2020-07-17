@@ -1,4 +1,5 @@
 <a name=top>
+<div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
 <div align="center"><IMG SRC="td-img/maxresdefault-12-4-800x450.jpg" width=800></div>
 <div align="center"><h1>美拟禁中共党员及家属入境</h1></div>
 
@@ -30,7 +31,8 @@
 <p>还有网友劝中共党员尽快<a href="https://www.ntdtv.com/gb/退党.htm">退党</a>，“中共党员是一种政治身份，当制裁是针对这种政治身份、意识形态时，你就不属于人民了。现在退党也许还来得及。”</p>
 <p>“如此大快人心的事，定要奔走相告。魔鬼的同盟者，就是魔鬼，无需辩解。如有悔悟者，就应该怎么进去的，怎么退出来，这才是负责任的表现。”</p>
 <p>据悉，自7月15日起，Google Trands上“退党”的搜寻急速飙升，而且中国范围内的搜索趋势大增。有网友分析，能用中国ip搜索谷歌的应该是中共特权人士，多数是中共高级党员，这个现象表明，美国禁中共党员入境的震慑力相当大，已引起中共党内恐慌。</p>
-<figure id="attachment_102895683" style="width: 600px" class="wp-caption alignnone"><img class="size-medium wp-image-102895683" src="https://i.ntdtv.com/assets/uploads/2020/07/EdC8uupUEAAEzQE-600x795-1-600x795.jpg" alt="" width="600" height="795" /><figcaption class="wp-caption-text">中国范围内的搜索趋势。（Google Trends网页截图）</figcaption></figure>
+<div align="center"><img src="/td-img/EdC8uupUEAAEzQE-600x795-1-600x795.jpg" width=600></div>
+<div align="center">中国范围内的搜索趋势。（Google Trends网页截图）</div><p>
 <p>总部位于纽约的<a href="https://www.ntdtv.com/gb/全球退党服务中心.htm">全球退党服务中心</a>表示，由他们发出的“退党证书”可获得美国当局承认。</p>
 <p>该中心主席易蓉对新唐人说：“今天早上就有四个人打电话到（退党）办公室，说要领退党证书。他们是从美国不同的地方打来的，他们说是看到这个报导了。”</p>
 <p>根据美国移民法律，如果申请入籍者隐瞒自己是共产党员，通过欺诈而入境、入籍，一旦遭到举报，可能被吊销绿卡，并遭遣返。</p>
