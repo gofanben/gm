@@ -1,13 +1,19 @@
 <a name=top>
-<div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
 <div align="center"><IMG SRC="td-img/maxresdefault-12-4-800x450.jpg" width=800></div>
+<div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
+
 <div align="center"><h1>美拟禁中共党员及家属入境</h1></div>
+
+<div align="center"><img src="/td-img/tudgibook.png" width=600></div>
+<div align="center"><h3><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h3></div></p>
+
+<div align="center"><h3><a href=https://bit.ly/2RQM1hX>(请收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div></p>
 
 <a href =#6>美拟禁中共党员入境 党媒直呼“比断交严重”</a><p>
 <a href =#5>美拟禁中共党员及家属入境 女袁木回应火了</a><p>
 <a href =#4>多消息证实美拟全面反共 制裁党员及家属</a><p>
 <a href =#3>中科院核安全所90多人集体辞职 网曝内幕</a><p>	
-<a href =#2>传中共党员将被禁止入美国？网络欢腾</a><p>	
+<a href =#2>传中共党员将被禁止入美国？网络欢腾</a><p>
 <a href =#1>美拟禁中共党员及家属入境 “退党”成热搜</a><p>	
 
 <hr><a name=6>
