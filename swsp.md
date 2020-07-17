@@ -113,6 +113,18 @@ https://bit.ly/2Wq3T5e
 https://bit.ly/3eCJTTa
 
 <hr>
+🔥<b>【今日点击】</b>美或禁止中共党员入境 蓬佩奥：全世界会让中共付出代价&nbsp;&nbsp;&nbsp;https://youtu.be/N8TiDF481uU<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2ZBLXa3
+
+<hr>
+🔥<b>【今日点击】</b>美拟禁中共党员入境 华人急做一件事&nbsp;&nbsp;&nbsp;https://youtu.be/wRp9vzX5qis<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2DHxeBJ
+
+<hr>
 🔥<b>【陈破空纵论天下】</b>喜大普奔！美国大动作：将驱逐中共党员及其家属！习近平为一件事想不开&nbsp;&nbsp;&nbsp;https://youtu.be/eZ_9SbmSYO4<p>
 
 🎯免翻墙：<p>
