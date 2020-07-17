@@ -1,8 +1,7 @@
 <a name=top>
 <div align="center"><IMG SRC="td-img/maxresdefault-12-4-800x450.jpg" width=800></div>
-<div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
-
 <div align="center"><h1>美拟禁中共党员及家属入境</h1></div>
+<div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
 
 <div align="center"><img src="/td-img/tudgibook.png" width=600></div>
 <div align="center"><h3><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h3></div></p>
