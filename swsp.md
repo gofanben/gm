@@ -95,11 +95,18 @@ http://61.228.221.163/300
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.18 新闻评论</b></div><p>
 
+🔥🔥<b>【珍言真语】</b>袁弓夷(23)：(中文字幕）中共党员名册极易取得，党员连累全家断后路；制裁辣招震慑陆官富豪，马云马化腾危危乎；美国认可大纪元网站退党证书；看谁敢DQ议员自毁前程？｜2020年7月18日&nbsp;&nbsp;&nbsp;https://youtu.be/NGYC5YgeZIE<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CQAhac<p>
+https://is.gd/iXmKzx
+
 🔥🔥<b>【新闻看点 李沐阳】</b>美军机5天3飞中国外海；习近平突喊保党保权？美司法部发警告：好莱坞和迪士尼向中共磕头！地摊经济夭折，小店经济登场；华春莹混淆视听，中共偷换概念；乌鲁木齐封城，下个武汉？&nbsp;&nbsp;&nbsp;https://youtu.be/-c5LPO3e_CU<p>
 
 🎯免翻墙：<p>
 https://bit.ly/396hS5o<p>
 https://is.gd/npnn1N
+
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>突爆疫情！乌鲁木齐封城，抢购景象骇人；惊中央！中科院百人出走；四省暴雨红警，山西也淹了；三万敏感词保习禁评；美禁共入境，官媒喊惊，“退党”成热搜！美再南海操练；50万订阅感言&nbsp;&nbsp;&nbsp;https://youtu.be/xu36gkKVcEs<p>
@@ -107,6 +114,7 @@ https://is.gd/npnn1N
 🎯免翻墙：<p>
 https://bit.ly/3jc4IZv<p>
 https://is.gd/DDvkVL
+
 
 <hr>
 🔥<b>【薇羽看世间】</b>【第84期】报道说川普政府正拟定总统行政令，禁止中共党员及家属入境美国。如果你是党员该怎么办？&nbsp;&nbsp;&nbsp;https://youtu.be/R7zW8eDN47o<p>
