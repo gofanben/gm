@@ -53,32 +53,15 @@
 🎯免翻墙：https://bit.ly/2ZuYonQ
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
 
-🔥<b>【真相传媒】</b>如果还有一次选择的机会，你可能会有更好的认识——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk<p>
 
-🎯免翻墙：https://is.gd/ivSEq8
-
-🎯免翻墙：https://is.gd/0TYyoA
-
-<hr>
-🔥<b>【真相传媒】</b>大規模採集普通人DNA樣本，中共意欲何爲？&nbsp;&nbsp;&nbsp;https://youtu.be/GXoPN_aoV6w<p>
-
-🎯免翻墙：https://is.gd/4IFwvn<p>
-🎯免翻墙：https://is.gd/XoI1rt
-
-<hr>
-🔥<b>【真相传媒】</b>八大调查指证中共活摘人体器官&nbsp;&nbsp;&nbsp;https://youtu.be/5JKgkX16rso<p>
-
-🎯免翻墙：https://is.gd/Oza1a8<p>
-🎯免翻墙：https://is.gd/vz3duC
-
-<hr>
-🔥<b>【紀元播報】</b>袁斌：2020庚子年中國為何異象頻現？&nbsp;&nbsp;&nbsp;https://youtu.be/lKdX9TUyxwk<p>
+🔥<b>【真相传媒】</b>创世界记录！新冠患者存活背后的惊天秘密&nbsp;&nbsp;&nbsp;https://youtu.be/4FpPMF6hXC0<p>
 
 🎯免翻墙：<p>
-https://bit.ly/3eycs4g<p>
-https://bit.ly/3ewYzDt
+https://bit.ly/3ez6ZKE<p>
+https://bit.ly/3fIJsrS
+
+🎯免翻墙：<p>
 
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
@@ -110,13 +93,14 @@ http://61.228.221.163/300
 🔥<b>【文昭谈古论今20200717第787期】</b>禁中共党员来美有实锤答案了！神秘飞机穿越中国入无人之境；美国主动求战超中共意料、司法部长又发威&nbsp;&nbsp;&nbsp;https://youtu.be/HzK-Dy77LDM<p>
 
 🎯免翻墙：<p>
-https://bit.ly/30kUkFX
+https://bit.ly/30kUkFX<p>
 https://bit.ly/30fNrpi
 
+<hr>
 🔥<b>【陈破空纵论天下】</b>政变惊险近两月！直到卫戍司令换人，才敢重开常委会，却只有他一人亮名。接班人激烈争位。司法部长呼吁美国公司拒共&nbsp;&nbsp;&nbsp;https://youtu.be/k5TJqkmyR98<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2WtSxgA
+https://bit.ly/2WtSxgA<p>
 https://is.gd/ucyXAs
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -129,6 +113,7 @@ https://is.gd/ucyXAs
 https://bit.ly/30hYRZO<p>
 https://bit.ly/3jgr7Ve
 
+<hr>
 🔥🔥🔥<b>【新闻看点 李沐阳】</b>“退党”百倍热搜；韩正林郑上制裁名单？美限科技员工签证，华为19.4万人悬了！蓬佩奥再放重话，直呼习“总书记”；川普对华政策十年前就想好了！三大股指大跌，牛市不在？&nbsp;&nbsp;&nbsp;https://youtu.be/3Ybo5cja2XY<p>
 
 🎯免翻墙：<p>
