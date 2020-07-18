@@ -105,6 +105,21 @@ http://61.228.221.163/300
 🎯免翻墙：https://bit.ly/391ezMP
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.18 新闻评论</b></div><p>
+
+🔥<b>【文昭谈古论今20200717第787期】</b>禁中共党员来美有实锤答案了！神秘飞机穿越中国入无人之境；美国主动求战超中共意料、司法部长又发威&nbsp;&nbsp;&nbsp;https://youtu.be/HzK-Dy77LDM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30kUkFX
+https://bit.ly/30fNrpi
+
+🔥<b>【陈破空纵论天下】</b>政变惊险近两月！直到卫戍司令换人，才敢重开常委会，却只有他一人亮名。接班人激烈争位。司法部长呼吁美国公司拒共&nbsp;&nbsp;&nbsp;https://youtu.be/k5TJqkmyR98<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WtSxgA
+https://is.gd/ucyXAs
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.17 新闻评论</b></div><p>
 
 
