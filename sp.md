@@ -61,8 +61,6 @@
 https://bit.ly/3ez6ZKE<p>
 https://bit.ly/3fIJsrS
 
-🎯免翻墙：<p>
-
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
@@ -82,14 +80,15 @@ http://61.228.221.163/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-💎可用真名或话名自己办理三退(如果你有要出国，例如到美国需要证明你不是党员者，请考虑要用真名办理。参考:【今日点击】美拟禁中共党员入境 网友支持：贪官不能携款潜逃。这是小編刚好听到给的建议参考。)<br>
-💎已退过的无需重复办理。<br>
-💎请您牢记法轮大法好！真善忍好！<br>
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
+
+💎可用真名或话名自己办理三退(如果你有要出国，例如到美国需要证明你不是党员者，请考虑要用真名办理。参考:【今日点击】美拟禁中共党员入境 网友支持：贪官不能携款潜逃。这是小編刚好听到给的建议参考。)<p>
+💎已退过的无需重复办理。<p>
+💎请您牢记法轮大法好！真善忍好！<p>
 💎祝您平安幸福，未来美好！🌸🌷<p>
 
 🎯免翻墙：https://bit.ly/3j3XLtj<p>
 🎯免翻墙：https://bit.ly/391ezMP<p>
-<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.18 新闻评论</b></div><p>
@@ -170,6 +169,7 @@ https://is.gd/Qq4Ot2
 https://bit.ly/3jgRDOs<p>
 https://is.gd/ack1UI
 
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.17 新闻评论</b></div><p>
 
