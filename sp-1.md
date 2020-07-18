@@ -4,6 +4,34 @@
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <a name=top>
 
+<div align="center"><img src="/sp-img/0713-truth.jpg" width=600></div>
+
+🔥<b>【真相传媒】</b>如果还有一次选择的机会，你可能会有更好的认识——认清漠视的代价 |第二集：活摘“深入寻常百姓家”&nbsp;&nbsp;&nbsp;https://youtu.be/mb4qhdFfafk<p>
+
+🎯免翻墙：https://is.gd/ivSEq8
+
+🎯免翻墙：https://is.gd/0TYyoA
+
+<hr>
+🔥<b>【真相传媒】</b>大規模採集普通人DNA樣本，中共意欲何爲？&nbsp;&nbsp;&nbsp;https://youtu.be/GXoPN_aoV6w<p>
+
+🎯免翻墙：https://is.gd/4IFwvn<p>
+🎯免翻墙：https://is.gd/XoI1rt
+
+<hr>
+🔥<b>【真相传媒】</b>八大调查指证中共活摘人体器官&nbsp;&nbsp;&nbsp;https://youtu.be/5JKgkX16rso<p>
+
+🎯免翻墙：https://is.gd/Oza1a8<p>
+🎯免翻墙：https://is.gd/vz3duC
+
+<hr>
+🔥<b>【紀元播報】</b>袁斌：2020庚子年中國為何異象頻現？&nbsp;&nbsp;&nbsp;https://youtu.be/lKdX9TUyxwk<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3eycs4g<p>
+https://bit.ly/3ewYzDt
+
+<hr>
 🔥<b>【地球旅馆】</b>解析“贵州怪声”之谜 （下集）：末日预言的预警！？2020年7月14日&nbsp;&nbsp;&nbsp;https://youtu.be/MrCqWN_VCmY<p>
 
 🎯免翻墙：https://is.gd/jAZiBz<p>
