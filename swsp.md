@@ -61,11 +61,11 @@
 https://bit.ly/3ez6ZKE<p>
 https://bit.ly/3fIJsrS
 
-🎯免翻墙：<p>
-
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><h1><a href=http://61.228.211.39/300>視頻連播</a></h1></div></p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -82,13 +82,67 @@ http://61.228.221.163/300
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-👫🌸起个化名自己办理三退👫🌸已退过的无需重复办理。🍎👍请您牢记法轮大法好！真善忍好！🌸🌷🌸祝您平安幸福，未来美好！🌸🌷<p>
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
+
+💎可用真名或化名自己办理三退(如果你将来有需要出国，例如到美国需要证明你不是党员者，请考虑要用真名办理。参考:【今日点击】美拟禁中共党员入境 网友支持：贪官不能携款潜逃。这是小編刚好听到给的建议参考。)<p>
+💎已退过的无需重复办理。<p>
+💎请您牢记法轮大法好！真善忍好！<p>
+💎祝您平安幸福，未来美好！p>
 
 🎯免翻墙：https://bit.ly/3j3XLtj<p>
-🎯免翻墙：https://bit.ly/391ezMP
+🎯免翻墙：https://bit.ly/391ezMP<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.18 新闻评论</b></div><p>
+
+🔥🔥<b>【新闻看点 李沐阳】</b>美军机5天3飞中国外海；习近平突喊保党保权？美司法部发警告：好莱坞和迪士尼向中共磕头！地摊经济夭折，小店经济登场；华春莹混淆视听，中共偷换概念；乌鲁木齐封城，下个武汉？&nbsp;&nbsp;&nbsp;https://youtu.be/-c5LPO3e_CU<p>
+
+🎯免翻墙：<p>
+https://bit.ly/396hS5o<p>
+https://is.gd/npnn1N
+
+<hr>
+🔥<b>【新聞拍案驚奇 大宇】</b>突爆疫情！乌鲁木齐封城，抢购景象骇人；惊中央！中科院百人出走；四省暴雨红警，山西也淹了；三万敏感词保习禁评；美禁共入境，官媒喊惊，“退党”成热搜！美再南海操练；50万订阅感言&nbsp;&nbsp;&nbsp;https://youtu.be/xu36gkKVcEs<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3jc4IZv<p>
+https://is.gd/DDvkVL
+
+<hr>
+🔥<b>【薇羽看世间】</b>【第84期】报道说川普政府正拟定总统行政令，禁止中共党员及家属入境美国。如果你是党员该怎么办？&nbsp;&nbsp;&nbsp;https://youtu.be/R7zW8eDN47o<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OAS2gv<p>
+https://is.gd/QQWIEG
+
+<hr>
+🔥<b>【热点互动】</b>美拟禁止中共党员入境！党员个人该为中共恶行负责吗？现在退党还来得及？美如禁微信，华人怎么办？| 唐靖远 吴建民&nbsp;&nbsp;&nbsp;https://youtu.be/83MFMFsE3Pg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3fHmstg<p>
+https://is.gd/81dfU5
+
+<hr>
+🔥<b>【江峰漫谈20200717第205期】</b>美国南海政策突然转向，局部战争可能性迅速上升，台海军政重点南移，中共军力部署大乱，东亚东盟齐声反共，英国航母在路上&nbsp;&nbsp;&nbsp;https://youtu.be/Da4l72r_q7I<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CJkWIE<p>
+https://is.gd/gPX7ug
+
+<hr>
+🔥<b>【今日点击】</b>美拟禁中共党员入境 网友支持：贪官不能携款潜逃&nbsp;&nbsp;&nbsp;https://youtu.be/O51ZDUstCRs<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3jknNc2<p>
+https://is.gd/sSivWD
+
+<hr>
+🔥<b>【今日点击】</b>半壁江山泡水 习为何不露面？&nbsp;&nbsp;&nbsp;https://youtu.be/4sFmLbC5B0E<p>
+
+🎯免翻墙：<p>
+https://bit.ly/39f5GiT<p>
+https://is.gd/l9RGNi
+
 
 🔥<b>【文昭谈古论今20200717第787期】</b>禁中共党员来美有实锤答案了！神秘飞机穿越中国入无人之境；美国主动求战超中共意料、司法部长又发威&nbsp;&nbsp;&nbsp;https://youtu.be/HzK-Dy77LDM<p>
 
@@ -103,6 +157,21 @@ https://bit.ly/30fNrpi
 https://bit.ly/2WtSxgA<p>
 https://is.gd/ucyXAs
 
+<hr>
+🔥<b>【今日焦点】</b>湖北恩施水灾来袭 城市被淹人困车顶求救 |湖北恩施清江江水暴涨|车被没顶&nbsp;&nbsp;&nbsp;https://youtu.be/hp0FtBy24rc<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OAlTFT<p>
+https://is.gd/Qq4Ot2
+
+<hr>
+【中国禁闻】7月16日完整版 (字幕)🔥 汛情严峻 卫星照曝三峡大坝超级泄洪；最难就业季来临 陆高校就业率奇葩造假；青海前政协委员王瑞琴: 民企痛恨中共体制。&nbsp;&nbsp;&nbsp;https://youtu.be/l8UL-mknbgA<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3jgRDOs<p>
+https://is.gd/ack1UI
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.17 新闻评论</b></div><p>
 
