@@ -117,6 +117,12 @@ http://61.228.191.128/69
 https://bit.ly/3heXty6<p>
 https://is.gd/AI9vV1
 
+🔥<b>【天亮时分】</b>“40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战?中国第二季度GDP到底增长多少?(政论天下第200集 20200718)天亮时分&nbsp;&nbsp;&nbsp;https://youtu.be/vE2lsOm-pMY<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OFsiQ1<p>
+https://is.gd/tZZ9As
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.18 新闻评论</b></div><p>
 
