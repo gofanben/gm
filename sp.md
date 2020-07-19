@@ -105,6 +105,7 @@ http://61.228.191.128/69
 💎请您牢记法轮大法好！真善忍好！<p>
 💎祝您平安幸福，未来美好！p>
 
+🎯免翻墙：https://bit.ly/30tEyZH<p>
 🎯免翻墙：https://bit.ly/3j3XLtj<p>
 🎯免翻墙：https://bit.ly/391ezMP<p>
 
@@ -116,6 +117,12 @@ http://61.228.191.128/69
 🎯免翻墙：<p>
 https://bit.ly/3heXty6<p>
 https://is.gd/AI9vV1
+
+🔥<b>【薇羽看世间】</b>【第85期】马克思并非共产主义的创始人，而是一个被雇佣的枪手。光照帮的秘密使命令人震惊 &nbsp;&nbsp;&nbsp;https://youtu.be/TOyBdVbtQic<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OENQws<p>
+https://is.gd/gaZdO7
 
 🔥<b>【新闻看点 李沐阳】</b>❗️伊朗2500万染疫；全球100小时新增100万确诊！乌鲁木齐进入战时状态；白发战狼上任，中共外交部添新面孔；近七成患者家中感染？高官为何不染病？洪水未到先部署， 北京又甩锅？&nbsp;&nbsp;&nbsp;https://youtu.be/71SicZXcZ88<p>
 
