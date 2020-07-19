@@ -130,6 +130,12 @@ https://is.gd/QQWIEG
 https://bit.ly/3fHmstg<p>
 https://is.gd/81dfU5
 
+🔥<b>【关键时刻精选】</b惊见江西瓷器重镇水中漂！中共官媒称洪灾景“犹如仙境”！？&nbsp;&nbsp;&nbsp;https://youtu.be/m4RP7v_gbx8<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2DXA6L2<p>
+https://is.gd/pQhx84
+
 <hr>
 【关键时刻】三峡大坝又惨了！？长江第2号洪水形成！ 堤防渗水宁“弃农村保城市”！？ 【关键时刻】20200717-5&nbsp;&nbsp;&nbsp;https://youtu.be/VS-LXE61r2Q<p>
 
