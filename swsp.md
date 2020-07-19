@@ -80,6 +80,15 @@ http://61.228.217.164/300
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
 ⭕️国内直通版：https://jinpian.org/dayu/25746/
+
+⭕️明見網每日IP
+
+http://61.228.210.179/69
+
+http://61.228.182.116/69
+
+http://61.228.191.128/69
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
@@ -91,6 +100,15 @@ http://61.228.217.164/300
 
 🎯免翻墙：https://bit.ly/3j3XLtj<p>
 🎯免翻墙：https://bit.ly/391ezMP<p>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.19 新闻 评论</b></div><p>
+
+🔥🔥<b>【陈破空纵论天下】</b>网路沸腾！党员与微信咋办？退党搜索暴增！香港官员绝望。美台利器直指中南海！双航母再度光临&nbsp;&nbsp;&nbsp;https://youtu.be/zFrpBvMnlbA<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3heXty6<p>
+https://is.gd/AI9vV1
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.18 新闻评论</b></div><p>
