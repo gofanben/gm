@@ -117,6 +117,12 @@ http://61.228.191.128/69
 https://bit.ly/3heXty6<p>
 https://is.gd/AI9vV1
 
+🔥<b>【新闻看点 李沐阳】</b>❗️伊朗2500万染疫；全球100小时新增100万确诊！乌鲁木齐进入战时状态；白发战狼上任，中共外交部添新面孔；近七成患者家中感染？高官为何不染病？洪水未到先部署， 北京又甩锅？&nbsp;&nbsp;&nbsp;https://youtu.be/71SicZXcZ88<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WyXchj<p>
+https://is.gd/5U9bmt
+
 🔥<b>【天亮时分】</b>“40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战?中国第二季度GDP到底增长多少?(政论天下第200集 20200718)天亮时分&nbsp;&nbsp;&nbsp;https://youtu.be/vE2lsOm-pMY<p>
 
 🎯免翻墙：<p>
