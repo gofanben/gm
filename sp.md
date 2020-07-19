@@ -65,17 +65,17 @@ https://bit.ly/3fIJsrS
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><h1><a href=http://61.228.211.39/300>視頻連播</a></h1></div></p>
+<div align="center"><h1><a href=http://61.228.183.191/300>視頻連播</a></h1></div></p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
 ⭕️每日最新视频、评论
 
-http://61.228.211.39/300
+http://61.228.183.191/300
 
-http://61.228.219.84/300
+http://61.228.216.159/300
 
-http://61.228.221.163/300
+http://61.228.217.164/300
 
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
