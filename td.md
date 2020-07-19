@@ -1,5 +1,5 @@
 <a name=top>
-<div align="center"><IMG SRC="td-img/maxresdefault-12-4-800x450.jpg" width=800></div>
+<div align="center"><IMG SRC="td-img/0719-areyoutui.jpg" width=800></div>
 <div align="center"><h1>美拟禁中共党员及家属入境</h1></div>
 <div align="center"><IMG SRC="td-img/tui-google.png" width=800></div>
 
