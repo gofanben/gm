@@ -65,17 +65,17 @@ https://bit.ly/3fIJsrS
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><h1><a href=http://61.228.211.39/300>視頻連播</a></h1></div></p>
+<div align="center"><h1><a href=http://61.228.183.191/300>視頻連播</a></h1></div></p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
 ⭕️每日最新视频、评论
 
-http://61.228.211.39/300
+http://61.228.183.191/300
 
-http://61.228.219.84/300
+http://61.228.216.159/300
 
-http://61.228.221.163/300
+http://61.228.217.164/300
 
 及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
 
@@ -129,6 +129,13 @@ https://is.gd/QQWIEG
 🎯免翻墙：<p>
 https://bit.ly/3fHmstg<p>
 https://is.gd/81dfU5
+
+<hr>
+【关键时刻】三峡大坝又惨了！？长江第2号洪水形成！ 堤防渗水宁“弃农村保城市”！？ 【关键时刻】20200717-5&nbsp;&nbsp;&nbsp;https://youtu.be/VS-LXE61r2Q<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WvCnU2<p>
+https://is.gd/hEQEGc
 
 <hr>
 🔥<b>【江峰漫谈20200717第205期】</b>美国南海政策突然转向，局部战争可能性迅速上升，台海军政重点南移，中共军力部署大乱，东亚东盟齐声反共，英国航母在路上&nbsp;&nbsp;&nbsp;https://youtu.be/Da4l72r_q7I<p>
