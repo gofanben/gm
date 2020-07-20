@@ -110,7 +110,34 @@ http://61.228.190.9/69
 🎯免翻墙：https://bit.ly/391ezMP<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-<div align="center"><b>2020.07.19 新闻 评论</b></div><p>
+<div align="center"><b>2020.07.20 新闻 评论</b></div><p>
+
+🔥<b>【陈破空纵论天下】</b>习李隔空过招！王沪宁密令封杀他。美中断交一步之遥？日企大举撤离中国。印度全力备战&nbsp;&nbsp;&nbsp;https://youtu.be/noI8neAsnh4<p>
+
+<hr>
+🔥🔥<b>【时事小品_660期】</b>隔空嫖娼&nbsp;&nbsp;&nbsp;https://youtu.be/rcUdcGuod-k<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30wnh1K<p>
+https://is.gd/ACNBoq
+
+<hr>
+🔥🔥<b>【外交部大实话】</b>：中共南海基地做好被强拆准备，被制裁的美国人来不了中国〝损失巨大〞&nbsp;&nbsp;&nbsp;https://youtu.be/-CbluIvu5O0<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30pgK9i<p>
+https://is.gd/7Uk4O0
+
+<hr>
+🔥🔥<b>【经典搞笑合集尽在大陆新闻解毒】</b>｜精彩集锦片段回顾7&nbsp;&nbsp;&nbsp;https://youtu.be/DNUTsy72-m4<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3eNjX7w<p>
+https://is.gd/eFKkt3
+
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><b>2020.07.19 新闻 评论</b></div><p>〝
 
 🔥🔥<b>【陈破空纵论天下】</b>网路沸腾！党员与微信咋办？退党搜索暴增！香港官员绝望。美台利器直指中南海！双航母再度光临&nbsp;&nbsp;&nbsp;https://youtu.be/zFrpBvMnlbA<p>
 
@@ -118,24 +145,28 @@ http://61.228.190.9/69
 https://bit.ly/3heXty6<p>
 https://is.gd/AI9vV1
 
+<hr>
 🔥<b>【薇羽看世间】</b>【第85期】马克思并非共产主义的创始人，而是一个被雇佣的枪手。光照帮的秘密使命令人震惊 &nbsp;&nbsp;&nbsp;https://youtu.be/TOyBdVbtQic<p>
 
 🎯免翻墙：<p>
 https://bit.ly/2OENQws<p>
 https://is.gd/gaZdO7
 
+<hr>
 🔥🔥<b>【新闻看点 李沐阳】</b>❗️伊朗2500万染疫；全球100小时新增100万确诊！乌鲁木齐进入战时状态；白发战狼上任，中共外交部添新面孔；近七成患者家中感染？高官为何不染病？洪水未到先部署， 北京又甩锅？&nbsp;&nbsp;&nbsp;https://youtu.be/71SicZXcZ88<p>
 
 🎯免翻墙：<p>
 https://bit.ly/2WyXchj<p>
 https://is.gd/5U9bmt
 
+<hr>
 🔥<b>【Jason快评】</b>日本因中共而调整军事国策？中共和伊朗的经济军事合作计划有多危险？美国最近出现一个让中共睡不好觉的现象&nbsp;&nbsp;&nbsp;https://youtu.be/ru_0omvPlO8<p>
 
 🎯免翻墙：<p>
 https://bit.ly/3eHikIF<p>
 https://is.gd/Np2ahm
 
+<hr>
 🔥<b>【天亮时分】</b>“40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战?中国第二季度GDP到底增长多少?(政论天下第200集 20200718)天亮时分&nbsp;&nbsp;&nbsp;https://youtu.be/vE2lsOm-pMY<p>
 
 🎯免翻墙：<p>
@@ -151,12 +182,12 @@ https://is.gd/tZZ9As
 https://bit.ly/2CQAhac<p>
 https://is.gd/iXmKzx
 
+<hr>
 🔥🔥<b>【新闻看点 李沐阳】</b>美军机5天3飞中国外海；习近平突喊保党保权？美司法部发警告：好莱坞和迪士尼向中共磕头！地摊经济夭折，小店经济登场；华春莹混淆视听，中共偷换概念；乌鲁木齐封城，下个武汉？&nbsp;&nbsp;&nbsp;https://youtu.be/-c5LPO3e_CU<p>
 
 🎯免翻墙：<p>
 https://bit.ly/396hS5o<p>
 https://is.gd/npnn1N
-
 
 <hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>突爆疫情！乌鲁木齐封城，抢购景象骇人；惊中央！中科院百人出走；四省暴雨红警，山西也淹了；三万敏感词保习禁评；美禁共入境，官媒喊惊，“退党”成热搜！美再南海操练；50万订阅感言&nbsp;&nbsp;&nbsp;https://youtu.be/xu36gkKVcEs<p>
