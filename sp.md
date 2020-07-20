@@ -1,20 +1,5 @@
 <div align="center"><a href="https://bit.ly/3ezRQKo"><IMG SRC="https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg" width=640></a></div>
 <a name=top>
-<div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div></p>
-
-<div align="center"><h3><b>微电影：危难时刻</b></h3></div>
-<div align="center"><img src="/sp-img/weinansikg.jpg" width=600></div>
-<div align="center">剧情片《危难时刻》 ｜ 还原武汉市民一家感染真实事件影片</div><p>
-
-💎寻找活下去的钥匙，是大瘟疫大灾难下人的本能。该电影围绕着一家人染中共病毒后重生的真实故事，给网友们指出一条生路。<p>
-
-💎在此，我们推荐有中英文字幕的微电影《危难时刻》，它是为世界上每一位有缘人准备的。<p>
-
-💎当你无助的时候，《危难时刻》这个微电影慷慨给予的是解难保命的钥匙。&nbsp;&nbsp;&nbsp;https://youtu.be/JfBhjBBZWnk<p>
-
-🎯免翻墙：https://bit.ly/3jjkqlF
-
-🎯免翻墙：https://is.gd/dsJ5Qw
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -26,22 +11,6 @@
 🎯免翻墙：https://bit.ly/3jb2d9M
 
 🎯免翻墙：https://bit.ly/38Ys2oD
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-<div align="center"><h3><b>电影《永恒的五十分钟》（《为你而来》系列第二部）</b></h3></div>
-
-<div align="center"><img src="/sp-img/14730498588876552608.png" width=600></div>
-<div align="center"><img src="/sp-img/FIFTY_MINUTES.jpg" width=600></div>
-<div align="center">为你而来 𝐈𝐈 【永恒的五十分钟】 ｜ COMING FOR YOU II 【ETERNAL FIFTY MINUTES】</div><p>
-
-本片根据#真实事件改编，#揭示惊天大案 ，#还原历史真相。精心策划的一把火，点燃了一场全国运动，一群普通善良的人，完成了一次惊世壮举。&nbsp;&nbsp;&nbsp;https://youtu.be/ebKBaGf836E<p>
-
-🎯免翻墙版：https://jinpian.org/dfdz/25788
-
-🎯免翻墙：https://bit.ly/3j7Z9LD
-
-🎯免翻墙：https://is.gd/6en1xe
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/0717-ylm.jpg" width=600></div>
@@ -62,17 +31,11 @@
 https://bit.ly/2CKp8rM<p>
 https://is.gd/U6dZBL
 
-🔥<b>【真相传媒】</b>创世界记录！新冠患者存活背后的惊天秘密&nbsp;&nbsp;&nbsp;https://youtu.be/4FpPMF6hXC0<p>
-
-🎯免翻墙：<p>
-https://bit.ly/3ez6ZKE<p>
-https://bit.ly/3fIJsrS
-
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><h1><a href=http://61.228.183.191/300>視頻連播</a></h1></div></p>
+<div align="center"><h1><a href=http://61.228.188.49/300>視頻連播</a></h1></div></p>
 
 由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
 
@@ -97,6 +60,24 @@ http://61.228.190.27/69
 http://61.228.190.9/69
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
+<div align="center"><h3><b>网必通 免费翻墙神器</b></h3></div>
+
+⭕️拥有能持续获得新时事真相和解析的管道
+⭕️只要下载后  就能持续能看到新资讯  不怕封锁
+⭕️ 自动安装 / 自动更新/  
+⭕️方便,速度快 / 适合新手使用
+
+💎局勢變化很快
+💎知情权就是生命权
+💎洪灾, 疫情, 财经速报 / 内幕趋势解析
+
+⭕️安卓. Windows 版下载: 
+https://bit.ly/2OHYan7
+⭕️MAC 版下载: 
+https://bit.ly/2CTDs1e
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
 
@@ -112,24 +93,37 @@ http://61.228.190.9/69
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.20 新闻 评论</b></div><p>
 
-🔥<b>【陈破空纵论天下】</b>习李隔空过招！王沪宁密令封杀他。美中断交一步之遥？日企大举撤离中国。印度全力备战&nbsp;&nbsp;&nbsp;https://youtu.be/noI8neAsnh4<p>
+<div align="center"><img src="/sp-img/0720-jfmt.jpg" width=600></div><p>
+
+🔥<b>【江峰漫谈20200719第206期】</b>肖建华明天系金融王国被全面接管，“严正声明”后面的深厚背景，预示北戴河会议中共元老将集体向习近平发难&nbsp;&nbsp;&nbsp;https://youtu.be/_gKFIcb6_2c<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3hg13Yx<p>
+https://is.gd/lZCjWI
 
 <hr>
-🔥🔥<b>【时事小品_660期】</b>隔空嫖娼&nbsp;&nbsp;&nbsp;https://youtu.be/rcUdcGuod-k<p>
+🔥<b>【陈破空纵论天下】</b>习李隔空过招！王沪宁密令封杀他。美中断交一步之遥？日企大举撤离中国。印度全力备战&nbsp;&nbsp;&nbsp;https://youtu.be/noI8neAsnh4<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CwwdML<p>
+https://is.gd/etwjSl
+
+<hr>
+🔥<b>【时事小品_660期】</b>隔空嫖娼&nbsp;&nbsp;&nbsp;https://youtu.be/rcUdcGuod-k<p>
 
 🎯免翻墙：<p>
 https://bit.ly/30wnh1K<p>
 https://is.gd/ACNBoq
 
 <hr>
-🔥🔥<b>【外交部大实话】</b>：中共南海基地做好被强拆准备，被制裁的美国人来不了中国〝损失巨大〞&nbsp;&nbsp;&nbsp;https://youtu.be/-CbluIvu5O0<p>
+🔥<b>【外交部大实话】</b>：中共南海基地做好被强拆准备，被制裁的美国人来不了中国〝损失巨大〞&nbsp;&nbsp;&nbsp;https://youtu.be/-CbluIvu5O0<p>
 
 🎯免翻墙：<p>
 https://bit.ly/30pgK9i<p>
 https://is.gd/7Uk4O0
 
 <hr>
-🔥🔥<b>【经典搞笑合集尽在大陆新闻解毒】</b>｜精彩集锦片段回顾7&nbsp;&nbsp;&nbsp;https://youtu.be/DNUTsy72-m4<p>
+🔥<b>【经典搞笑合集尽在大陆新闻解毒】</b>｜精彩集锦片段回顾7&nbsp;&nbsp;&nbsp;https://youtu.be/DNUTsy72-m4<p>
 
 🎯免翻墙：<p>
 https://bit.ly/3eNjX7w<p>
