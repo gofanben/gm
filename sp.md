@@ -95,6 +95,13 @@ https://bit.ly/2CTDs1e
 
 <div align="center"><img src="/sp-img/0720-jfmt.jpg" width=600></div><p>
 
+<div align="center"><img src="/sp-img/0720-xrzn.jpg" width=600></div><p>
+🔥<b>【细语人生】</b>新的人生在兑现 第四集&nbsp;&nbsp;&nbsp;https://youtu.be/dE4dYGRU0XY<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32DbwJQ<p>
+https://is.gd/fUfVqB
+
 🔥<b>【江峰漫谈20200719第206期】</b>肖建华明天系金融王国被全面接管，“严正声明”后面的深厚背景，预示北戴河会议中共元老将集体向习近平发难&nbsp;&nbsp;&nbsp;https://youtu.be/_gKFIcb6_2c<p>
 
 🎯免翻墙：<p>
