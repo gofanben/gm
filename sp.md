@@ -63,19 +63,19 @@ http://61.228.190.9/69
 <div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
 <div align="center"><h3><b>网必通 免费翻墙神器</b></h3></div>
 
-⭕️拥有能持续获得新时事真相和解析的管道
-⭕️只要下载后  就能持续能看到新资讯  不怕封锁
-⭕️ 自动安装 / 自动更新/  
-⭕️方便,速度快 / 适合新手使用
+⭕️拥有能持续获得新时事真相和解析的管道<p>
+⭕️只要下载后  就能持续能看到新资讯  不怕封锁<p>
+⭕️ 自动安装 / 自动更新/  <p>
+⭕️方便,速度快 / 适合新手使用<p>
 
-💎局勢變化很快
-💎知情权就是生命权
-💎洪灾, 疫情, 财经速报 / 内幕趋势解析
+💎局勢變化很快<p>
+💎知情权就是生命权<p>
+💎洪灾, 疫情, 财经速报 / 内幕趋势解析<p>
 
-⭕️安卓. Windows 版下载: 
-https://bit.ly/2OHYan7
-⭕️MAC 版下载: 
-https://bit.ly/2CTDs1e
+⭕️安卓. Windows 版下载: <p>
+https://bit.ly/2OHYan7<p>
+⭕️MAC 版下载: <p>
+https://bit.ly/2CTDs1e<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -93,7 +93,6 @@ https://bit.ly/2CTDs1e
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.20 新闻 评论</b></div><p>
 
-<div align="center"><img src="/sp-img/0720-jfmt.jpg" width=600></div><p>
 
 <div align="center"><img src="/sp-img/0720-xrzn.jpg" width=600></div><p>
 🔥<b>【细语人生】</b>新的人生在兑现 第四集&nbsp;&nbsp;&nbsp;https://youtu.be/dE4dYGRU0XY<p>
@@ -102,6 +101,8 @@ https://bit.ly/2CTDs1e
 https://bit.ly/32DbwJQ<p>
 https://is.gd/fUfVqB
 
+<hr>
+<div align="center"><img src="/sp-img/0720-jfmt.jpg" width=600></div><p>
 🔥<b>【江峰漫谈20200719第206期】</b>肖建华明天系金融王国被全面接管，“严正声明”后面的深厚背景，预示北戴河会议中共元老将集体向习近平发难&nbsp;&nbsp;&nbsp;https://youtu.be/_gKFIcb6_2c<p>
 
 🎯免翻墙：<p>
