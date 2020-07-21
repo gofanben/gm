@@ -70,10 +70,17 @@ https://bit.ly/2CTDs1e<p>
 
 🎯免翻墙：<p>
 https://bit.ly/39fZK9x<p>
-https://bit.ly/2CQHg35<p>
+https://bit.ly/2CQHg35
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
+
+<div align="center"><img src="/sp-img/0721-tlsf.jpg" width=880></div><p>
+🔥<b>【天亮时分(政论天下第201集 20200720)】</b>中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外； 评美国国务院最新声明&nbsp;&nbsp;&nbsp;https://youtu.be/A_MuK1VhMjo<p>
+
+🎯免翻墙：<p>
+https://bit.ly/39fN2aA<p>
+https://is.gd/dFrF36
 
 🔥<b>【文昭谈古论今20200720第788期】</b>习近平“揽炒”没收高层家族钱袋子；核研究所近百科学家集体辞职，有内幕更有严重问题&nbsp;&nbsp;&nbsp;https://youtu.be/XiEXVY9dcPY<p>
 
