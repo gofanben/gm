@@ -77,7 +77,14 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
-🔥<b>【热点互动】</b>美国务院首次为法轮功发声明意味着什么？首位受川普总统接见法轮功学员谈印象；法轮功21年反迫害之路，“柔弱胜刚强” &nbsp;&nbsp;&nbsp;https://youtu.be/watch?v=A_erxaXED60<p>
+🔥<b>【薇羽看世间】</b>【第86期】长江流域洪水肆虐，中国大陆中半壁江山泡在水中。这不是一场天災，也不是简单的人祸，而是一种谋杀！&nbsp;&nbsp;&nbsp;https://youtu.be/IVvjwf9I7po
+
+🎯免翻墙：<p>
+https://bit.ly/2ZMyvAd
+https://is.gd/zGfQLx
+
+<hr>
+🔥<b>【热点互动】</b>美国务院首次为法轮功发声明意味着什么？首位受川普总统接见法轮功学员谈印象；法轮功21年反迫害之路，“柔弱胜刚强” &nbsp;&nbsp;&nbsp;https://youtu.be/A_erxaXED60<p>
 
 🎯免翻墙：<p>
 https://bit.ly/2CPON2j<p>
