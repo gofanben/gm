@@ -35,32 +35,6 @@ https://is.gd/U6dZBL
 <div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-<div align="center"><h1><a href=http://61.228.188.49/300>視頻連播</a></h1></div></p>
-
-由于大陆疯狂封网的原因，此类视频最好是下载后观看，每天早上8点之前是下载比较流畅的时段。
-
-⭕️每日最新视频、评论
-
-http://61.228.188.49/300
-
-http://61.228.217.161/300
-
-http://61.228.219.129/300
-
-及時IP網址 1天時效，請收藏 https://git.io/swspip  連上每日最新IP。
-
-⭕️国内直通版：https://jinpian.org/dayu/25746/
-
-⭕️明見網每日IP
-
-http://61.228.210.91/69
-
-http://61.228.190.27/69
-
-http://61.228.190.9/69
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
 <div align="center"><h3><b>网必通 免费翻墙神器</b></h3></div>
 
@@ -87,9 +61,35 @@ https://bit.ly/2CTDs1e<p>
 💎请您牢记法轮大法好！真善忍好！<p>
 💎祝您平安幸福，未来美好！p>
 
-🎯免翻墙：https://bit.ly/30tEyZH<p>
 🎯免翻墙：https://bit.ly/3j3XLtj<p>
 🎯免翻墙：https://bit.ly/391ezMP<p>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
+
+🔥<b>【文昭谈古论今20200720第788期】</b>习近平“揽炒”没收高层家族钱袋子；核研究所近百科学家集体辞职，有内幕更有严重问题&nbsp;&nbsp;&nbsp;https://youtu.be/XiEXVY9dcPY<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3hlsmRi<p>
+https://is.gd/b9a39q
+
+🔥<b>【新闻看点 李沐阳】</b>三峡大坝有问题，中共“羞涩”承认；安徽滁河炸堤泄洪！中歼11B永兴岛列阵，美B1B部署关岛，中美隔空示威，南海一触即发！若中共侵台，川普将被授权动用军力？川普对华政策高参竟然是华人！&nbsp;&nbsp;&nbsp;https://youtu.be/NSb1R2iUCnU<p>
+
+🎯免翻墙：<p>
+https://bit.ly/30tZFe9<p>
+https://is.gd/vlWUJM
+
+【中国禁闻】7月20日完整版 🔥720反迫害 全球筑真相长城 和平抗暴唤良知；华府“天灭中共”研讨会 感佩法轮功21年坚持；泄洪未通知 安徽固镇万人被洪水围困。&nbsp;&nbsp;&nbsp;https://youtu.be/nivhhLBMiHM<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32Fwqbg<p>
+https://is.gd/LpWYzI
+
+🔥<b>【陈破空纵论天下】</b>美国军机飞越北京上空？习近平神隐另有玄机！英国奋起。王毅玩起高级黑&nbsp;&nbsp;&nbsp;https://youtu.be/jyZ0YXoEyTg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3jyYUJI<p>
+https://is.gd/jxVYMU
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.20 新闻 评论</b></div><p>
