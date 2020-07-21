@@ -77,11 +77,18 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
-🔥<b>【薇羽看世间】</b>【第86期】长江流域洪水肆虐，中国大陆中半壁江山泡在水中。这不是一场天災，也不是简单的人祸，而是一种谋杀！&nbsp;&nbsp;&nbsp;https://youtu.be/IVvjwf9I7po
+🔥<b>【薇羽看世间】</b>【第86期】长江流域洪水肆虐，中国大陆中半壁江山泡在水中。这不是一场天災，也不是简单的人祸，而是一种谋杀！&nbsp;&nbsp;&nbsp;https://youtu.be/IVvjwf9I7po<p>
 
 🎯免翻墙：<p>
-https://bit.ly/2ZMyvAd
+https://bit.ly/2ZMyvAd<p>
 https://is.gd/zGfQLx
+
+<hr>
+🔥<b>【江峰漫谈 20200720第207期】</b>美追打中共；英终止香港引渡条例、寻求日本建设没有华为的5G；南海问题、疫情追责——中共外交部新发言人汪文斌上班第一天&nbsp;&nbsp;&nbsp;https://youtu.be/k3NCQhWb6JI<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WGbQmW<p>
+https://is.gd/ttzpMq
 
 <hr>
 🔥<b>【热点互动】</b>美国务院首次为法轮功发声明意味着什么？首位受川普总统接见法轮功学员谈印象；法轮功21年反迫害之路，“柔弱胜刚强” &nbsp;&nbsp;&nbsp;https://youtu.be/A_erxaXED60<p>
