@@ -31,9 +31,9 @@
 
 <!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="/zijiu-img/zijiu_logo-3.jpg" width=800></div>-->
  
+ <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)<p>
  <a href =#k>全球退党中心倡议：解体中共 远离瘟疫(置顶)</a><p>	
 <a href =#j>【特稿】越亲中共疫情越重 防疫有良方<p>
-<a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)<p>
 <a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)<p>
 <a href =#h>一位武汉肺炎患者的获救经历(置顶)<p>
 <a href =#g>广播：平安度过劫难的护身符(置顶)<p>
