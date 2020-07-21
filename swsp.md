@@ -73,18 +73,27 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md"><h3>【精彩保留】</h3></a></div><p>
 
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
-<div align="center"><img src="/sp-img/0721crosses.jpg" width=6000></div><p>
+<div align="center"><img src="/sp-img/0721gjgj.jpg" width=600></div><p>
 
+【2020聚焦關鍵】美研擬禁共產黨入境！意外引爆反習近平浪潮？紅二代狂蒐退黨？&nbsp;&nbsp;&nbsp;https://youtu.be/watch?v=7tRPpPn3VFw<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WJ3fjv<p>
+https://is.gd/pDT1hy
+
+<hr>
+<div align="center"><img src="/sp-img/0721crosses.jpg" width=600></div><p>
 🔥<b>【世界的十字路口 唐浩】</b>美国追击中共，为何是他出谋划策？【透视共产党】灾祸连连，中共如何带风向？&nbsp;&nbsp;&nbsp;https://youtu.be/xTZbFo6S4mg<p>
 
 🎯免翻墙：<p>
-https://bit.ly/39iii90
+https://bit.ly/39iii90<p>
 https://is.gd/gzTN3Z
 
+<hr>
 🔥<b>【今日点击】</b>英国拟终止与香港引渡条约并制裁中共官员&nbsp;&nbsp;&nbsp;https://youtu.be/4h-uKe0wHZo<p>
 
 🎯免翻墙：<p>
