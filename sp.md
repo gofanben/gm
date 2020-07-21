@@ -78,30 +78,35 @@ https://bit.ly/2CTDs1e<p>
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
 <div align="center"><img src="/sp-img/0721-tlsf.jpg" width=880></div><p>
+
 🔥<b>【天亮时分(政论天下第201集 20200720)】</b>中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外； 评美国国务院最新声明&nbsp;&nbsp;&nbsp;https://youtu.be/A_MuK1VhMjo<p>
 
 🎯免翻墙：<p>
 https://bit.ly/39fN2aA<p>
 https://is.gd/dFrF36
 
+<hr>
 🔥<b>【文昭谈古论今20200720第788期】</b>习近平“揽炒”没收高层家族钱袋子；核研究所近百科学家集体辞职，有内幕更有严重问题&nbsp;&nbsp;&nbsp;https://youtu.be/XiEXVY9dcPY<p>
 
 🎯免翻墙：<p>
 https://bit.ly/3hlsmRi<p>
 https://is.gd/b9a39q
 
+<hr>
 🔥<b>【新闻看点 李沐阳】</b>三峡大坝有问题，中共“羞涩”承认；安徽滁河炸堤泄洪！中歼11B永兴岛列阵，美B1B部署关岛，中美隔空示威，南海一触即发！若中共侵台，川普将被授权动用军力？川普对华政策高参竟然是华人！&nbsp;&nbsp;&nbsp;https://youtu.be/NSb1R2iUCnU<p>
 
 🎯免翻墙：<p>
 https://bit.ly/30tZFe9<p>
 https://is.gd/vlWUJM
 
+<hr>
 【中国禁闻】7月20日完整版 🔥720反迫害 全球筑真相长城 和平抗暴唤良知；华府“天灭中共”研讨会 感佩法轮功21年坚持；泄洪未通知 安徽固镇万人被洪水围困。&nbsp;&nbsp;&nbsp;https://youtu.be/nivhhLBMiHM<p>
 
 🎯免翻墙：<p>
 https://bit.ly/32Fwqbg<p>
 https://is.gd/LpWYzI
 
+<hr>
 🔥<b>【陈破空纵论天下】</b>美国军机飞越北京上空？习近平神隐另有玄机！英国奋起。王毅玩起高级黑&nbsp;&nbsp;&nbsp;https://youtu.be/jyZ0YXoEyTg<p>
 
 🎯免翻墙：<p>
@@ -111,7 +116,6 @@ https://is.gd/jxVYMU
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><b>2020.07.20 新闻 评论</b></div><p>
 
-<hr>
 <div align="center"><img src="/sp-img/0720-jfmt.jpg" width=600></div><p>
 🔥<b>【江峰漫谈20200719第206期】</b>肖建华明天系金融王国被全面接管，“严正声明”后面的深厚背景，预示北戴河会议中共元老将集体向习近平发难&nbsp;&nbsp;&nbsp;https://youtu.be/_gKFIcb6_2c<p>
 
