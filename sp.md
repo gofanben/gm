@@ -9,18 +9,18 @@
 
 巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
 
-🎯免翻墙：https://bit.ly/3jb2d9M
+🎯免翻墙：https://bit.ly/2Bl6mH2
 
-🎯免翻墙：https://bit.ly/38Ys2oD
+🎯免翻墙：https://bit.ly/3fOTGXJ
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/0717-ylm.jpg" width=600></div>
 
 🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
 
-🎯免翻墙：https://bit.ly/3ftRy7L
+🎯免翻墙：https://bit.ly/2CPqb9U
 
-🎯免翻墙：https://bit.ly/2ZuYonQ
+🎯免翻墙：https://bit.ly/32DX9ow
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -59,10 +59,11 @@ https://bit.ly/2CTDs1e<p>
 💎可用真名或化名自己办理三退(如果你将来有需要出国，例如到美国需要证明你不是党员者，请考虑要用真名办理。参考:【今日点击】美拟禁中共党员入境 网友支持：贪官不能携款潜逃。这是小編刚好听到给的建议参考。)<p>
 💎已退过的无需重复办理。<p>
 💎请您牢记法轮大法好！真善忍好！<p>
-💎祝您平安幸福，未来美好！p>
+💎祝您平安幸福，未来美好！<p>
 
-🎯免翻墙：https://bit.ly/3j3XLtj<p>
-🎯免翻墙：https://bit.ly/391ezMP<p>
+🎯免翻墙：<p>
+https://bit.ly/39fZK9x<p>
+https://bit.ly/2CQHg35<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
