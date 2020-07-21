@@ -77,6 +77,28 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
+<div align="center"><img src="/sp-img/0721crosses.jpg" width=6000></div><p>
+
+🔥<b>【世界的十字路口 唐浩】</b>美国追击中共，为何是他出谋划策？【透视共产党】灾祸连连，中共如何带风向？&nbsp;&nbsp;&nbsp;https://youtu.be/xTZbFo6S4mg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/39iii90
+https://is.gd/gzTN3Z
+
+🔥<b>【今日点击】</b>英国拟终止与香港引渡条约并制裁中共官员&nbsp;&nbsp;&nbsp;https://youtu.be/4h-uKe0wHZo<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OIOvgb<p>
+https://is.gd/giPFfo
+
+<hr>
+【今日点击】洞庭湖再进入超警戒状态 三峡迎来第三轮洪水&nbsp;&nbsp;&nbsp;https://youtu.be/C6buZ8gJNcg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CoyXvJ<p>
+https://is.gd/9wn0pg
+
+<hr>
 🔥<b>【薇羽看世间】</b>【第86期】长江流域洪水肆虐，中国大陆中半壁江山泡在水中。这不是一场天災，也不是简单的人祸，而是一种谋杀！&nbsp;&nbsp;&nbsp;https://youtu.be/IVvjwf9I7po<p>
 
 🎯免翻墙：<p>
