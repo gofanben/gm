@@ -77,8 +77,14 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
-<div align="center"><img src="/sp-img/0721-tlsf.jpg" width=880></div><p>
+🔥<b>【热点互动】</b>美国务院首次为法轮功发声明意味着什么？首位受川普总统接见法轮功学员谈印象；法轮功21年反迫害之路，“柔弱胜刚强” &nbsp;&nbsp;&nbsp;https://youtu.be/watch?v=A_erxaXED60<p>
 
+🎯免翻墙：<p>
+https://bit.ly/2CPON2j<p>
+https://is.gd/PfwuJR
+
+<hr>
+<div align="center"><img src="/sp-img/0721-tlsf.jpg" width=600></div><p>
 🔥<b>【天亮时分(政论天下第201集 20200720)】</b>中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外； 评美国国务院最新声明&nbsp;&nbsp;&nbsp;https://youtu.be/A_MuK1VhMjo<p>
 
 🎯免翻墙：<p>
