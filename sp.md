@@ -39,8 +39,6 @@ https://is.gd/fUfVqB
 https://bit.ly/2CKp8rM<p>
 https://is.gd/U6dZBL
 
-<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
-
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
@@ -72,7 +70,11 @@ https://bit.ly/2OHYan7<p>
 ⭕️MAC 版下载: <p>
 https://bit.ly/2CTDs1e<p>
 
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></div><p>
+
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
 <div align="center"><img src="/sp-img/0721-tlsf.jpg" width=880></div><p>
