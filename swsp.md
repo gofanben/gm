@@ -4,23 +4,28 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><h3><b>纪录片【世纪之掩盖】</b></h3></div>
-<div align="center"><img src="/sp-img/0705-ssgx-sgyg.jpg" width=600></div>
+🔥🔥【魔鬼在统治着我们的世界】 第一集：绪论 东欧共产主义阵营虽已瓦解，但共产主义邪灵并未随之而消亡，改头换面的共产主义思想仍然在全球肆虐！&nbsp;&nbsp;&nbsp;https://youtu.be/aaxttBbEAV0<p>
 
-巨眼观世，洞烛深微，抽丝剥茧，将世界的画卷在您面前缓缓展开，就在萧茗最新力作《世纪之掩盖》。中共在此疫情中，掩盖了什么？为什么掩盖？此掩盖何以发生？&nbsp;&nbsp;&nbsp;https://youtu.be/RtW38fdOjSI<p>
+🎯免翻墙：<p>
+https://bit.ly/3eQHVin<p>
+https://is.gd/lOIzHm
 
-🎯免翻墙：https://bit.ly/2Bl6mH2
+<hr>
 
-🎯免翻墙：https://bit.ly/3fOTGXJ
+🔥🔥【魔鬼在统治着我们的世界】第二集：欧洲发端 许多正教留下的预言都已应验，此时将有非常可怕的事情出现，万魔出世，世间乱象丛生，道德无存就是今天这个世界的现实&nbsp;&nbsp;&nbsp;https://youtu.be/alTG0Tza55s<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OIzLOu<p>
+https://is.gd/6ZGPJc
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/0717-ylm.jpg" width=600></div>
 
 🔥🔥Fox独家专访 原香港大学病毒学家闫丽梦 她说：“我就是要告诉世界，中共病毒是多么恐怖...这无关政治，而是关系到全世界的生死存亡！”&nbsp;&nbsp;&nbsp;https://youtu.be/QoH7kV33Foo<p>
 
-🎯免翻墙：https://bit.ly/2CPqb9U
-
-🎯免翻墙：https://bit.ly/32DX9ow
+🎯免翻墙：<p>
+https://bit.ly/2CPqb9U<p>
+https://bit.ly/32DX9ow
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/0720-xrzn.jpg" width=600></div><p>
@@ -30,14 +35,7 @@
 https://bit.ly/32DbwJQ<p>
 https://is.gd/fUfVqB
 
-<hr>
-<div align="center"><img src="/sp-img/0718-ndhd.jpg" width=600></div>
 
-🔥<b>【脑洞vs黑洞第17集】</b>尚未实现的2020预言--饥荒何时出现&nbsp;&nbsp;&nbsp;https://youtu.be/nmhgTlkJR34<p>
-
-🎯免翻墙：<p>
-https://bit.ly/2CKp8rM<p>
-https://is.gd/U6dZBL
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
