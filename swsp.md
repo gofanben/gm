@@ -60,22 +60,19 @@ https://is.gd/J3xG7d
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
-<div align="center"><h3><b>网必通 免费翻墙神器</b></h3></div>
+<div align="center"><h3><b>网必通</b></h3></div>
 
-⭕️拥有能持续获得新时事真相和解析的管道<p>
-⭕️只要下载后  就能持续能看到新资讯  不怕封锁<p>
-⭕️ 自动安装 / 自动更新/  <p>
-⭕️方便,速度快 / 适合新手使用<p>
-
-💎局勢變化很快<p>
-💎知情权就是生命权<p>
-💎洪灾, 疫情, 财经速报 / 内幕趋势解析<p>
+【知情权=生命权 】🙏请速广传❗<p>
+▶洪灾, 疫情, 财经速报 / 内幕趋势解析 <p>
+/ 国人必备 / 免安装.一键即用 /<p>
 
 ⭕️安卓. Windows 版下载: <p>
 https://bit.ly/2OHYan7<p>
 ⭕️MAC 版下载: <p>
 https://bit.ly/2CTDs1e<p>
 
+💎如有手机无法运作, 先去下载 app : ExaGeat模拟器, 即可运作此软件<p>
+💎遇防火墙弹窗请"允许"，等待几秒至几分钟, 视频即自动下载，至10%即可点播放<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
