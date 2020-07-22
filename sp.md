@@ -85,11 +85,60 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.22 新闻 评论</b></h3></div><p>
 
+🔥<b>【新聞拍案驚奇 大宇】</b>🔥川普定灭共两步计划；“明天系”恶斗；3号洪峰！三峡加紧腾库，简析坝体军事防御；黄淮洪水致“孤岛”；新疆搞百万人检疫，不服拘留？广州疑似疫情；回顾元朗袭击；关注720的三个理由&nbsp;&nbsp;&nbsp;https://youtu.be/fRPSYhL6k8A<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WI8iRt<p>
+https://is.gd/VSI0pE
+
+<hr>
+🔥<b>【江峰漫谈20200721第208期】</b>毛邓江胡都不敢搞，习近平外交思想研究中心成立看王毅的私心；洪峰一过，中共科学家便搬出“万年一遇”论调，称三峡大坝抵御原子弹！美印联合军演，死扣扎紧&nbsp;&nbsp;&nbsp;https://youtu.be/QBRFLN4VXiE<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3fQnQK9<p>
+https://is.gd/9JEqRF
+
+<hr>
+🔥<b>【薇羽看世间】</b>【第87期】美国拟推动“防止入侵台湾法”，中共如果犯台，美将武力打击。台湾未来将担大任，与台湾建交将成为趋势。&nbsp;&nbsp;&nbsp;https://youtu.be/Ovhvzzd5Xdk<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2Blt7dP<p>
+https://is.gd/FPQ75g
+
+<hr>
 🔥<b>【新闻看点 李沐阳】</b>中共内斗汹涌💥，“明天系”公然叫板！美制裁 11中企入黑名单，苹果微软供应商也上榜！英正式宣布中止引渡协议！不怕与世界脱钩，中共最怕“这个”！病毒有眼，蓝丝群感染？&nbsp;&nbsp;&nbsp;https://youtu.be/jgLK4Wa4wNo<p>
 
 🎯免翻墙：<p>
 https://bit.ly/2E7JZpy<p>
 https://is.gd/iL99GB
+
+<hr>
+【唐靖远快评】习近平4大危机罩顶！隐身3周后与企业家会谈，经济比洪灾更严峻？美国制裁还不是最致命&nbsp;&nbsp;&nbsp;https://youtu.be/_HoHbZnQFwE<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3hmkJtY
+https://is.gd/VLFfKQ
+
+<hr>
+【今日点击】美国国务院：中共必须停止迫害法轮功&nbsp;&nbsp;&nbsp;https://youtu.be/si7uSmYjIPQ<p>
+
+🎯免翻墙：<p>
+https://bit.ly/32EdglX
+https://is.gd/npBnnc
+
+<hr>
+【今日点击】蓬佩奥会晤约翰逊 讨论共同应付中共&nbsp;&nbsp;&nbsp;https://youtu.be/J-hjY-_al4k<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3hAYjp9
+https://is.gd/r20vch
+
+<hr>
+🔥<b>【今日焦点】</b>湖北恩施沙子坝滑坡成堰塞湖 | 乐视退市坑中国半个娱乐圈28万股民 |中国近百核专家集体出走 国务院调查|家藏4亿现金 山西贪官竟晖落马&nbsp;&nbsp;&nbsp;https://youtu.be/mrDp3q4KNNg<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2CrldAo
+https://is.gd/MDsjLZ
 
 <hr>
 🔥<b>【文昭谈古论今20200721第789期】</b>习近平向李克强夺权！开企业家座谈会，硬上“内循环”；炸堤启用蓄洪区，粮食危险浮现&nbsp;&nbsp;&nbsp;https://youtu.be/w4GSW8JxVlA<p>
