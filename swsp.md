@@ -4,6 +4,7 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><img src="/sp-img/0722mogw-1.jpg" width=600></div><p>
 🔥🔥【魔鬼在统治着我们的世界】 第一集：绪论 东欧共产主义阵营虽已瓦解，但共产主义邪灵并未随之而消亡，改头换面的共产主义思想仍然在全球肆虐！&nbsp;&nbsp;&nbsp;https://youtu.be/aaxttBbEAV0<p>
 
 🎯免翻墙：<p>
