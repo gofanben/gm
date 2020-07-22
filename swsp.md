@@ -81,6 +81,13 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.22 新闻 评论</b></h3></div><p>
 
+
+🔥🔥許章潤：極權必敗 天快亮了&nbsp;&nbsp;&nbsp;https://youtu.be/HbYyYqssXeY<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OKRSTI<p>
+https://is.gd/ig9TpH
+
 🔥<b>【世界的十字路口 唐浩】</b>“反共大联盟”登场；中伊协议，加速国际反共潮；抖音在劫难逃&nbsp;&nbsp;&nbsp;https://youtu.be/FQNWl1PbeDU<p>
 
 🎯免翻墙：<p>
