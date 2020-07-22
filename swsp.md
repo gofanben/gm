@@ -82,23 +82,48 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><a href="https://github.com/gofanben/gm/blob/master/sp-1.md">【精彩保留】</a></h3></div><p>
 
+
+<div align="center"><h3><b>2020.07.22 新闻 评论</b></h3></div><p>
+
+🔥<b>【新闻看点 李沐阳】</b>中共内斗汹涌💥，“明天系”公然叫板！美制裁 11中企入黑名单，苹果微软供应商也上榜！英正式宣布中止引渡协议！不怕与世界脱钩，中共最怕“这个”！病毒有眼，蓝丝群感染？&nbsp;&nbsp;&nbsp;https://youtu.be/jgLK4Wa4wNo<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2E7JZpy<p>
+https://is.gd/iL99GB
+
+<hr>
+🔥<b>【文昭谈古论今20200721第789期】</b>习近平向李克强夺权！开企业家座谈会，硬上“内循环”；炸堤启用蓄洪区，粮食危险浮现&nbsp;&nbsp;&nbsp;https://youtu.be/w4GSW8JxVlA<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OM1Q7G<p>
+https://is.gd/F0AZgi
+
+<hr>
+🔥<b>【陈破空纵论天下】</b>意外！此人将出任总理？习近平被迫让步。英美联手制共，刘大使耍宝！美国制裁更多中企，扯上苹果&nbsp;&nbsp;&nbsp;https://youtu.be/iCP32DffE2g<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2OQXrA1<p>
+https://is.gd/rHBXnJ
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><h3><b>2020.07.21 新闻 评论</b></h3></div><p>
 
 <div align="center"><img src="/sp-img/0721gjgj.jpg" width=600></div><p>
 
-【2020聚焦關鍵】美研擬禁共產黨入境！意外引爆反習近平浪潮？紅二代狂蒐退黨？&nbsp;&nbsp;&nbsp;https://youtu.be/watch?v=7tRPpPn3VFw<p>
-
-🎯免翻墙：<p>
-https://bit.ly/2WJ3fjv<p>
-https://is.gd/pDT1hy
-
-<hr>
 <div align="center"><img src="/sp-img/0721crosses.jpg" width=600></div><p>
 🔥<b>【世界的十字路口 唐浩】</b>美国追击中共，为何是他出谋划策？【透视共产党】灾祸连连，中共如何带风向？&nbsp;&nbsp;&nbsp;https://youtu.be/xTZbFo6S4mg<p>
 
 🎯免翻墙：<p>
 https://bit.ly/39iii90<p>
 https://is.gd/gzTN3Z
+
+<hr>
+【2020聚焦關鍵】美研擬禁共產黨入境！意外引爆反習近平浪潮？紅二代狂蒐退黨？&nbsp;&nbsp;&nbsp;https://youtu.be/7tRPpPn3VFw<p>
+
+🎯免翻墙：<p>
+https://bit.ly/2WJ3fjv<p>
+https://is.gd/pDT1hy
 
 <hr>
 🔥<b>【今日点击】</b>英国拟终止与香港引渡条约并制裁中共官员&nbsp;&nbsp;&nbsp;https://youtu.be/4h-uKe0wHZo<p>
