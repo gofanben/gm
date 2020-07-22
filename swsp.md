@@ -85,6 +85,13 @@ https://bit.ly/2CTDs1e<p>
 
 <div align="center"><h3><b>2020.07.22 新闻 评论</b></h3></div><p>
 
+🔥<b>【世界的十字路口 唐浩】</b>“反共大联盟”登场；中伊协议，加速国际反共潮；抖音在劫难逃&nbsp;&nbsp;&nbsp;https://youtu.be/FQNWl1PbeDU<p>
+
+🎯免翻墙：<p>
+https://bit.ly/3fXeFYM
+https://is.gd/Xt2d4H
+
+<hr>
 🔥<b>【新聞拍案驚奇 大宇】</b>🔥川普定灭共两步计划；“明天系”恶斗；3号洪峰！三峡加紧腾库，简析坝体军事防御；黄淮洪水致“孤岛”；新疆搞百万人检疫，不服拘留？广州疑似疫情；回顾元朗袭击；关注720的三个理由&nbsp;&nbsp;&nbsp;https://youtu.be/fRPSYhL6k8A<p>
 
 🎯免翻墙：<p>
