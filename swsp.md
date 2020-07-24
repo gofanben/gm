@@ -14,7 +14,7 @@
 <div align="center"><img src="/sp-tuwn-img/aaf0ee6bb1797134ee587b002e2a9ec5-800x450.jpg" width=600></div>
 <div align="center">中国安徽省王家坝2020年7月20日泄洪，凤台县和阜南县受灾严重。（视频截图）</div>
 
-<h1>安徽王家坝分洪淹20万人家园 官称民“自愿牺牲”</h1>
+<div align="center"><h1>安徽王家坝分洪淹20万人家园 官称民“自愿牺牲”</h1></div>
 
 【2020年07月22日讯】中国安徽省继滁河炸堤泄洪后，王家坝周一也开闸泄洪，蓄洪区内4个乡镇被洪水淹没，20万人家园被淹。<p>
 官媒宣传蓄洪区民众“舍小我、顾大局”，五毛们纷纷点赞。<p>
@@ -82,8 +82,12 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+
+<div align="center"><img src="/sp-tuwn-img/0723-howbn.jpg" width=600></div>
+
 <div align="center"><img src="/sp-tuwn-img/0723-quicklygo.jpg" width=600></div>
 <div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">🔥🔥三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
+
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
