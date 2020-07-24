@@ -183,6 +183,10 @@ GitHub下载方式：<br>
 起来!不愿作奴隶的人们!<p></b>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><img src="/sp-img/0327-3tbook.jpg" width=600></div><p>
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
 <div align="center"><h3><b>网必通</b></h3></div>
