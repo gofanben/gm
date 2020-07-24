@@ -163,7 +163,8 @@ GitHub下载方式：<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-💎<h3><b>爱党护党用一生<p>
+💎
+爱党护党用一生<p>
 依然被党当畜牲<p>
 任意宰杀锅里烹<p>
 愚民快快把眼睁<p><p>
@@ -173,7 +174,7 @@ GitHub下载方式：<br>
 中共从来都没把中国人当人看！<p><p>
 
 💎
-起来!不愿作奴隶的人们!<p></b></h3>
+起来!不愿作奴隶的人们!<p></b>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
