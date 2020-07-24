@@ -1,6 +1,6 @@
 <h1 align="center"><b>洪水中看悲情</b></h1>
 
-<div align="center"><img src="/sp-tuwn-img/vlcsnap-2020-07-23-14h06m14s104.png" width=600></div>
+<div align="center"><img src="/sp-tuwn-img/vlcsnap-2020-07-23-14h06m14s104.jpg" width=600></div>
 
 【07月24日讯】在中国27省泡水，各地洪涝水灾肆虐之际，一段疑似官方机构进行的三峡大坝溃坝预演的视频，近日在网络广传。有一线防汛人员看完后惊呼：“一般人做不出来。”并质疑，三峡大坝是否出了大问题。<p>
 
