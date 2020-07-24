@@ -21,6 +21,12 @@
 
 7月12日，中共官媒宣称，三峡大坝已经尽力了！三峡大坝这一次太难了！被外界认为，这等于给三峡大坝判了死刑。
 
+GitHub下载方式：<br>
+手机：对着挡按名称长按下载连结；或点档案名称，再对着 View raw 长按下载连结<br>
+桌机：点档案，再点 View raw，或对着 View raw 右键另存为..
+
+<a href="https://github.com/gofanben/gm/blob/master/mp4/SItqjY7q_KiWb4nu.mp4"> 0605-tlsf.mp4</a><p>
+
 <div align="center"><img src="/sp-tuwn-img/0721-721-ds.jpg" width=600></div>
 <div align="center">7月21日至22日，安徽、湖北、江西部分災民被疏散。而从今天（24日）开始长江流域又要再次迎来强降雨。</div><p>
 
