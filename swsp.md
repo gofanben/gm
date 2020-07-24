@@ -49,6 +49,7 @@ GitHub下载方式：<br>
 <div align="center">中国安徽省王家坝2020年7月20日泄洪，凤台县和阜南县受灾严重。（视频截图）</div>
 
 <div align="center"><h1>安徽王家坝分洪淹20万人家园 官称民“自愿牺牲”</h1></div>
+<h1 align="center"><b>“发展没有份，牺牲都是你...？”</b></h1>
 
 【2020年07月22日讯】中国安徽省继滁河炸堤泄洪后，王家坝周一也开闸泄洪，蓄洪区内4个乡镇被洪水淹没，20万人家园被淹。<p>
 官媒宣传蓄洪区民众“舍小我、顾大局”，五毛们纷纷点赞。<p>
@@ -95,7 +96,6 @@ GitHub下载方式：<br>
 
 <div align="center"><img src="/sp-tuwn-img/0723-160M.jpg" width=600></div>
 
-<h1 align="center"><b>“发展没有份，牺牲都是你...？”</b></h1>
 <div align="center"><img src="/sp-tuwn-img/5f16473a77e4e.jpg" width=600></div>
 <div align="center">自17日起的连续强降雨及河堤溃坝，让安徽六安市固镇镇被淹成了孤岛。   图：翻摄新华网</div><p>
 
