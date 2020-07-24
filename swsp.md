@@ -57,7 +57,10 @@
 
 <div align="center"><img src="/sp-tuwn-img/a5433a6377f5cca51c701036a893a5e0.jpg" width=600></div>
 
-<h2 align="center"><b>“发展没有份，牺牲都是你...？”</b></h2>
+<div align="center"><img src="/sp-tuwn-img/0723-hn.jpg" width=600></div>
+
+
+<h1 align="center"><b>“发展没有份，牺牲都是你...？”</b></h1>
 <div align="center"><img src="/sp-tuwn-img/5f16473a77e4e.jpg" width=600></div>
 <div align="center">自17日起的连续强降雨及河堤溃坝，让安徽六安市固镇镇被淹成了孤岛。   图：翻摄新华网</div><p>
 
@@ -76,19 +79,22 @@
 <div align="center"><img src="/sp-tuwn-img/159549492324075_P8219739.jpg" width=600></div>
 <div align="center">19日，安徽巢湖中庙景区被湖水淹没。 图／中新社</div><p>
 
-<div align="center"><img src="/sp-tuwn-img/0723tosigcc.png" width=600></div>
-
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0723-quicklygo.jpg" width=600></div>
-<div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
+<div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">🔥🔥三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
 
-<h1><b>【透视共产党】灾祸新闻 中共党媒如何带风向？</b></h1>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
+<div align="center"><img src="/sp-tuwn-img/0723tosigcc.png" width=600></div>
+
+<h1><b>🔥🔥【透视共产党】灾祸新闻 中共党媒如何带风向？</b></h1>
 
 灾祸本身固然可怕，但是如果国家政府与媒体封锁灾祸的信息，甚至造假消息、掩盖真相，让人民误判了形势、松懈了防范，那就会造成更可怕的后果，成为一种“天灾人祸复合体”，会加重社会与人民的损失。
 
 中共体制下的各级政府与媒体，就是这样的思维与作风，中共为了维护政权稳定，严厉地掌控党媒对各种灾祸的言论内容与报导口径，让灾祸的损失只停留在人民与社会层次，不致于上升到党政层次。
 
-共产党常用的几种灾祸新闻处理套路：
+<h3>共产党常用的几种灾祸新闻处理套路：</h3>
 
 <h3>套路一：掩盖灾祸真相 大事化小</h3>
 
@@ -122,14 +128,17 @@
 
 换句话说，通过党媒的报导，民众看到的灾祸不再是写实的“悲剧”或者失去人命的“丧事”，而是叙述共产党如何英勇以及灾区如何温馨的“喜剧”。这就是报喜不报忧与丧事喜办，目的无非是要烘托党的“一贯正确”与“领导有方”。
 
-💎
-<h3><b>中国人还不团结点推翻中共吗?<p>
-中共从来都没把中国人当人看！<p><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-爱党护党用一生<p>
+💎<h3><b>爱党护党用一生<p>
 依然被党当畜牲<p>
 任意宰杀锅里烹<p>
 愚民快快把眼睁<p><p>
+
+
+中国人还不团结点推翻中共吗?<p>
+中共从来都没把中国人当人看！<p><p>
+
 
 起来!不愿作奴隶的人们!<p></b></h3>
 
