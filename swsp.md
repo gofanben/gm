@@ -1,7 +1,23 @@
-<h1 align="center"><b>XXX</b></h1>
-<div align="center"><img src="/sp-tuwn-img/0723-gjsk" width=600></div>
+<h1 align="center"><b>洪水中看悲情</b></h1>
+<div align="center"><img src="/sp-tuwn-img/0723-gjsk.jpg" width=600></div>
 <div align="center">“安徽人穷但不傻”开呛！救洪患开门自淹 悲情撤离沦“第三世界难民”！ 【关键时刻】20200722-2</div><p>
 <div align="center"><img src="/sp-tuwn-img/0723-gjsk-1.jpg" width=600></div>
+
+2020年07月24日讯】中国大陆南方持续的强降雨导致长江、淮河等大大小小的江河水位暴涨，以至于部分堤坝决堤。为保三峡大坝和武汉等长江中下游大城市的安全，三峡大坝全力泄洪，同时江西和安徽两省多地或炸开堤坝泄洪，或开闸放水分洪，多个村庄成为“被牺牲”的蓄洪区，数十万民众家园被淹，大批灾民举家搬迁，流离失所。
+
+<div align="center"><img src="/sp-tuwn-img/f5be722b570fd6ba2606d7b47c4f922b-800x450.jpg" width=600></div>
+
+7月21日晚，#安徽 含山县运漕镇全镇 #连夜撤离。71岁老人蹬一辆三轮车载93岁母亲撤离。他说母亲就是他的全部。
+
+网友1：老弱病残的，不给安排一辆统一的车么？这样骑到什么时候？真心酸[😭😭
+
+网友2：就是这么组织撤离的么？
+
+<div align="center"><img src="/sp-tuwn-img/7ff8ac4c40aa722aeffc441d5e6cc530.jpg" width=600></div>
+
+<div align="center"><img src="/sp-tuwn-img/e09c3d29e64b43347cf1cb061858a2ab.jpg" width=600></div>
+
+<div align="center"><img src="/sp-tuwn-img/a5433a6377f5cca51c701036a893a5e0.jpg" width=600></div>
 
 水库泄洪酿灾?“4天下了1年雨”中国安徽固镇镇溃堤 万人受困待援
 <div align="center"><img src="/sp-tuwn-img/5f16473a77e4e.jpg" width=600></div>
