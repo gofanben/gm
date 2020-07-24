@@ -77,6 +77,11 @@
 <div align="center">19日，安徽巢湖中庙景区被湖水淹没。 图／中新社</div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0723tosigcc.png" width=600></div>
+
+
+<div align="center"><img src="/sp-tuwn-img/0723-quicklygo.jpg" width=600></div>
+<div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
+
 <h1><b>【透视共产党】灾祸新闻 中共党媒如何带风向？</b></h1>
 
 灾祸本身固然可怕，但是如果国家政府与媒体封锁灾祸的信息，甚至造假消息、掩盖真相，让人民误判了形势、松懈了防范，那就会造成更可怕的后果，成为一种“天灾人祸复合体”，会加重社会与人民的损失。
