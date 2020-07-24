@@ -25,7 +25,7 @@ GitHub下载方式：<br>
 手机：对着挡按名称长按下载连结；或点档案名称，再对着 View raw 长按下载连结<br>
 桌机：点档案，再点 View raw，或对着 View raw 右键另存为..
 
-<div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp4/SItqjY7q_KiWb4nu.mp4">三峡大坝溃坝预演的视频 7.09MB</a></div><p>
+<div align="center"><a href="https://github.com/gofanben/gm/blob/master/mp4/SItqjY7q_KiWb4nu.mp4">🔥🔥三峡大坝溃坝预演的视频 7.09MB</a></div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0721-721-ds.jpg" width=600></div>
 <div align="center">7月21日至22日，安徽、湖北、江西部分災民被疏散。而从今天（24日）开始长江流域又要再次迎来强降雨。</div><p>
