@@ -1,5 +1,8 @@
 <h1 align="center"><b>洪水中看悲情</b></h1>
 
+<div align="center"><img src="/sp-tuwn-img/0721-721-ds.jpg" width=600></div>
+<div align="center">7月21日至22日，安徽、湖北、江西部分災民被疏散。而从今天（24日）开始长江流域又要再次迎来强降雨。</div><p>
+
 <div align="center"><img src="/sp-tuwn-img/0723-gjsk-2.jpg" width=600></div>
 <div align="center">中国土法“沙包抗洪”士兵惨被冲走！ 连月暴雨“婚丧喜庆”恶水中度过！？ </div><p>
 
