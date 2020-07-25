@@ -33,15 +33,15 @@
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
 
 <table>
- <tr><td width=900><h3><b><a href="https://bit.ly/3eUyoaw">➤最新视频下载</a></b></h3></tr>
+ <tr><td width=900><h3><b><a href="https://bit.ly/3eUyoaw">➤大陆洪灾</a></b></h3></tr>
 </td>
  <tr><td width=900><h3><b><a href="https://bit.ly/3h2gdAC">➤美拟禁中共党员及家属入境乱</a></b></h3></tr>
 </td> 
-  <tr><td width=900><h3><b><a href="https://git.io/chunzx">➤登录真相网站 平安度过劫难</a></b></h3></tr>
+  <tr><td width=900><h3><b><a href="https://git.io/chunzx">➤真相网站 平安度过劫难</a></b></h3></tr>
 </td>
- <tr><td width=900><h3><b><a href="https://bit.ly/2zg5JNi">➤病毒針對中共而來 免疫良方</a></b></h3></tr>
+ <tr><td width=900><h3><b><a href="https://bit.ly/2zg5JNi">➤病毒針對中共而來</a></b></h3></tr>
 </td> 
-<tr><td width=900><h3><b><a href="https://bit.ly/3c7dIuW">➤中共病毒(武汉肺炎)的灵丹妙药 免疫良方</a></b></h3></tr>
+<tr><td width=900><h3><b><a href="https://bit.ly/3c7dIuW">➤中共病毒(武汉肺炎)的灵丹妙药 如何自救</a></b></h3></tr>
  </td>
 <tr><td width=900><h3><b><a href="https://git.io/ls02">➤ 热门時事、评论</a></b></h3></tr>
 </td>
@@ -58,6 +58,7 @@
 <tr><td width=900><h3><b><a href="https://bit.ly/2RMhyRY">➤  免费突破封锁翻墙软件</a></b></h3></tr>
 </td>
  <tr><td width=900><h3><b><a href="https://bit.ly/2XUcflF">➤美国骚乱</a></b></h3></tr>
+
 </td> 
 </table>
 
