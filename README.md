@@ -1,15 +1,16 @@
 <div align="center"><a href="https://git.io/whfy-1"><IMG SRC="/whfy-img/whfy-1-2.jpg" width=800></a></div>
 
 <div align=center><h2>请收藏网址，连上免翻视频 https://bit.ly/3ezRQKo </h2></div>
- <div align=center>点击视频下載 https://bit.ly/2A4uPQb</div>
+
  
 <div align=center><h3>收藏本站网址 https://bit.ly/2RQM1hX  </h3></div>
  <table>
  
-<!--<tr>
+<tr>
  <td>
- <a href="https://git.io/pamja"> <h3>如何 “ 三退保命 ”</a>，<b>连上面→免翻视频 IP http://61.228.179.18/300</b> →点 【三退大潮】--为什么要退党？ 可留言三退或用翻墙软件自己办理三退</h3></td>
-</tr> -->
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
+
+</tr>
 
 <tr>
  <td>
