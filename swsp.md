@@ -9,23 +9,26 @@
 <div align="center"><img src="/sp-tuwn-img/0727-0455.jpg" width=600></div>
 <div align="center"><img src="/sp-tuwn-img/07270456.jpg" width=600></div>
 
+<div align="center">“舍小家为大家”开启蓄洪。这些被舍弃的“小家”包括农民，和乡镇的店家，他们现在怎么样了？</div><p>
+
 <div align="center"><img src="/sp-tuwn-img/0727-2366633.jpg" width=600></div>
 
-“舍小家为大家”开启蓄洪。这些被舍弃的“小家”包括农民，和乡镇的店家，他们现在怎么样了？<p>
 安徽农民：“我一直不好意思跟老乡们说，因为全网都在宣扬为安徽人点赞，安徽人舍小家保大家，但是对于我们农民来说，种这300亩田的水稻真是倾其所有，承包费、种子费、农药费、人工费……它就这样被淹在了水里。我们真的不知道该怎么面对接下来的生活。”<p>
 刘先生：“损失目前预估最少得十万元，我这是算少的，今天我听他们说，有一个搞装修的老板，可能将近损失五百万。还有我有个朋友，家里半夜，他那个地方比我们这低，半夜睡得好好的，一家人就穿上衣服，穿着拖鞋就跑出来了，什么都没有了。冷库、冰箱、洗衣机什么都泡了，他们家水深比我这里水深还严重，他们那水深最多的时候淹到平房屋檐。”<p>
 刘先生：“是人家都说舍车保帅，舍小家为大家。但是我们的要求很简单，你最起码泄洪之前可以通知我们一声吧？我们可以赶着撤离啊！现在压根政府就没听到通知说我们撤离。这个事等到水退去之后，街上这些个体商户肯定要联名去镇政府的，要给个说法。”<p>
 
+<h1 align="center"><b>湖北恩施停水四天 “吸粪车”送水</b></h1>
 <div align="center"><img src="/sp-tuwn-img/0727-362333.jpg" width=600></div>
 
 23号，有网友发布视频显示，恩施市区街上的一台送水车，车身竟写着“吸粪车”，车旁很多人排队等着取水。<p>
 “吸粪车”送水引发议论，有网友调侃:“又来了，上次环卫车送肉，这次吸粪车送水。真是魔幻操作，粉红别洗什么缺水了还讲究之类，你哪怕个弄个板车用塑料布包点水也比这干净。”
 
+<h1 align="center"><b>三峡溃坝预演视频热传 疑官方机构制作</b></h1>
 <div align="center"><img src="/sp-tuwn-img/vlcsnap-2020-07-23-14h06m14s104.jpg" width=600></div>
 
 【07月24日讯】在中国27省泡水，各地洪涝水灾肆虐之际，一段疑似官方机构进行的三峡大坝溃坝预演的视频，近日在网络广传。有一线防汛人员看完后惊呼：“一般人做不出来。”并质疑，三峡大坝是否出了大问题。<p>
 
-視頻中聲明「以下視頻演示中的所有數據均為預估，不作為實際參考」。<p>
+视频中声明“以下视频演示中的所有数据均为预估，不作为实际参考”。<p>
 
 上述视频仅发布一天，观看次数高达近19万。<p>
 
@@ -55,7 +58,7 @@ GitHub下载方式：<br>
 知名三峡大坝专家王维洛也说，若三峡溃堤，长江中下游直到上海全部玩完，不仅洪水，还有20—30亿立方米泥沙，破坏力比洪水更厉害。
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-tuwn-img/0721-721-ds.jpg" width=600></div>
-<div align="center">7月21日至22日，安徽、湖北、江西部分災民被疏散。而从今天（24日）开始长江流域又要再次迎来强降雨。</div><p>
+<div align="center">7月21日至22日，安徽、湖北、江西部分灾民被疏散。而从今天（24日）开始长江流域又要再次迎来强降雨。</div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0723-gjsk-2.jpg" width=600></div>
 <div align="center">中国土法“沙包抗洪”士兵惨被冲走！ 连月暴雨“婚丧喜庆”恶水中度过！？ </div><p>
@@ -64,7 +67,7 @@ GitHub下载方式：<br>
 <div align="center">“安徽人穷但不傻”开呛！救洪患开门自淹 悲情撤离沦“第三世界难民”！ 【关键时刻】20200722-2</div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0723-gjsk-1.jpg" width=600></div>
-<div align="center">安徽決堤「怪手連續沖走」！水深糧倉淹 中國民怨四起拿「西瓜砸城管」！？【關鍵時刻】 20200722-6</div><p> 
+<div align="center">安徽决堤“怪手连续冲走”！水深粮仓淹 中国民怨四起拿“西瓜砸城管”！？【关键时刻】 20200722-6</div><p> 
 
 <div align="center"><img src="/sp-tuwn-img/aaf0ee6bb1797134ee587b002e2a9ec5-800x450.jpg" width=600></div>
 <div align="center">中国安徽省王家坝2020年7月20日泄洪，凤台县和阜南县受灾严重。（视频截图）</div>
@@ -205,7 +208,7 @@ GitHub下载方式：<br>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-tuwn-img/0327-3tbook.jpg" width=600></div><p>
-<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途徑 https://bit.ly/2DRwJoU</a></h1></div></p>
+<div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途径 https://bit.ly/2DRwJoU</a></h1></div></p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
@@ -215,7 +218,7 @@ GitHub下载方式：<br>
 【知情权=生命权 】🙏请速广传❗<p>
 ▶洪灾, 疫情, 财经速报 / 内幕趋势解析 <p>
 / 国人必备 / 免安装.一键即用 /<p>
-🎯对着 連結 长按下载连结<p>
+🎯对着 连结 长按下载连结<p>
 
 ⭕️安卓. Windows 版下载: <p>
 https://bit.ly/2OHYan7<p>
