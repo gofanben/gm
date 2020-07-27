@@ -26,6 +26,11 @@
 23号，有网友发布视频显示，恩施市区街上的一台送水车，车身竟写着“吸粪车”，车旁很多人排队等着取水。<p>
 “吸粪车”送水引发议论，有网友调侃:“又来了，上次环卫车送肉，这次吸粪车送水。真是魔幻操作，粉红别洗什么缺水了还讲究之类，你哪怕个弄个板车用塑料布包点水也比这干净。”
 
+<div align="center"><h3><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div></p>
+<div align="center"><h1><a href=https://bit.ly/2CkkFMu>三退途径 https://bit.ly/2CkkFMu</a></h1></div></p>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <h1 align="center"><b>三峡溃坝预演视频热传 疑官方机构制作</b></h1></div>
 <div align="center"><img src="/sp-tuwn-img/vlcsnap-2020-07-23-14h06m14s104.jpg" width=600></div>
 
