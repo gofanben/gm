@@ -6,6 +6,7 @@
 <div align="center">长江今年第2号洪水未退，中共官方2020年7月26日称，长江今年第3号洪水已在上游形成。(STR/AFP via Getty Images)</div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0727-98986.jpg" width=600></div>
+<div align="center">湖北武汉青山大桥闸口已经开了，长江已经开口，民众提醒：快跑！</div><p>
 
 <div align="center"><img src="/sp-tuwn-img/0727-0455.jpg" width=600></div>
 
