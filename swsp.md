@@ -49,9 +49,9 @@ is.gd/rRW1Sq<p>
 <div align="center"><img src="/sp-tuwn-img/0723-quicklygo.jpg" width=600></div>
 <div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">🔥🔥三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
 
-<div align="center"><img src="/sp-img/0728-sp1.jpg" width=600></div><p>
-<div align="center"><img src="/sp-img/0728-sp1.jpg" width=600></div><p>
-<div align="center"><img src="/sp-img/0728-sp1.jpg" width=600></div><p>
+<div align="center"><img src="/sp-tuwn-img/0728-sp1.jpg" width=600></div><p>
+<div align="center"><img src="/sp-tuwn-img/0728-sp1.jpg" width=600></div><p>
+<div align="center"><img src="/sp-tuwn-img/0728-sp1.jpg" width=600></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
