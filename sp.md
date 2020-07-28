@@ -12,6 +12,11 @@ is.gd/rPfMCs<p>
 is.gd/Gjrbyz<p>
 is.gd/rRW1Sq<p>
 
+更多 一天效期<p>
+(由于封锁原因，请复制网址加上http:// 贴到浏览器上)<p>
+118.167.98.37/300
+114.25.132.192/300
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <h2 align="center"><b>下游快跑！官方下令三峡大坝、淮河、太湖超级泄洪</b></h1></div>
