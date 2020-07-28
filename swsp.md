@@ -54,6 +54,18 @@ is.gd/rRW1Sq<p>
 <div align="center"><b><a href="https://github.com/gofanben/gm/blob/master/sxdb.md">🔥🔥三峡大坝下游的居民 请赶快撤离❗</a></b></div><p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+<div align="center"><h3><b>网必通</b></h3></div>
+
+【知情权=生命权 🙏请速广传❗】<p>
+▶自媒体视频 / 洪灾, 疫情, 财经, 美中局势速报 / 内幕趋势解析 / 免安装.一键即用 /<p>
+- Windows 版下载:  https://is.gd/wtwinsecf<p>
+- MAC 版下载: https://is.gd/wtmacsetupcf<p>
+
+💎360安全卫士等国产杀毒软件可能会误杀此新軟件，请将360停止或卸载。<p>
+💎遇防火墙弹窗请"允许"，等待几秒至几分钟视频即自动下载，至10%即可点播放<p>
+💎Mac苹果电脑版网必通免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹<p>
+
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <h1 align="center"><b>三峡溃坝预演视频热传 疑官方机构制作</b></h1></div>
 <div align="center"><img src="/sp-tuwn-img/vlcsnap-2020-07-23-14h06m14s104.jpg" width=600></div>
@@ -215,21 +227,6 @@ GitHub下载方式：<br>
 通过党媒的报导，民众看到的灾祸不再是写实的“悲剧”或者失去人命的“丧事”，而是叙述共产党如何英勇以及灾区如何温馨的“喜剧”。这就是报喜不报忧与丧事喜办，目的无非是要烘托党的“一贯正确”与“领导有方”。
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
-💎
-爱党护党用一生<p>
-依然被党当畜牲<p>
-任意宰杀锅里烹<p>
-愚民快快把眼睁<p><p>
-
-💎
-中国人还不团结点推翻中共吗?<p>
-中共从来都没把中国人当人看！<p><p>
-
-💎
-起来!不愿作奴隶的人们!<p></b>
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-tuwn-img/0327-3tbook.jpg" width=600></div><p>
 <div align="center"><h1><a href=https://github.com/gofanben/gm/blob/master/3tgd.md>三退途径 https://bit.ly/2DRwJoU</a></h1></div></p>
 
@@ -238,18 +235,14 @@ GitHub下载方式：<br>
 <div align="center"><img src="/sp-img/torrent-good.jpg" width=600></div><p>
 <div align="center"><h3><b>网必通</b></h3></div>
 
-【知情权=生命权 】🙏请速广传❗<p>
-▶洪灾, 疫情, 财经速报 / 内幕趋势解析 <p>
-/ 国人必备 / 免安装.一键即用 /<p>
-🎯对着 连结 长按下载连结<p>
+【知情权=生命权 🙏请速广传❗】<p>
+▶自媒体视频 / 洪灾, 疫情, 财经, 美中局势速报 / 内幕趋势解析 / 免安装.一键即用 /<p>
+- Windows 版下载:  https://is.gd/wtwinsecf<p>
+- MAC 版下载: https://is.gd/wtmacsetupcf<p>
 
-⭕️安卓. Windows 版下载: <p>
-https://bit.ly/2OHYan7<p>
-⭕️MAC 版下载: <p>
-https://bit.ly/2CTDs1e<p>
-
-💎如有手机无法运作, 先去下载 app : ExaGeat模拟器, 即可运作此软件<p>
-💎遇防火墙弹窗请"允许"，等待几秒至几分钟, 视频即自动下载，至10%即可点播放<p>
+💎360安全卫士等国产杀毒软件可能会误杀此新軟件，请将360停止或卸载。<p>
+💎遇防火墙弹窗请"允许"，等待几秒至几分钟视频即自动下载，至10%即可点播放<p>
+💎Mac苹果电脑版网必通免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
