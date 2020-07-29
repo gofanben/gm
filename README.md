@@ -20,8 +20,7 @@
  <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
  
  <div align=center>
-<h3><b><a href="https://bit.ly/30XJB4M">● 最新大事内幕局势疫情时刻更新💥 真相=生命❤️ 请速广传📢● </a></b></h3></div>
-<h3><b><div align="center">请收藏本页短网址 https://git.io/news20</b></h3></div></p>
+ <!-- <h3><b><a href="https://bit.ly/30XJB4M">● 最新大事内幕局势疫情时刻更新💥 真相=生命❤️ 请速广传📢● </a></b></h3></div><<h3><b><div align="center">请收藏本页短网址 https://git.io/news20</b></h3></div></p> -->
  
 <div align="center"><IMG SRC="img/fngrchn3.jpg" width=580></div></p>
   <div align=center>
