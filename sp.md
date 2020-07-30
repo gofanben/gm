@@ -8,15 +8,9 @@
 (由于封锁原因，请复制网址加上https:// 贴到浏览器上)<p>
 
 🎯免翻墙：<p>
-is.gd/rPfMCs<p>
-is.gd/Gjrbyz<p>
-is.gd/rRW1Sq<p>
-
-更多 (一天效期)<p>
-(由于封锁原因，请复制网址加上http:// 贴到浏览器上)<p>
-111.251.174.42/300<p>
-111.251.174.172/300<p>
-111.251.174.171/300
+🎯免翻墙：<p>
+https://bit.ly/39CwJoq<p>
+https://bit.ly/3hNY8ql<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
