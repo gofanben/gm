@@ -27,11 +27,10 @@
 🌷祝您平安幸福，未来美好！<p></h3>
 
 🎯免翻墙：<p> (由于封锁原因，请复制网址贴到浏览器上)<p>
-is.gd/uabrJZ<p>
-
-is.gd/yjNjnJ<p>
-
-is.gd/wbHFvE<p>
+ 
+https://bit.ly/3gbwG5H<p>
+https://bit.ly/30bjnMU<p>
+https://bit.ly/2P9NFcK 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3>
