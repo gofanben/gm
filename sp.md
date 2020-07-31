@@ -7,10 +7,11 @@
 
 (由于封锁原因，请复制网址加上https:// 贴到浏览器上)<p>
 
-🎯免翻墙：<p>
-🎯免翻墙：<p>
-https://bit.ly/39CwJoq<p>
-https://bit.ly/3hNY8ql<p>
+🎯免翻墙：请多连几次 耐心等一下<p>
+
+bit.ly/2XdQihP<p>
+
+bit.ly/2D8v9ir<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
