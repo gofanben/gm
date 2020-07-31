@@ -1,7 +1,7 @@
 <h1 align="center"><b>2020中国洪灾</b></h1></div>
 
 
-<div align="center"><img src="/sp-tuwn-img/0731-gjsk.jpg" width=600></div>
+<div align="center"><img src="/sp-tuwn-img/0731-gjskjpg.jpg" width=600></div>
 
 <div align="center"><img src="/sp-tuwn-img/0731-tasan.jpg" width=600></div>
 
