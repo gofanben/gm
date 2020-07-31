@@ -5,9 +5,10 @@
 
 🔥🔥<b>【热点互动】</b>专访王维洛(2)：网传三峡溃坝模拟视频有多真实？中共修改三峡历史文件, 释放武统台湾信号？江河洪水手中来：人为因素导致洪灾严重！<p>
 
-🎯免翻墙：<p>
-https://bit.ly/39CwJoq<p>
-https://bit.ly/3hNY8ql<p>
+
+🎯免翻墙：请多连几次 耐心等一下<p>
+bit.ly/2XdQihP<p>
+bit.ly/2D8v9ir<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
