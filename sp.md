@@ -47,7 +47,7 @@
 
 💥 揭露中共邪恶本质，解体中共，才能从最根本上改变中国人民被欺骗和奴役的命运，这样的努力，不分国内国外，都最值得尊敬和支持。<p>
 
-</b><h3>
+
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sp-tuwn-img/0728-rdhd.jpg" width=600></div>
 
@@ -290,7 +290,7 @@ GitHub下载方式：<br>
 💎360安全卫士等国产杀毒软件可能会误杀此新軟件，请将360停止或卸载。<p>
 💎遇防火墙弹窗请"允许"，等待几秒至几分钟视频即自动下载，至10%即可点播放<p>
 💎Mac苹果电脑版网必通免翻墙下载地址 https://is.gd/wtmacsetupcf 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹<p>
-
+</b><h3>
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 <a href=#top><h6 align="right">回上方</h6></a>
