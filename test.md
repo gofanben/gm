@@ -134,12 +134,12 @@ https://github.com/SzzdOgate/update/blob/master/extras/update.json<p>
 TV版：<p>
 https://github.com/SzzdOgate/update/blob/master/extras/updatetv.json<p>
 
-■ SzzdOgate（3.9.2018090307）(2018-10-10)：<p>
+■SzzdOgate（3.9.2018090307）(2018-10-10)：<p>
 1. 修正安全问题；<p>
 2. 二维码功能加上检查功能，保证分享的二维码于当下是可以正常使用的；<p>
 3. 修复已知BUG，完善程序。<p>
 
-■ SzzdOgateTV（1.1.2018051901）(2018-5-19)：
+■SzzdOgateTV（1.1.2018051901）(2018-5-19)：
 1. 增强突破封锁能力；<p>
 2. 完善程序自动升级功能；<p>
 3. 修复已知BUG，完善程序。<p>
