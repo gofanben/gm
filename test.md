@@ -1,17 +1,23 @@
 <div align="center"><img src="/sjmj/sjmj-1.jpg" width=960></div><p>
 
 <div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
-
+<div align="center"><img src="/sjmj/sjmj-3.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-4.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-5.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-6.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-7.jpg" width=960></div><p>
 
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
 # 神州明见官网及固定二维码
   
-<h3>本页固定网址: https://git.io/szzd<p>
+<h3>本页固定网址: https://git.io/szzd<br><p>
 本站点提供的翻墙工具，仅供世人突破网络封锁，了解真相使用，严禁用于其它用途。否则，请到大纪元网站下载自由门或无界翻墙工具，详细请到天地行论坛查看。</h3>
 
 ![N|Solid](https://camo.githubusercontent.com/b6a72fa4fcd9f10c963eca49c1b5c204bf7f0063/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d6130363331646431333662393263323232383663613361613432343232366536343935373234303066343661316162636238316339333366393234653964656631343463323139356262623964346135356563383062636263663035376336316430)
 
-<h3>https://git.io/szzd  需要用国外的浏览器如火狐、Google Chrome打开，国内的浏览器打如果不开，是因为中共对国产软件暗中偷偷控制和封锁导致。二维码扫描方法是： <p>
+<h3>https://git.io/szzd<br><p>
+■需要用国外的浏览器如火狐、Google Chrome打开，国内的浏览器打如果不开，是因为中共对国产软件暗中偷偷控制和封锁导致。 <br><p>
+<b>二维码扫描方法是：<b> <p>
 ■打开国外的浏览器如火狐、Google Chrome<p>
 ■在地址栏输入利用 Webcam (摄像头)在线扫描二维码的网页，如：http://qrcodescan.in/<p>
 ■授予后摄像头权限，扫描二维码<h3>
