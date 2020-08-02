@@ -124,7 +124,7 @@ EC303209133C15D35C2C0B7DF3202EE659DC5531BB41C706C7AF53FEB32EE8CB18151C5F7700543F
 “神州明见”电视机顶盒版<p>
 E0B2AAA1C64F1FAD36E9BF9F9895E8F1864B7FADB2C8232E026A38C61076B92B81003902561889324F1F3DCEE60D719A46AFC899F7F11006AB59E42966235152<p>
 
-2、更新说明<p>
+2、更新说明<p><p>
 所有版本都可以在这里查到：<p>
 https://github.com/SzzdOgate/update/blob/master/extras/<p>
 
@@ -143,7 +143,8 @@ https://github.com/SzzdOgate/update/blob/master/extras/updatetv.json<p>
 1. 增强突破封锁能力；<p>
 2. 完善程序自动升级功能；<p>
 3. 修复已知BUG，完善程序。<p>
-3、SzzdOgate、SzzdOgateTV更新历史<p>
+
+3、SzzdOgate、SzzdOgateTV更新历史<p><p>
 
 ■（2018032501）：
 优化翻墙功能； 
