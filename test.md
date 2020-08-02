@@ -1,19 +1,6 @@
 <div align="center"><img src="/sjmj/sjmj-1.jpg" width=960></div><p>
 
-<div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
-
-<div align="center"><img src="/sjmj/sjmj-3.jpg" width=960></div><p>
-
-<div align="center"><img src="/sjmj/sjmj-4.jpg" width=960></div><p>
-
-<div align="center"><img src="/sjmj/sjmj-5.jpg" width=960></div><p>
-
-<div align="center"><img src="/sjmj/sjmj-6.jpg" width=960></div><p>
-
-<div align="center"><img src="/sjmj/sjmj-7.jpg" width=960></div><p>
-
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
-
 # 神州明见官网及固定二维码
   
 本页固定网址: https://git.io/szzd  
