@@ -1,5 +1,6 @@
-<div align="center"><img src="/sjmj/sjmj-2.jpg" width=1200></div><p>
-  
+<div align="center"><img src="/sjmj/sjmj-3.jpg" width=1200></div><p>
+
+
 ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png)
 # 神州明见官网及固定二维码
   
