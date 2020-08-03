@@ -23,7 +23,7 @@
 ■授予后摄像头权限，扫描二维码</h3>
 
 <div align="center"><img src="/sjmj/267.gif" width=880></div><p>
-<div align="center"><img src="/sjmj/245.jpg" width=880></div><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
 # 神州明见（SzzdOgate）
 
