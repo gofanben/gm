@@ -1,7 +1,8 @@
 <div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
 
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
-# 神州明见官网<br>及固定二维码
+
+<div align="center"><h1>神州明见官网<br>及固定二维码</h1></div></p>
   
 <h3>本页固定网址: https://git.io/szzd<p><p>
 
