@@ -1,14 +1,7 @@
 <div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
-<!--<div align="center"><img src="/sjmj/sjmj-3.jpg" width=960></div><p>
-<div align="center"><img src="/sjmj/sjmj-1.jpg" width=960></div><p>
-<div align="center"><img src="/sjmj/sjmj-4.jpg" width=960></div><p>
-<div align="center"><img src="/sjmj/sjmj-5.jpg" width=960></div><p>
-<div align="center"><img src="/sjmj/sjmj-6.jpg" width=960></div><p>
-<div align="center"><img src="/sjmj/sjmj-7.jpg" width=960></div><p>-->
 
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
-  
-<div align="center"><h1>神州明见官网<br>及固定二维码</h1></div></p>
+# 神州明见官网<br>及固定二维码
   
 <h3>本页固定网址: https://git.io/szzd<p><p>
 
@@ -55,7 +48,7 @@
 ### http://www.szzd.org/CLZDc<p>
 ### (此网址需要翻墙下载)
 
-### 3、SzzdOgate WEB5.0 （html WEB网页版，下载方法见下方介绍）
+### 3、SzzdOgate WEB5.0 （html WEB网页版，下载方法见下方介绍）(桌机对着此网址右键下载。手机对着连结长按，下载连结)
 ### https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.html
 
 
@@ -105,7 +98,7 @@ App能够检测到新版本并提示，确认后自动后台下载并校验，�
 “神州明见”网页版适合于Apple苹果设备中使用，如苹果手机、IPad、Mac等，但是在安卓手机和电脑中也可以正常使用。<p>
 
 2、安装和使用<p>
-■ 进入此网址<p>
+■ 桌机对着此网址右键下载。手机对着连结长按，下载连结<p>
 https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.html<p>
 
 ■ 把此网页保存为html网页文件。（或者复制该网页中的所有代码，在手机或电脑中新建一个文本文件，把代码复制到里面，然后保存为html网页文件）<p>
