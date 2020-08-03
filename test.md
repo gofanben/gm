@@ -21,7 +21,7 @@
 ■在地址栏输入利用 Webcam (摄像头)在线扫描二维码的网页，如：http://qrcodescan.in/<p>
 ■授予后摄像头权限，扫描二维码</h3>
 
-<div align="center"><img src="/sjmj/233.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/233.gif" width=450><img src="/sjmj/233.gif" width=450></div><p>
 
 # 神州明见（SzzdOgate）
 
