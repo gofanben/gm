@@ -26,7 +26,8 @@
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sjmj/233.gif" width=880></div><p>
 <div align="center"><img src="/sjmj/177.gif" width=880></div><p>
-
+<div align="center"><img src="/sjmj/58.gif" width=880></div><p>
+<div align="center"><img src="/sjmj/268.gif" width=880></div><p>
 # 神州明见（SzzdOgate）
 
 ## 一、程序功能简介
