@@ -35,7 +35,7 @@
 
 ### “神州明见”包括安卓手机版、电视机顶盒版、html WEB网页版（html网页版适合于苹果等所有系统）,共3个版本。
 
-<div align="center"><img src="/sjmj/177.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/177.gif" width=450><img src="/sjmj/177.gif" width=450></div><p>
 
 ## 二、“神州明见”程序下载
 ### 目前最新的版本在这里（20190106）（请翻墙访问）：
@@ -59,7 +59,7 @@ https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.
 
 ![N|Solid](https://camo.githubusercontent.com/407103a4313c90bf549ef0cdb7e2ba363c3b4c51/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d3833393136623966353831363435383334393837323761623564353264393634336539666331343831653631666437626531336532613830646136346665376232363133646536636638656535336431626664383736653362313734373963323463343263636630613136353030373030613938)
 
-<div align="center"><img src="/sjmj/141.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/141.gif" width=450><img src="/sjmj/141.gif" width=450></div><p>
 
 ## 三、“神州明见”使用方法
 ### “神州明见”包括安卓手机版、电视机顶盒版、html WEB网页版，3个版本，是基于集浏览、保存、截屏和分享的工具集合。
@@ -193,7 +193,7 @@ TV版直播节目单位置跟时间同步显示。
 TCL 55C2US 电视 安卓版本是：6.0.1，测试播放成功。微鲸的55寸的电视也有成功的一个型号。
 已经在多个机顶盒型号，包括先科M11，V8，先科Q7，华为M321上都成功使用了。4.42版本的中国移动机顶盒直播、音频、视频全部播放成功。中国移动线路，机顶盒迪优美特X6II 八核CPU【4G+32G】安装成功。</h3>
 
-<div align="center"><img src="/sjmj/178.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/178.gif" width=450><img src="/sjmj/178.gif" width=450></div><p>
 
 ## 五、其它“神州明见”小工具推荐 
 
