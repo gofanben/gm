@@ -1,7 +1,6 @@
-<div align="center"><img src="/sjmj/sjmj-1.jpg" width=960></div><p>
-
 <div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
 <!--<div align="center"><img src="/sjmj/sjmj-3.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-1.jpg" width=960></div><p>
 <div align="center"><img src="/sjmj/sjmj-4.jpg" width=960></div><p>
 <div align="center"><img src="/sjmj/sjmj-5.jpg" width=960></div><p>
 <div align="center"><img src="/sjmj/sjmj-6.jpg" width=960></div><p>
