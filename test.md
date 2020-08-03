@@ -39,22 +39,22 @@
 
 ## 二、“神州明见”程序下载
 ### 目前最新的版本在这里（20190106）（请翻墙访问）：
-1、SzzdOgate V4.2.2019101901 for 安卓4.0+（安卓手机版）：<p>
-https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgate.apk
+### 1、SzzdOgate V4.2.2019101901 for 安卓4.0+（安卓手机版）：<p>
+### https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgate.apk
 
 ### 最新改包名测试版下载网址：<p>
 ### http://www.szzd.org/FYMXJ<p>
 ### (此网址需要翻墙下载)
   
 ### 2、SzzdOgate TV V2.0.2019102301 for 安卓4.1+（电视机顶盒版）： 
-https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgateTV.apk
+### https://raw.githubusercontent.com/SzzdOgate/update/master/extras/SzzdOgateTV.apk
 
 ### 最新改包名测试版下载网址：<p>
 ### http://www.szzd.org/CLZDc<p>
 ### (此网址需要翻墙下载)
 
 ### 3、SzzdOgate WEB5.0 （html WEB网页版，下载方法见下方介绍）
-https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.html
+### https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.html
 
 
 ![N|Solid](https://camo.githubusercontent.com/407103a4313c90bf549ef0cdb7e2ba363c3b4c51/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d3833393136623966353831363435383334393837323761623564353264393634336539666331343831653631666437626531336532613830646136346665376232363133646536636638656535336431626664383736653362313734373963323463343263636630613136353030373030613938)
