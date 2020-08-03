@@ -22,13 +22,8 @@
 ■在地址栏输入利用 Webcam (摄像头)在线扫描二维码的网页，如：http://qrcodescan.in/<p>
 ■授予后摄像头权限，扫描二维码</h3>
 
-<div align="center"><img src="/sjmj/267.gif" width=880></div><p>
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 <div align="center"><img src="/sjmj/233.gif" width=450></div><p>
-<div align="center"><img src="/sjmj/177.gif" width=450></div><p>
-<div align="center"><img src="/sjmj/58.gif" width=450></div><p>
-<div align="center"><img src="/sjmj/268.gif" width=450></div><p>
-<div align="center"><img src="/sjmj/178.gif" width=450></div><p>
+
 # 神州明见（SzzdOgate）
 
 ## 一、程序功能简介
@@ -40,6 +35,8 @@
 ### 截至2020年7月20日，通过突破网络封锁的方法，中国大陆已有近4亿人，在海外大纪元网站发表退出中共党、团、队的声明。
 
 ### “神州明见”包括安卓手机版、电视机顶盒版、html WEB网页版（html网页版适合于苹果等所有系统）,共3个版本。
+
+<div align="center"><img src="/sjmj/177.gif" width=450></div><p>
 
 ## 二、“神州明见”程序下载
 ### 目前最新的版本在这里（20190106）（请翻墙访问）：
@@ -62,6 +59,8 @@ https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.
 
 
 ![N|Solid](https://camo.githubusercontent.com/407103a4313c90bf549ef0cdb7e2ba363c3b4c51/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d3833393136623966353831363435383334393837323761623564353264393634336539666331343831653631666437626531336532613830646136346665376232363133646536636638656535336431626664383736653362313734373963323463343263636630613136353030373030613938)
+
+<div align="center"><img src="/sjmj/58.gif" width=450></div><p>
 
 ## 三、“神州明见”使用方法
 ### “神州明见”包括安卓手机版、电视机顶盒版、html WEB网页版，3个版本，是基于集浏览、保存、截屏和分享的工具集合。
@@ -120,6 +119,8 @@ https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.
 大纪元退党网二维码：<p></h3>
 
 ![N|Solid](https://camo.githubusercontent.com/fe565c3a654a580a8670569cd315a9c4d3c6e3ce/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d35613037393438346639356437623936386432633538386638366237613766643932326264333634633931303766653562663166633830343235383862616564333064356437623762663230633164323536656137383033383061386166)
+
+<div align="center"><img src="/sjmj/268.gif" width=450></div><p>
 
 ## 四、“神州明见”SHA512校验及更新说明
 
@@ -192,7 +193,11 @@ TV版直播节目单位置跟时间同步显示。
 ■ 测试反馈：TV版适合4.1+的Android智能电视和机顶盒。某地联通、电信、移动网络都效果不错，这几天中国频道打不开，其他还可以，播放也流畅，机顶盒，安卓4.4，5.1.，6.0系统的，均播放流畅，连续看几个小时也不卡。
 TCL 55C2US 电视 安卓版本是：6.0.1，测试播放成功。微鲸的55寸的电视也有成功的一个型号。
 已经在多个机顶盒型号，包括先科M11，V8，先科Q7，华为M321上都成功使用了。4.42版本的中国移动机顶盒直播、音频、视频全部播放成功。中国移动线路，机顶盒迪优美特X6II 八核CPU【4G+32G】安装成功。</h3>
+
+<div align="center"><img src="/sjmj/178.gif" width=450></div><p>
+
 ## 五、其它“神州明见”小工具推荐 
+
 ### （一）专用的包名修改器 RepackageTool
 ### 1、“包名修改器”下载地址
 ### RepackageTool【2020-06】
