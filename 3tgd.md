@@ -31,7 +31,7 @@
 🎯免翻墙：<p> (由于封锁原因，请复制网址贴到浏览器上)<p>
  
 is.gd/NACydU<p>
-is.gd/UKy0uT<p>
+is.gd/S7L1xe<p>
 is.gd/WsHZkj 
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
