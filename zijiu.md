@@ -31,7 +31,7 @@
 
 <!--<div align="center"><a href="http://114.43.38.167"><IMG SRC="/zijiu-img/zijiu_logo-3.jpg" width=800></div>-->
  
- <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)<p>
+ <!-- <a href =#d>疫情凶猛 炼五套功法 除恶疫(置顶)<p>-->
  <a href =#k>全球退党中心倡议：解体中共 远离瘟疫(置顶)</a><p>	
 <a href =#j>【特稿】越亲中共疫情越重 防疫有良方<p>
 <a href =#i>真相语音电话：瘟疫中的千金良方（更新）(置顶)<p>
@@ -1517,40 +1517,6 @@ Josh McDowell《铁证待判》</p>
 《德育古鉴》之“孝顺类十一”
 
 文章来源 : https://www.epochtimes.com/gb/18/7/21/n10580480.htm
-
-<a href=#top><h6 align="right">回上方</h6>
-
-<hr><a name=d>
-
-<h1 align="center"><b>疫情凶猛 炼五套功法 除恶疫</b></h1>
-
-<div align="center"><img src="/zijiu-img/bai_du_12345.jpg" width=880></div>
-<div align="center">《五套功法教功视频》大陆疫情凶猛，待在家里的时间很长，如果人人都能够炼五套功法，那就太好了，百度云盘二维码，只要是大陆的ip都可以下载。</div><p>
-
-百度网盘 《五套功法教功视频》 下载网址 ➤ https://pan.baidu.com/s/1Ku3p3BCP48w14PHiD0ig7g
-
-<div align="center"><img src="/zijiu-img/qr_1580431765043.jpg" width=250></div>
-<div align="center">蓝奏云网盘 《五套功法教功视频》</div><p>
-
-蓝奏云网盘 《五套功法教功视频》下载网址 ➤ https://www.lanzous.com/i8xpqda
-
-<div align="center"><h2><b>炼 功 音 乐</b></h2></div>
-
-<div align="center"><img src="/zijiu-img/bai_du_12345_music.jpg" width=250></div>
-<div align="center">百度网盘　第一～五套功法炼功音乐</div><p>
-
-百度网盘 第一～五套功法炼功音乐 下载网址 ➤ https://pan.baidu.com/s/11_bKJ77JGgTFZvGb--reGg
-
-<div align="center"><img src="/zijiu-img/qr-12345-music.jpg" width=250></div>
-<div align="center">蓝奏云网盘　第一～五套功法炼功音乐</div><p>
-
-蓝奏云网盘 第一～五套功法炼功音乐　下载网址 ➤ https://www.lanzous.com/b00naglfg
-
-第一套功法	9分14秒（13MB）下载 ➤ /mp3/exercise1_9min14s.mp3?raw=true
-
-第三套功法	9分钟（12MB）下载 ➤ /mp3/exercise3_8min50s.mp3?raw=true
-
-第四套功法	12分30秒（17MB））下载 ➤ /mp3/exercise4_12min30s.mp3?raw=true
 
 <a href=#top><h6 align="right">回上方</h6>
 
