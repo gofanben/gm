@@ -24,12 +24,6 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
-<div align="center"><img src="/sp-tuwn-img/1-17-800x450.jpg" width=600></div><p>
-<div align="center">中国南方沿海双台风来袭 北方黄河开闸泄洪</div><p>
-<h3>💥 中国网友在社交媒体分享黄河水流湍急、上游水库猛力泄洪的视频，纷纷表示“太可怕了”！有网友提及13世纪元帝国称霸东亚大陆，但黄河泛滥成为“压垮元朝的最后一根稻草”。</h3>
-
-<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
-
 <div align="center"><img src="/sp-tuwn-img/0731-gjskjpg.jpg" width=600></div>
 
 <div align="center"><img src="/sp-tuwn-img/0731-tasan.jpg" width=600></div>
@@ -89,9 +83,9 @@
 
 🎯免翻墙：请多连几次 耐心等一下<p>
 
-bit.ly/2XdQihP<p>
-
-bit.ly/2D8v9ir<p>
+bit.ly/2XC7E8C<p>
+bit.ly/2C6ZeOX<p>
+bit.ly/2DKHqK0<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
