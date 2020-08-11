@@ -26,13 +26,14 @@
 🌷请您牢记法轮大法好！真善忍好！<p>
 🌷祝您平安幸福，未来美好！<p></h3>
 
-💎 (请参考) 在当下反共的大形势下，如果有意出国深造或者移民，或是家人在国外的，一定要真名退党。否则退党证书和自己的身份证、护照的名字对不上，经不过移民官那一关，也是得不偿失</p>
+(由于封锁原因，请复制网址加上https:// 贴到浏览器上)<p>
 
-🎯免翻墙：<p> (由于封锁原因，请复制网址贴到浏览器上)<p>
- 
-is.gd/NACydU<p>
-is.gd/S7L1xe<p>
-is.gd/WsHZkj 
+🎯免翻墙：请多连几次 耐心等一下<p>
+
+bit.ly/3aggA8D<p>
+is.gd/pd9JAf<p>
+is.gd/zE9M1q<p>
+is.gd/ze3hvj<p>
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3>
