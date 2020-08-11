@@ -4,8 +4,8 @@
 
 <div align="center"><h1><a href="https://bit.ly/3c7dIuW">免疫良方</a></h1></div>
 
-<div align="center"><h3><a href="https://bit.ly/2A4uPQb">最新评论、热门视频下載 https://bit.ly/2A4uPQb</a></h3></div>
-<div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div>
+ <!-- <div align="center"><h3><a href="https://bit.ly/2A4uPQb">最新评论、热门视频下載 https://bit.ly/2A4uPQb</a></h3></div> -->
+ <!-- <div align="center"><h3><a href=https://git.io/swspip>(收藏)视频入口 https://git.io/swspip</a></h3></div> -->
 
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</a></h3></div>
 <div align="center"><h4><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md"><b>病毒针对共产党而来</b></a></h4></div>
