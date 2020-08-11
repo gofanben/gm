@@ -24,6 +24,12 @@
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
 
+<div align="center"><img src="/sp-tuwn-img/IMG_3092-600x400.jpg" width=600></div>
+<div align="center">自7月19日开始，安徽巢湖市多个城镇被洪水淹没，一直持续半个月。图为巢湖市街道的水淹现状。（受访者提供）</div><p>
+<div align="center"><img src="/sp-tuwn-img/1-10-600x400.jpg" width=600></div>
+<div align="center">视频显示8月6日陕西西安大暴雨，甘肃陇南则现山洪。（视频截图）</div><p>
+<div align="center"><img src="/sp-img/149.gif" width=880></div><p>
+
 <div align="center"><img src="/sp-tuwn-img/0731-gjskjpg.jpg" width=600></div>
 
 <div align="center"><img src="/sp-tuwn-img/0731-tasan.jpg" width=600></div>
