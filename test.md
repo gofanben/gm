@@ -115,7 +115,7 @@ https://raw.githubusercontent.com/SzzdOgate/update/master/extras/szzdogate_v5.0.
 
 ![N|Solid](https://camo.githubusercontent.com/fe565c3a654a580a8670569cd315a9c4d3c6e3ce/687474703a2f2f7777772e737a7a642e6f72672f762e7068703f636f64653d35613037393438346639356437623936386432633538386638366237613766643932326264333634633931303766653562663166633830343235383862616564333064356437623762663230633164323536656137383033383061386166)
 
-<div align="center"><img src="/sjmj/176.gif" width=450><img src="/sjmj/176.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/sjmj-fg.jpg" width=800></div><p>
 
 ## 四、“神州明见”SHA512校验及更新说明
 
