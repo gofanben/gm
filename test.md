@@ -1,5 +1,7 @@
 <div align="center"><img src="/sjmj/sjmj-logo-f1.jpg" width=960></div><p>
 <div align="center"><img src="/sjmj/sjmj-logo-f1.jpg" width=800></div><p>
+  <div align="center"><img src="/sjmj/sjmj-logo-f.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-logo-f.jpg" width=800></div><p>
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
 
 <div align="center"><h1>神州明见官网<br>及固定二维码</h1></div></p>
