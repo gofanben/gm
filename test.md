@@ -1,4 +1,4 @@
-<div align="center"><img src="/sjmj/sjmj-2.jpg" width=960></div><p>
+<div align="center"><img src="/sjmj/sjmj-logo-f.jpg" width=800></div><p>
 
   <!-- ![N|Solid](https://github.com/SzzdOgate/update/raw/master/extras/Icon-256.png) -->
 
@@ -31,7 +31,7 @@
 
 ### “神州明见”包括安卓手机版、电视机顶盒版、html WEB网页版（html网页版适合于苹果等所有系统）,共3个版本。
 
-<div align="center"><img src="/sjmj/177.gif" width=450><img src="/sjmj/177.gif" width=450></div><p>
+<div align="center"><img src="/sjmj/sjmj-fg.jpg" width=800>
 
 ## 二、“神州明见”程序下载
 ### 目前最新的版本在这里（20190106）（请翻墙访问）：
