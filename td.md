@@ -8,6 +8,8 @@
 
 <div align="center"><h3><a href=https://bit.ly/2RQM1hX>(请收藏)更多免翻 https://bit.ly/2RQM1hX</a></h3></div></p>
 
+<a href =#13>前凤凰记者：党媒员工天天翻墙 中共官员悄悄退党</a><p>
+<a href =#12>中共官员叛逃潮开启？ 袁弓夷：“每天都有人失踪”</a><p>
 <a href =#11>中国人搜索“退党”热度持续飙升 蓬佩奥有回应</a><p>
 <a href =#10>颜丹：“退党”成网络热搜词说明了什么？</a><p>
 <a href =#9>中共党员及家属或被美限入境 内部掀恐慌</a><p>
@@ -20,6 +22,82 @@
 <a href =#2>传中共党员将被禁止入美国？网络欢腾</a><p>
 <a href =#1>美拟禁中共党员及家属入境 “退党”成热搜</a><p>	
 
+<hr><a name=13>
+<h1 align="center"><b>前凤凰记者：党媒员工天天翻墙 中共官员悄悄退党</b></h1>
+<div align="center"><img src="/td-img/bed4b2e209a9dbd4aac5d4e511732c8e-800x450.jpg" width=600></div>
+<div align="center">2020年8月8日上午，加拿大退党服务中心在万锦市太古广场举行集会及汽车游行起步礼，声援3亿6千多万中国人退出中共党、团、队，同时启动8月、9月两个月的“退党月”活动。（伊铃/大纪元）</div><p>
+
+【北京时间2020年08月11日讯】8月8日（周六）上午，<a href="https://www.ntdtv.com/gb/加拿大退党服务中心.htm">加拿大退党服务中心</a>在多伦多太古广场举行集会及汽车游行起步礼，集会人士打出“中共不等于中国”、“天灭中共 天祐中华 退出中共党团队免劫难”等横幅，声援3亿6千多万中国人三退。活动结束后，《看中国》记者采访了在集会上发言的前凤凰网记者张真瑜及民阵全球副主席盛雪。</p>
+<p><strong>张真瑜：中共要害部门官员都在背后<a href="https://www.ntdtv.com/gb/退党.htm">退党</a></strong></p>
+<p>原凤凰网时政栏目记者张真瑜对《看中国》表示，他在大陆因坚持报导新闻事实而遭到中共当局政治迫害，于2018年逃离中共来到加拿大。他早在2012年就在大纪元网站上发表了三退声明。</p>
+<p>他透露，三退活动目前在中国大陆，尤其在党员中已人尽皆知，“包括有一些（中共）要害部门的官员、家属、甚至孩子，在海外的一些留学生，或者一些亲共的媒体（员工），他们本身自己在背后就参加了这个三退的活动。现在都看到了共产党目前在世界上面临的一个窘境。”</p>
+<p><strong>党媒员工天天用“自由门”翻墙</strong></p>
+<p>张真瑜说，《看中国》、《大纪元》等海外中文媒体对帮助中国人起到了举足轻重的作用，“我在大陆媒体第一份工作的时候是在‘国台办’的新闻机构，我们那个地方是要求要翻墙的，我们用的翻墙软体就是自由门，我们很早就用自由门，就像你们的那些媒体我们都经常看的，你们很多的信息，尤其在中国媒体人的圈子里，大家很多人都是拿着当参考的。你明白吗？你们真的是非常重要！在华文媒体里是一个非常大的力量。”</p>
+<p>张真瑜告诉《看中国》记者，大陆的媒体人其实都明白共产党是怎么回事，只是自己如何选择的问题。现在国内媒体被打压和控制得越来越厉害，中共不能听到一点儿批评的声音。</p>
+<p>“有的人做记者他是为了新闻理想的，就像我做时政，就是想当一个知名的记者，然后能帮助更多的人，但从我的这个从业经历来看，就发现越来越难以进行正常的工作了。比如参与报导的一些内容很快就被下架，然后个人会得到处分，到后面，我周围的同事陆陆续续还有人会被抓进去，还有被判（刑）的。”</p>
+<p>“唉！”张真瑜长叹一口气，继续说道，“现在我很多周围的人呀，媒体人很多都出来（出国）了，在高层的有相当一部分人都出来了，我身边，就在加拿大，我以前认识的媒体记者就有好几个……你用手投不了票，用嘴讲不了话，那用腿还跑不了吗？”</p>
+<p><strong>中共利用媒体人渗透美国</strong></p>
+<p>张真瑜表示，共产党从历史上就非常善于搞渗透，“在渗透方面它是非常的专业，它从外面攻不进来，它只能在城堡内部去制造一些事端，然后让你的城堡去发生瘟疫也好，或者溃败也好，来减轻它自身的一些压力。”</p>
+<p>“中共主要做的渗透还是渗透一些国际上大的媒体，在我的了解之中，共产党它们自己评估西方国家大部分的文化人尤其是记者，以左派居多。所以它（中共）会扩大一些本来不是特别严重的事情，比如这次的‘黑人命贵’，BLM的这种运动，中共会借助这种事件，借助它外宣的能力，甚至它自己直接就参与，来把这种偶发事件炒热，来分散欧美国家对中共的舆论压力和经济围剿。”</p>
+<p>张真瑜说：“中共是希望美国和加拿大自身能出现很多乱子，这样它自身自顾不暇的同时，就没有办法去集中精力对付中共。另外，它收买一些高精尖的学者、很厉害的媒体、还有一些大牌的记者，在关键的时候去替中共说话。”</p>
+<p>他举例说：“你比如说，我有一个同事他是CHINA DAILY（中国日报）专门负责海外广告投放的，他之前是个记者，后来转去行政负责广告投放了，它们都能投到华盛顿邮报，时代广场。尤其是在关键时刻，他有很多的预算能够去控制，去美国的媒体投放广告。他就告诉我，即便是美国围剿或者攻击中共的时候，因为有一层商业的利益，攻击都会适当降低。”</p>
+<p>此外，中共还购买一些海外媒体，以及染红华人媒体作为它的喉舌，“包括一些新兴的媒体公众号呀，报纸呀都有，非常多。很多看着很小的公司，其实背后有着庞大的金源。”</p>
+<p><strong>“三退”给中国人留下自救通道</strong></p>
+<p>民阵全球副主席盛雪对《看中国》表示，现在全世界正义的国家都已经开始围剿中共，当这个时机到来的时候，已经对所有的中国人提出了一个最严峻的考验：你是要跟中共这样一个邪恶走、最后一起是被历史抛弃？还是要选择获得一种真正的新的生命？</p>
+<p>盛雪说，如今的“三退大潮”给中国人留下了一个通道、能够自救的一条道路，现在每一个人都应该自问，是不是要去自救？是不是在自救过程当中去解体中共，迎来新生。</p>
+<p>“这个新生是对所有人的，是每一个人都能享受到自由、人权、平等、尊重，以及一个民主国家应有的福利，这是对每一个人都有好处的。”</p>
+<p>（转自《看中国》/责任编辑：竺颖）</p>
+
+网址转载：https://www.ntdtv.com/gb/2020/08/11/a102915742.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
+<hr><a name=12>
+<h1 align="center"><b>袁弓夷曝中共逃亡潮：駐外使領館每天都有人失蹤</b></h1>
+<div align="center"><img src="/td-img/20200811035701643.jpg" width=600></div>
+<div align="center">香港实业家袁弓夷先生日前透露，上千名在美国潜伏的中共党员已叛逃。而且中共外交部以及中共的领事馆，每天都有人失踪！</div><p>
+美国关闭<a class="keyword" href="https://www.aboluowang.com/tag/休斯顿中领馆-1.html">休斯顿中领馆</a>，在美亲共份子没有人敢站出来，全都一声不吭。</p>
+<p>美中迈入<a class="keyword" href="https://www.aboluowang.com/tag/新冷战-1.html">新冷战</a>，美国关闭<a class="keyword" href="https://www.aboluowang.com/tag/休斯顿-1.html">休斯顿</a><a class="keyword" href="https://www.aboluowang.com/tag/中领馆-1.html">中领馆</a>事件更引发一波<a class="keyword" href="https://www.aboluowang.com/tag/中共间谍-1.html">中共间谍</a>的逃亡潮。<a class="keyword" href="https://www.aboluowang.com/tag/香港-1.html">香港</a>实业家<a class="keyword" href="https://www.aboluowang.com/tag/袁弓夷-1.html">袁弓夷</a>先生日前透露，他获得消息，已有上千名在美国潜伏的<a class="keyword" href="https://www.aboluowang.com/tag/中共党员-1.html">中共党员</a>叛逃，中共驻外使领馆每天都有人失踪，而且<a class="keyword" href="https://www.aboluowang.com/tag/中共媒体-1.html">中共媒体</a>人的叛逃是最严重的。</p>
+<p><strong>袁弓夷：中领馆爆出逃亡潮</strong></p>
+<p><a class="keyword" href="https://www.aboluowang.com/tag/美国国务院-1.html">美国国务院</a>7月21日下令休斯顿中领馆在72小时内关闭，震惊国际舆论。美国<a class="keyword" href="https://www.aboluowang.com/tag/共和党-1.html">共和党</a>参议员<a class="keyword" href="https://www.aboluowang.com/tag/卢比奥-1.html">卢比奥</a>在推特发文说：中共驻休士顿总领馆根本是大型间谍中心，早该关了！</p>
+<p>他还表示，领馆里的间谍有72小时可以离开，否则就得面临被逮捕的命运。</p>
+<p>袁弓夷7月22日对《看中国》透露，他获得内幕消息，休斯顿中领馆有2人想留在美国，已向美国投诚，但尚不清楚具体细节。</p>
+<p>近日，袁弓夷接受<a class="keyword" href="https://www.aboluowang.com/tag/大纪元-1.html">大纪元</a>“珍言真语”节目采访，透露更多中共间谍叛逃的内幕。他表示，美中之间的交锋在步步升级，不仅驱逐中领馆人员，还可能会驱逐<a class="keyword" href="https://www.aboluowang.com/tag/中共官方-1.html">中共官方</a>媒体的记者，很多人不想回中国，因此向美国投诚，申请<a class="keyword" href="https://www.aboluowang.com/tag/政治庇护-1.html">政治庇护</a>。</p>
+<div align="center"><img src="/td-img/20200811035701763.jpg" width=600></div></p>
+<p>袁弓夷透露，美国一方面在外交等方面与中共脱钩，一方面在做战事准备。（珍言真语）</p>
+<p>袁弓夷说，以前有些中共党员<a class="keyword" href="https://www.aboluowang.com/tag/移民美国-1.html">移民美国</a>时没有暴露自己的身份，现在这些人担心回到大陆可能就出不来了，他们不想回去，所有一些<a class="keyword" href="https://www.aboluowang.com/tag/地下党-1.html">地下党</a>员、潜伏党员也出来了。</p>
+<p>他透露说，目前有约1000名中共党员要求政治庇护，中共驻外使领馆每天都有人失踪！</p>
+<p>值得一提的是，<a class="keyword" href="https://www.aboluowang.com/tag/纽约中领馆-1.html">纽约中领馆</a>罕见聘请专业碎纸公司大规模销毁文件。8月6日中午约12点，大纪元记者发现，<a class="keyword" href="https://www.aboluowang.com/tag/纽约-1.html">纽约</a>中领馆大门前停有两辆“USA SHRED”公司的碎纸卡车，旁边有数桶装满文件的大型塑料桶，有领馆工作人员交代碎纸公司人员销毁文件。此前，休斯顿中领馆在被关闭前曾大规模烧毁文件。</p>
+<p>另据大纪元读者提供的8月3日拍摄的照片显示，纽约中领馆的停车场外丢弃了数件寝室用品，包括床架、床垫、床头柜等，显示领馆里可能有人员离开。</p>
+<div align="center"><img src="/td-img/20200811035701830.jpg" width=600></div></p>
+<p>8月6日中午，纽约中领馆门前，停有两辆“USA SHRED”公司的碎纸卡车，门口放有数桶装满文件的大型塑料桶。</p>
+<p><strong>袁弓夷：中共媒体人叛逃更严重</strong></p>
+<p>袁弓夷还表示，中共驻海外媒体人的叛逃更加严重。中共正规的记者其实都是间谍，现在全部要被驱逐。如果不想回大陆，唯一的出路就是寻求政治庇护。</p>
+<p>根据美国<a class="keyword" href="https://www.aboluowang.com/tag/国务院-1.html">国务院</a>3月份的数据，5年来，美国累计向中国记者发放了约3000份I类签证，仅2019年就给中国记者及家属发放了425份I类签证。</p>
+<p><a class="keyword" href="https://www.aboluowang.com/tag/中共党媒-1.html">中共党媒</a>《<a class="keyword" href="https://www.aboluowang.com/tag/环球时报-1.html">环球时报</a>》总编辑<a class="keyword" href="https://www.aboluowang.com/tag/胡锡进-1.html">胡锡进</a>8月3日晚在微博发文说，中共驻美记者有近40人签证将到期，至今无一人通过签证延期申请，他们可能被迫离开美国。</p>
+<p>“如果我是他们，我都不会回去的。这个压力很大的。”袁弓夷说，在美国好吃好住，为什么要回大陆？回去可能还会被斗争，老实讲回去很可能是凶多吉少。</p>
+<p>他表示，现在这种情形是<a class="keyword" href="https://www.aboluowang.com/tag/共产党-1.html">共产党</a>完全没有想到的，没有任何准备，很多人就这样失踪了，去申请政治庇护了。</p>
+<p>袁弓夷表示，不只<a class="keyword" href="https://www.aboluowang.com/tag/中国大陆-1.html">中国大陆</a>的记者，有<a class="keyword" href="https://www.aboluowang.com/tag/香港护照-1.html">香港护照</a>的记者，实际上也是与<a class="keyword" href="https://www.aboluowang.com/tag/中共高官-1.html">中共高官</a>有关系的人。这些情况美国都已经掌握了。</p>
+<p>“香港那个<a class="keyword" href="https://www.aboluowang.com/tag/移民局-1.html">移民局</a>很早就沦陷了”，<a class="keyword" href="https://www.aboluowang.com/tag/香港政府-1.html">香港政府</a>发出了1000万份护照，香港实际人口只有700万，真正申请使用护照的<a class="keyword" href="https://www.aboluowang.com/tag/香港人-1.html">香港人</a>只有500万。袁弓夷说，有一半的香港护照“送礼”给了中共高官。</p>
+<p>他表示，那些在美国有身份的，三奶也好，四奶也好，每个人都是有香港身份证的。</p>
+<p>他还说，有人估计美国有50万<a class="keyword" href="https://www.aboluowang.com/tag/共产党员-1.html">共产党员</a>，他觉得可能有30万左右，这些人都不想回去，想留在美国。他预料近期海外的中共党员将掀起“叛逃海啸”，而中共对此根本没有回击之力。</p>
+<p><strong>美国拟禁驱逐中共党员引发“退党潮”</strong></p>
+<p>早些时候，《<a class="keyword" href="https://www.aboluowang.com/tag/纽约时报-1.html">纽约时报</a>》引述消息披露，<a class="keyword" href="https://www.aboluowang.com/tag/美国政府-1.html">美国政府</a>正在考虑禁止所有的中共党员及其家属入境美国。甚至取消已在美国的中共党员签证并将其驱逐出境。</p>
+<p>这份行政令的拟议还包括：限制中共军人和国有企业高管赴美，他们当中许多人可能也是党员。</p>
+<p>报导引述消息人士的话透露，<a class="keyword" href="https://www.aboluowang.com/tag/白宫-1.html">白宫</a>、国务院和<a class="keyword" href="https://www.aboluowang.com/tag/国土安全部-1.html">国土安全部</a>的官员已经参与了有关禁令的讨论。目前，这项总统行政令仍在起草阶段。美国政府估计中共党员有9千多万，被牵扯的<a class="keyword" href="https://www.aboluowang.com/tag/中国人-1.html">中国人</a>将有2亿人。</p>
+<p>根据美国《移民与国籍法》的相关规定，恐怖组织成员和共产党员不得移民美国。近年来，美国政府对中共党员移民的审查更为严格，因中共党员身份而被拒的个案也时有所闻。</p>
+<p>另据相关<a class="keyword" href="https://www.aboluowang.com/tag/移民法-1.html">移民法</a>律，如果申请入籍者隐瞒自己是共产党员，靠欺骗手法入境、入籍的话，一旦遭到举报，随时可能被吊销<a class="keyword" href="https://www.aboluowang.com/tag/绿卡-1.html">绿卡</a>，并遭遣返。</p>
+<p>美国考虑对中共党员下禁令的消息一传出，通过<a class="keyword" href="https://www.aboluowang.com/tag/谷歌-1.html">谷歌</a>搜索“退党”的频率飙升。大纪元退党网站的三退人数也成倍增长，持续多日每天都有6万多人三退。</p>
+<p>美国政府早些年就承认总部设在纽约的全球退党服务中心，发放的退党证书具有法律效应，他们把退党证书作为<a class="keyword" href="https://www.aboluowang.com/tag/大陆人-1.html">大陆人</a>移民、入籍等的调查资料。</p>
+<div align="center"><img src="/td-img/20200811035702472.jpg" width=600></div></p>
+<p>全球退党服务中心出具的退党证书，在美国有法律效力。（退党服务中心）</p>
+<p>全球退党服务中心主席易蓉女士表示，“中共在国内民心尽失，国际上面临全球围剿，<a class="keyword" href="https://www.aboluowang.com/tag/天灭中共-1.html">天灭中共</a>是天意是民心所在，所有加入过中共党团员和少先队，宣誓为<a class="keyword" href="https://www.aboluowang.com/tag/共产主义-1.html">共产主义</a>奋斗终身，把生命献给党的人士，需要尽快在退党网和大纪元退党网站上登记<a class="keyword" href="https://www.aboluowang.com/tag/退出中共-1.html">退出中共</a>党团队。”</p>
+<p>“全球退党服务中心还可以给在海外的华人提供中英文退党证书。退党证书终身有效。”易蓉说。</p>
+<p>据大纪元退党网站数据，截至2020年8月10日，在大纪元网站声明退出党团队人数已突破3.6亿，而且三退人数仍在持续增加。</p></article>
+<p id="editor">责任编辑：<em id="editoricon" class="%E5%AE%81%E6%88%90%E6%9C%88"></em><b> <a href="/editor/宁成月_1.html"> 宁成月 </a> </b>　 来源：<a href="//www.ntdtv.com">新唐人</a> 转载请注明作者、出处並保持完整。</p>
+
+网址转载：https://www.aboluowang.com/2020/0811/1487931.html
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=11>
 <h1 align="center"><b>中国人搜索“退党”热度持续飙升 蓬佩奥有回应</b></h1>
 <div align="center"><img src="/td-img/GettyImages-1227288545-800x450.jpg" width=600></div>
