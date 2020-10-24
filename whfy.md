@@ -32,11 +32,6 @@
 </tr> 	
 </table>	
 
-<table>
-<tr>
- <td><center><a href="https://github.com/gofanben/gm/blob/master/download/nf4514.html?raw=true"><div align=center><h2><b>每日新闻-大头条集锦.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
-</tr>
-</table>
 
 <table>
 <tr>
