@@ -31,9 +31,10 @@
 🎯免翻墙：请多连几次 耐心等一下<p>
 
 bit.ly/3aggA8D<p>
-is.gd/pd9JAf<p>
-is.gd/zE9M1q<p>
-is.gd/ze3hvj<p>
+is.gd/NlNI7s<p>
+is.gd/BguLcR<p>
+is.gd/CrzPwK<p>
+
 
 <div align="center"><img src="/sp-img/149.gif" width=880></div><p>
  <a href="https://bit.ly/3cMz5Bz"> <h3>如何 “ 三退保命 ”</a>，请点击翻墙网站  https://bit.ly/3asSXIA  下载 { 翻墙软件 }→找 { 大纪元网站 }  ( http://www.dajiyuan.com ) 三退</h3>
