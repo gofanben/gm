@@ -21,11 +21,11 @@
 
 <table>
  <tr>
-<td><a href="/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
 </tr> 	
 
 <tr>
-<td><center><a href="/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
 </table>
 <div align="center"><img src="/whfy-img/fngrchn3.jpg"></div>
 
