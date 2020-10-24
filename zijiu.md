@@ -20,12 +20,13 @@
 <div align="center"><h2>大纪元每日新闻 武汉肺炎——新型冠状病毒爆发</h2></div>
 
 <table>
- <tr>
-<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
+<tr>
+<td><a href="https://github.com/gofanben/gm/blob/master/download/nf1358885.html?raw=true"><div align=center><h2><b>武汉肺炎——新型冠状病毒爆发.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
 </tr> 	
 
 <tr>
-<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</h2></b></center></td>
+<td><center><a href="https://github.com/gofanben/gm/blob/master/download/top.html?raw=true"><div align=center><h2><b>全球要闻.html (双击右键,另存文件) (手机-下载连结)</a></h2></b></center></td>
+</tr> 		
 </table>
 <div align="center"><img src="/whfy-img/fngrchn3.jpg"></div>
 
