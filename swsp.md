@@ -1,7 +1,10 @@
 <h1 align="center"><b>2020中国洪灾</b></h1></div>
-<div align="center"><img src="/sp-tuwn-img/0728-sp1.jpg" width=600></div><p>
+<div align="center"><img src="/img-2/swspip.jpg" width=600></div><p>
 <div align="center"><img src="/sp-tuwn-img/0728-sp2.jpg" width=600></div><p>
 <div align="center"><img src="/sp-tuwn-img/0728-sp3.jpg" width=600></div><p>
+
+
+https://github.com/gofanben/gm/blob/master/img-2/swspip.jpg
 
 <div align="center"><h1><a href=https://bit.ly/2RQM1hX>(收藏)更多免翻 https://bit.ly/2RQM1hX</a></h1></div></p>
 
