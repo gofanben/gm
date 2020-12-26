@@ -1,6 +1,10 @@
 <div align="center"><img src="/img-2/swspip.jpg" width=600></div><p>
 
-<div align="center"><b>明見網 :<b><P><P>
+<div align="center">
+  
+更多 https://bit.ly/2RQM1hX
+
+<b>明見網 :<b><P><P>
 
 http://111.249.44.41/69<p>
 http://125.224.20.52/69<p>
