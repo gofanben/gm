@@ -42,9 +42,6 @@
 <div align="center">知名华裔美籍作家、中国问题专家章家敦（Gordon Chang）。（李莎／大纪元）</div><p>
 
 <p>【大纪元2020年12月08日讯】（大纪元记者徐简综合报导）中国问题专家<a href="https://www.epochtimes.com/gb/tag/%E7%AB%A0%E5%AE%B6%E6%95%A6.html">章家敦</a>（Gordon Chang）警告，<a href="https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html">中共</a>企图利用手中的全球最大DNA数据库资料，制造针对某些特定族群的生物武器，这应引起美国和国际社会的极大关注。</p>
-<p><strong>听新闻：</strong></p>
-<div style="width: 100%; height: 170px; margin-bottom: 20px; border-radius: 10px; overflow:hidden;"><iframe style="width: 100%; height: 170px;" frameborder="no" allow="autoplay" scrolling="no" seamless src="https://player.captivate.fm/episode/91571b7f-e72a-458d-90ec-8fbd05b67038"></iframe></div>
-<p><strong>（听更多新闻请至<a href="https://www.epochtimes.com/gb/podcast.htm">“听纪元”</a>平台）</strong></p>
 <p>在12月5日福克斯新闻的访谈节目中，<a href="https://www.epochtimes.com/gb/tag/%E7%AB%A0%E5%AE%B6%E6%95%A6.html">章家敦</a>提到<a href="https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html">中共</a>目前拥有世界上最大的DNA数据库，并且还在不断增长。</p>
 <p>他说这是中共实现“中国制造2025”计划的一部分——企图称霸世界生物技术产业，另一个目的则更为险恶，那就是开发针对特定某个种族群体的“生物武器”。他还说，中共搜集外国人DNA之余，却禁止他国研究人员对中国DNA进行研究，就支持了这个理论。</p>
 <p>“冠状<a href="https://www.epochtimes.com/gb/tag/%E7%97%85%E6%AF%92.html">病毒</a>（中共病毒）不是中国土壤上产生的最后病原体，我们必须担心，下一种疾病或比新型冠状（中共病毒）更容易传播、更致命。”章家敦说。</p>
