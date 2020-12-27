@@ -10,6 +10,7 @@
 <div align="center"><h3><a href="https://bit.ly/2RQM1hX">看更多</a></h3></div>
 <div align="center"><h4><a href="https://github.com/gofanben/gm/blob/master/wyyzg_more.md"><b>病毒针对共产党而来</b></a></h4></div>
 
+<a href =#156>章家敦：中共搜集全球DNA 目的险恶</a><p>
 <a href =#155>大疫下的世纪正邪之战</a><p>
 <a href =#154>德国巴伐利亚州疫情趋重</a><p>
 <a href =#153>【瘟疫与中共】疫情飙升 聚焦风车之国荷兰</a><p>
@@ -33,6 +34,30 @@
 <a href =#135>中国现新病毒 具最致命特质 美国密切关注</a><p>
 <a href =#134>塞国总统吻五星旗 议长部长等高官染疫</a><p>
 
+
+
+<hr><a name=156>
+<h1 align="center"><b>章家敦：中共搜集全球DNA 目的险恶</b></h1>
+<div align="center"><img src="/wyyzg-img/GettyImages-1277569034-600x400.jpg" width=600></div>
+<div align="center">知名华裔美籍作家、中国问题专家章家敦（Gordon Chang）。（李莎／大纪元）</div><p>
+
+<p>【大纪元2020年12月08日讯】（大纪元记者徐简综合报导）中国问题专家<a href="https://www.epochtimes.com/gb/tag/%E7%AB%A0%E5%AE%B6%E6%95%A6.html">章家敦</a>（Gordon Chang）警告，<a href="https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html">中共</a>企图利用手中的全球最大DNA数据库资料，制造针对某些特定族群的生物武器，这应引起美国和国际社会的极大关注。</p>
+<p><strong>听新闻：</strong></p>
+<div style="width: 100%; height: 170px; margin-bottom: 20px; border-radius: 10px; overflow:hidden;"><iframe style="width: 100%; height: 170px;" frameborder="no" allow="autoplay" scrolling="no" seamless src="https://player.captivate.fm/episode/91571b7f-e72a-458d-90ec-8fbd05b67038"></iframe></div>
+<p><strong>（听更多新闻请至<a href="https://www.epochtimes.com/gb/podcast.htm">“听纪元”</a>平台）</strong></p>
+<p>在12月5日福克斯新闻的访谈节目中，<a href="https://www.epochtimes.com/gb/tag/%E7%AB%A0%E5%AE%B6%E6%95%A6.html">章家敦</a>提到<a href="https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html">中共</a>目前拥有世界上最大的DNA数据库，并且还在不断增长。</p>
+<p>他说这是中共实现“中国制造2025”计划的一部分——企图称霸世界生物技术产业，另一个目的则更为险恶，那就是开发针对特定某个种族群体的“生物武器”。他还说，中共搜集外国人DNA之余，却禁止他国研究人员对中国DNA进行研究，就支持了这个理论。</p>
+<p>“冠状<a href="https://www.epochtimes.com/gb/tag/%E7%97%85%E6%AF%92.html">病毒</a>（中共病毒）不是中国土壤上产生的最后病原体，我们必须担心，下一种疾病或比新型冠状（中共病毒）更容易传播、更致命。”章家敦说。</p>
+<p>中共搜集本国公民的DNA，用来执法、追踪持不同政见者等，方便其更严格控制和监视所有国民。</p>
+<p>那么中共如何获取外国人DNA呢？章家敦透露，它们“购买拥有DNA档案的美国公司，为基因公司提供DNA分析研究，以及通过黑客进行攻击。”例如2015年中共黑客入侵了美国第二大保险公司Anthem。</p>
+<p>他说，现在中共正在利用中共<a href="https://www.epochtimes.com/gb/tag/%E7%97%85%E6%AF%92.html">病毒</a>（冠状病毒）肆虐之际来扩大其DNA数据库，它们需要国际旅客提供国际公认的二维码，及通过疫苗外交获取外国人的基因。</p>
+<p>章家敦警告，中共以疫苗作为筹码，让外国人群完成相关试验，同时搜集敏感信息；“它们（中共）会说，‘我们会给你提供这种疫苗，但是我们需要完成我们的试验，因此我们将以你们的人群为测试对象。’”</p>
+<p>目前中共的五种候选疫苗已进入三期临床试验。试验的最后阶段已在至少16个国家或地区推出，包括巴西，土​​耳其，摩洛哥和阿联酋。</p>
+<p>章家敦在节目中敦促美国迅速采取行动，防止中共获得更多的美国DNA，““我们不应该允许任何中国（中共）或其附属机构测试美国人的DNA，我们必须对它们说，要么你同意检查制度，要么我们退出《生物武器公约》。”</p>
+<p>责任编辑：林妍 ＃</p>
+网址转载：https://www.epochtimes.com/gb/20/12/7/n12601829.htm
+
+<a href=#top><h6 align="right">回上方</h6></a>
 <hr><a name=155>
 <h1 align="center"><b>大疫下的世纪正邪之战</b></h1>
 <div align="center"><img src="/wyyzg-img/GettyImages-1138104204-600x400.jpg" width=600></div>
