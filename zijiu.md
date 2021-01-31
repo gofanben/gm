@@ -146,7 +146,7 @@
 <div align="center"><img src="/zijiu-img/2021-1-28-i084046_01.png" width=450></div>
 
 
-网址转载：
+网址转载： https://www.minghui.org/mh/articles/2021/1/29/%E5%8D%B0%E5%B0%BC%E6%9C%8B%E5%8F%8B%E5%87%BB%E8%B4%A5%E6%AD%A6%E6%B1%89%E8%82%BA%E7%82%8E%E7%9A%84%E7%BB%8F%E5%8E%86-419244.html
 
 <a href=#top><h6 align="right">回上方</h6></a>
 
