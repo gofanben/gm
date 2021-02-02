@@ -14,6 +14,16 @@
 
 <a href="https://www.epochtimes.com/b5/20/5/5/n12085023.htm">【免疫良方】華人現染疫症狀 念真言化險為夷</a><br>
 
+<a href="https://www.epochtimes.com/b5/20/4/24/n12059010.htm">【免疫良方】加男染疫住院 念真言神奇康復</a><br>
+
+<a href="https://www.epochtimes.com/b5/20/4/22/n12052679.htm">【抗疫良方】染疫絕望中 留日女生奇蹟康復</a><br>
+
+<a href="https://www.epochtimes.com/b5/20/4/20/n12047472.htm">【抗疫良方】中共病毒無藥治 她卻絕處逢生</a><br>
+
+<a href="https://www.epochtimes.com/b5/20/4/18/n12041036.htm">【抗疫良方】魁北克人突遇事故 神奇恢復</a><br>
+
+<a href="https://www.epochtimes.com/b5/20/4/14/n12030636.htm">歐洲遊客染瘟疫 痛斥中共後奇蹟康復</a><br>
+
 <a href="https://www.epochtimes.com/b5/20/6/30/n12221562.htm">紐約從空城到車水馬龍 避疫良方在身旁</a><br>
 
 <a href="https://www.epochtimes.com/b5/20/5/21/n12127280.htm">疫情高峰上班 紐約護理員念真言出入平安</a><br>
