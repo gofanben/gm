@@ -1,6 +1,6 @@
 <div align="center"><IMG SRC="zijiu-img/falundafagood.jpg" width=800></div>
 <p><p>
-<a href="https://www.youtube.com/watch?v=huj0byZ3YyQ">病毒有弱点🎯❗️它最怕你每天这样做。5个震惊😱世界的科学实验，看懂的人都深思了~耐心看到片尾，恍然大悟😲，受益终生❤️❤️❤</a><br>
+<a href="https://www.youtube.com/watch?v=huj0byZ3YyQ">病毒有弱點🎯❗️它最怕你每天這樣做。5個震驚😱世界的科學實驗，看懂的人都深思了~耐心看到片尾，恍然大悟😲，受益終生❤️❤️❤</a><br>
 
 <a href="https://www.epochtimes.com/b5/20/6/16/n12190804.htm">念九字真言——武漢肺炎臨床療效的研究報告</a><br>
 
